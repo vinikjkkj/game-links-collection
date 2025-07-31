@@ -1,6 +1,6 @@
-# <div align='center'>game-links-collection</div>
+# <p align='center'>game-links-collection</p>
 
-#### <div align='center'>A collection of game links from FitGirl, ElAmigos and SteamRIP updated every day</div>
+#### <p align='center'>A collection of game links from FitGirl, ElAmigos and SteamRIP updated every day</p>
 
 Full List [Here](docs/all-games.md)
 
