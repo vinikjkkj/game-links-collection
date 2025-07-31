@@ -1,7 +1,12 @@
-# game-links-collection
+# <p align="center"><strong>game-links-collection</strong></p>
 
-#### A collection of game links from FitGirl, ElAmigos and SteamRIP updated every day
+<p align="center">
+  A collection of game links from FitGirl, ElAmigos and SteamRIP updated every day
+</p>
 
-Latest Games [Here](https://vinikjkkj.github.io/game-links-collection/docs/latest.html)
+---
 
-Full List [Here](https://vinikjkkj.github.io/game-links-collection/docs/all-games.html)
+> `json` folder contains Hydra compatible providers
+
+### 🔗 [Latest Games Here](https://vinikjkkj.github.io/game-links-collection/docs/latest.html)
+### 📃 [Full List Here](https://vinikjkkj.github.io/game-links-collection/docs/all-games.html)
