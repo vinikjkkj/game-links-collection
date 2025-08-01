@@ -165,6 +165,7 @@
     - <a href="magnet:?xt=urn:btih:00bc863288dd5f7f08181008909e4d143b031447&dn=rutor.info_30XX%3A+Deluxe+Edition+%5Bv+1.3.0+%2B+DLC%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2999398)
     - **Updates**
+      - [30XX.Feline.Fury.Update.v1.3.3-TENOKE.rar](https://filecrypt.cc/Container/7A960C6699.html)
       - [30XX.Feline.Fury.Update.v1.3.5-TENOKE.rar](https://filecrypt.cc/Container/5A4C472D0A.html)
   - 35MM (2016), 1.26GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/35MM__ElAmigos_-_qSqCKr2n.html))
     - [filecrypt](https://www.filecrypt.cc/Container/1AA3CBF79D.html)
@@ -342,15 +343,6 @@
 - Initial: #
   - #BLUD Free Download | 2024-06-28 ([Source: SteamRIP](https://steamrip.com/blud-free-download/))
     - [megadb](https://megadb.net/3xq7zgb43fy2)
-  - #DRIVE Rally | 2025-04-17 ([Source: Fitgirl](https://fitgirl-repacks.site/drive-rally/))
-    - [datanodes](https://datanodes.to/4qoeliowrkfi/DRIVE_Rally_--_fitgirl-repacks.site_--_.rar)
-    - [fuckingfast](https://fuckingfast.co/udnxe4mrrunm#DRIVE_Rally_--_fitgirl-repacks.site_--_.rar)
-    - [multiup](https://multiup.io/download/4e530e16d665c113dc38eaac04bbba38/DRIVE_Rally_--_fitgirl-repacks.site_--_.rar)
-    - [1337x](https://1337x.to/torrent/6381886/DRIVE-Rally-MULTi15-FitGirl-Repack/)
-    - <a href="magnet:?xt=urn:btih:2D1E661CFC6DC8DF26AEC7551D4B7BB9895480A0&dn=%23DRIVE+Rally+%28MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-    - [rutor](http://rutor.info/torrent/1033881/drive-rally-v-1.0.0.0-2025-pc-repack-ot-fitgirl)
-    - <a href="magnet:?xt=urn:btih:2d1e661cfc6dc8df26aec7551d4b7bb9895480a0&dn=rutor.info_DRIVE+Rally+%5Bv+1.0.0.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-    - [tapochek](https://tapochek.net/viewtopic.php?p=3047303)
 
 - Initial: (
   - (Chinese Paladin): Sword and Fairy 7 – v2.0.1 | 2022-12-11 ([Source: Fitgirl](https://fitgirl-repacks.site/chinese-paladin-sword-and-fairy-7/))
