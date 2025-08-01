@@ -1,9 +1,9 @@
 # Latest Games
 
-- NINJA GAIDEN: Ragebound Free Download (vcs36158) | 2025-07-31 ([Source: SteamRIP](https://steamrip.com/ninja-gaiden-ragebound-free-download/))
-  - [gofile](https://gofile.io/d/I4Ba85)
 - Primal Planet Free Download (Build 19398803) | 2025-07-31 ([Source: SteamRIP](https://steamrip.com/primal-planet-free-download/))
   - [megadb](https://megadb.net/ns37b25ievr6)
+- NINJA GAIDEN: Ragebound Free Download (vcs36158) | 2025-07-31 ([Source: SteamRIP](https://steamrip.com/ninja-gaiden-ragebound-free-download/))
+  - [gofile](https://gofile.io/d/I4Ba85)
 - Terminator: Dark Fate – Defiance: Complete Bundle, v1.07.1145 + 3 DLCs/Bonuses + Windows 7 Fix | 2025-07-30 ([Source: Fitgirl](https://fitgirl-repacks.site/terminator-dark-fate-defiance/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?abdce464b3a5201a#6ADD1Li7CFmEHXNoppL9a7tF7JwJKHTr88WqThMoc8MW)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e9a39942db2c575d#HZ3Tyafgp7LL4Kh9UTTAkhHxpt85DKa9EvXCwazdYvqL)
