@@ -45298,6 +45298,8 @@
     - [gofile](https://gofile.io/d/slxBSa)
   - PEAK Free Download (v1.21.a + Co-op) | 2025-06-17 ([Source: SteamRIP](https://steamrip.com/peak-free-download/))
     - [gofile](https://gofile.io/d/RjVVzh)
+  - PEAK Free Download (v1.22.a + Co-op) | 2025-06-17 ([Source: SteamRIP](https://steamrip.com/peak-free-download/))
+    - [gofile](https://gofile.io/d/OqbBw8)
   - Peaks of Yore Free Download (v1.9.7) | 2024-03-17 ([Source: SteamRIP](https://steamrip.com/peaks-of-yore-free-download/))
     - [megadb](https://megadb.net/1nhw830ywtwa)
   - Peaks of Yore – v1.9.0b | 2025-01-16 ([Source: Fitgirl](https://fitgirl-repacks.site/peaks-of-yore/))
@@ -53329,6 +53331,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/664c60745f667)
   - Senua’s Saga: Hellblade II Enhanced Free Download | 2025-08-13 ([Source: SteamRIP](https://steamrip.com/senuas-saga-hellblade-ii-enhanced-free-download/))
     - [datanodes](https://datanodes.to/zfyq0jing42y)
+  - Senua’s Saga: Hellblade II Enhanced, Build 19131828 + Bonus Soundtrack | 2025-08-13 ([Source: Fitgirl](https://fitgirl-repacks.site/senuas-saga-hellblade-2/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5de486e749c879f4#HP3k4dVjCtPquVscKzxMnPnNoVSietaGoAtA8oTL2xdC)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?974634a1e7bca134#3y4Xigsc3NJdngpRs9B1AR5sPfL7JcHx79jaQCe5htAw)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/senuas-saga-hellblade-2/)
+    - [1337x](https://1337x.to/torrent/6463205/Senua-s-Saga-Hellblade-II-Enhanced-Build-19131828-Bonus-Soundtrack-MULTi27-FitGirl-Repack-Selective-Download-from-28-3-GB/)
+    - <a href="magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103&dn=Senua%26%23039%3Bs+Saga%3A+Hellblade+II+Enhanced+%28Build+19131828+%2B+Bonus+Soundtrack%2C+MULTi27%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+28.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](http://rutor.info/torrent/985645/senua%E2%80%99s-saga-hellblade-ii-enhanced-build-19131828-dlc-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:4cb4c0abe65d3ec7be10b0d924f7eadac084d103&dn=rutor.info_Senua%E2%80%99s+Saga%3A+Hellblade+II+Enhanced+%5BBuild+19131828+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3069271)
   - Senua’s Saga: Hellblade II – v1.0.0.0.158523 | 2024-05-22 ([Source: Fitgirl](https://fitgirl-repacks.site/senuas-saga-hellblade-2/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ef95472b85540e07#77DiK2pEUzM5Lcp9tPzyNh7gUusuob4Av3zy27H62p17)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?24183bb13ca20d92#4LEEQP83CJtunFFfqK14Qc63SwqcLV1aL1QtbAr7YirQ)
@@ -58999,6 +59010,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/609e5b6ccc782)
   - Subnautica Free Download (Build 10676206) | 2021-07-05 ([Source: SteamRIP](https://steamrip.com/subnautica-free-download-s2/))
     - [gofile](https://gofile.io/d/rnFEHJ)
+  - Subnautica Free Download (v82304) | 2021-07-05 ([Source: SteamRIP](https://steamrip.com/subnautica-free-download-s2/))
+    - [gofile](https://gofile.io/d/lJzFm2)
   - Subnautica – v65786 + Soundtrack | 2020-08-06 ([Source: Fitgirl](https://fitgirl-repacks.site/subnautica/))
     - [1337x](https://1337x.to/torrent/4580904/Subnautica-v65786-OST-MULTi21-FitGirl-Repack-Selective-Download-from-2-4-GB/)
     - <a href="magnet:?xt=urn:btih:0F432B4B7B2F404489BF2E6D94424566E36BADDB">Torrent</a>
@@ -59010,6 +59023,8 @@
     - [pasteit](https://pasteit.top/paste.php?id=7a8fa081d9f760a1539e366aca)
   - Subnautica: Below Zero Free Download (v49636) | 2021-05-22 ([Source: SteamRIP](https://steamrip.com/subnautica-below-zero-free-download-1s/))
     - [filecrypt](https://www.filecrypt.cc/Container/DDCA52CF64)
+  - Subnautica: Below Zero Free Download (v53115) | 2021-05-22 ([Source: SteamRIP](https://steamrip.com/subnautica-below-zero-free-download-1s/))
+    - [gofile](https://gofile.io/d/YPnvwP)
   - Subnautica: Below Zero – v1.0 Build 44290 | 2021-05-14 ([Source: Fitgirl](https://fitgirl-repacks.site/subnautica-below-zero/))
     - [1337x](https://1337x.to/torrent/4866427/Subnautica-Below-Zero-v1-0-Build-44290-MULTi37-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:8CFE005A306809E31003EF2E9289A81C974864F4&dn=Subnautica%3A+Below+Zero+%28v1.0+Build+44290%2C+MULTi16%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>

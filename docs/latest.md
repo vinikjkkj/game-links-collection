@@ -1,5 +1,14 @@
 # Latest Games
 
+- Senua’s Saga: Hellblade II Enhanced, Build 19131828 + Bonus Soundtrack | 2025-08-13 ([Source: Fitgirl](https://fitgirl-repacks.site/senuas-saga-hellblade-2/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5de486e749c879f4#HP3k4dVjCtPquVscKzxMnPnNoVSietaGoAtA8oTL2xdC)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?974634a1e7bca134#3y4Xigsc3NJdngpRs9B1AR5sPfL7JcHx79jaQCe5htAw)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/senuas-saga-hellblade-2/)
+  - [1337x](https://1337x.to/torrent/6463205/Senua-s-Saga-Hellblade-II-Enhanced-Build-19131828-Bonus-Soundtrack-MULTi27-FitGirl-Repack-Selective-Download-from-28-3-GB/)
+  - <a href="magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103&dn=Senua%26%23039%3Bs+Saga%3A+Hellblade+II+Enhanced+%28Build+19131828+%2B+Bonus+Soundtrack%2C+MULTi27%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+28.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/985645/senua%E2%80%99s-saga-hellblade-ii-enhanced-build-19131828-dlc-2024-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:4cb4c0abe65d3ec7be10b0d924f7eadac084d103&dn=rutor.info_Senua%E2%80%99s+Saga%3A+Hellblade+II+Enhanced+%5BBuild+19131828+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3069271)
 - Senua’s Saga: Hellblade II Enhanced Free Download | 2025-08-13 ([Source: SteamRIP](https://steamrip.com/senuas-saga-hellblade-ii-enhanced-free-download/))
   - [datanodes](https://datanodes.to/zfyq0jing42y)
 - Senua’s Saga: Hellblade II Enhanced Free Download | 2025-08-13 ([Source: Elamigos](https://steamrip.com/senuas-saga-hellblade-ii-enhanced-free-download/))
@@ -151,12 +160,3 @@
   - [megadb](https://megadb.net/cju11gj4pg7d)
 - Static Dread: The Lighthouse Free Download (v2025.08.06.18.12) | 2025-08-09 ([Source: Elamigos](https://steamrip.com/static-dread-the-lighthouse-free-download/))
   - [megadb](https://megadb.net/cju11gj4pg7d)
-- RAILGRADE – v7.3.63.1 + Windows 7 Fix | 2025-08-09 ([Source: Fitgirl](https://fitgirl-repacks.site/railgrade/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0a8b8978209f1e4b#BfaxSKbJaRwQ2Mp1n7adH5zJxhfGDmiHLEhz7m7XNuhZ)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b7261868330bf26a#JCkFGgQFPaMQxmCYAzWKnQ1t66Wxm6uDen36i23n19GZ)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7341f31f17c2763a#6uoC5BEQtvS3cBnKscsE2WaMwhFtWHd6wGwKh5pM9DdF)
-  - [1337x](https://1337x.to/torrent/6460460/RAILGRADE-v7-3-63-1-Windows-7-Fix-MULTi14-FitGirl-Repack-Selective-Download-from-2-3-GB/)
-  - <a href="magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44&dn=RAILGRADE+%28v7.3.63.1+%2B+Windows+7+Fix%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/890848/railgrade-v-7.3.63.1-2022-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:6a7fa09c2a751e7d9bdb69b7ae56e79b9906ba44&dn=rutor.info_Railgrade+%5Bv+7.3.63.1%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3068763)
