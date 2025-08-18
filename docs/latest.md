@@ -1,5 +1,19 @@
 # Latest Games
 
+- Forever Skies Deluxe Edition (2025),  6.49GB | 2025-08-18 ([Source: Elamigos](https://elamigos.site/data/Forever_Skies_Deluxe_Edition_MULTi12_-_ElAmigos.html))
+  - [filecrypt](https://filecrypt.cc/Container/888AF4F0C4.html)
+  - [keeplinks](https://www.keeplinks.org/p16/67fd51ae533cd)
+  - [filecrypt](https://filecrypt.cc/Container/89F7FE0C97.html)
+  - [keeplinks](https://www.keeplinks.org/p16/67fd51a54fd98)
+- BROK the InvestiGator Free Download (v1.5.3) | 2025-08-18 ([Source: SteamRIP](https://steamrip.com/brok-the-investigator-free-download/))
+  - [megadb](https://megadb.net/tqu57tmum53s)
+- Sheep Seeker | 2025-08-18 ([Source: Fitgirl](https://fitgirl-repacks.site/sheep-seeker/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c7631fd6888ebe1b#2sNVELhLsXcFJRLCeY4xYBz6JDDiA6n7bF6irT4xnc43)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bd7d089430fda06a#BvfUntWdfrP8iBPAKyn9PeMrsFzvJyyJSrc4dc4Kgzrs)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?78daef6d18d070fe#9wXdDQJUo4yAoXYpzAe4dra3jiR66LpHXw1R4cWRioo3)
+  - [1337x](https://1337x.to/torrent/6466888/Sheep-Seeker-MULTi5-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:124D745B1161B7B354A7AAF62AFDF5C198B8E581&dn=Sheep+Seeker+%28MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3070513)
 - Super Drift Blade – v1.0.0 + Bonus Soundtrack | 2025-08-18 ([Source: Fitgirl](https://fitgirl-repacks.site/super-drift-blade/))
   - [datanodes](https://datanodes.to/yc162468tfx9/Super_Drift_Blade_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/mh6tsun1lne3#Super_Drift_Blade_--_fitgirl-repacks.site_--_.rar)
@@ -139,30 +153,3 @@
   - [keeplinks](https://www.keeplinks.org/p16/6553f60f6ab26)
   - [filecrypt](https://www.filecrypt.cc/Container/0AABFCA3A4.html)
   - [keeplinks](https://www.keeplinks.org/p16/6553f60698f2a)
-- Shields of Loyalty – v1.0.0 (CS:2364) | 2025-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/shields-of-loyalty/))
-  - [datanodes](https://datanodes.to/9rvr3xikur3a/Shields_of_Loyalty_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/6g8w1jfxuwyh#Shields_of_Loyalty_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/8d7a563da4fc65e0a9120d74696474c0/Shields_of_Loyalty_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6465130/Shields-of-Loyalty-v1-0-0-CS-2364-MULTi8-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:DA12F107E42090495C1191C17B2CCB59B4430D07&dn=Shields+of+Loyalty+%28v1.0.0%2FCS%3A2364%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/1049119/shields-of-loyalty-v-1.0-2021-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:da12f107e42090495c1191c17b2ccb59b4430d07&dn=rutor.info_Shields+of+Loyalty+%5Bv+1.0%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3069620)
-- Arctic Motel Simulator – v3.0.2 | 2025-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/arctic-motel-simulator/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?44bdb3a88fdd2e44#FxMCxgwqSL22BiwMNLAPR7HoY76pHvfJynn8XXax5miS)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b393cce13b2a677a#6fr5Qudw5FrxF8yUYJdTUUznkafiSRbgzDpj2yMZfgmc)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?29a0b070e52a8b66#2ohDuAmu3SoEMPtuHKkCUP35yW9Zod68yiSbNVU35hdP)
-  - [1337x](https://1337x.to/torrent/6465021/Arctic-Motel-Simulator-v3-0-2-MULTi19-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8&dn=Arctic+Motel+Simulator+%28v3.0.2%2C+MULTi19%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/1049115/arctic-motel-simulator-v-3.0.2-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:0f9848e731b92b582a3b3fb594e134a641f9b6c8&dn=rutor.info_Arctic+Motel+Simulator+%5Bv+3.0.2%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3036447)
-- Warhammer 40,000: Dawn of War – Definitive Edition – v2.0.889.0 | 2025-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/warhammer-40000-dawn-of-war-definitive-edition/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0df96e3af8df8902#94ZzYNhowEpSQe61XXrbZvBcGF7Z2GAC8pJiijoPJkr2)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?dda78d4e0d66c509#GZL3DPGjDVVVWw12DzyhJMBhXKXY5JD6Dg8r8ZeUu5yW)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/warhammer-40000-dawn-of-war-definitive-edition/)
-  - [1337x](https://1337x.to/torrent/6464965/Warhammer-40-000-Dawn-of-War-Definitive-Edition-v2-0-889-0-MULTi11-FitGirl-Repack-Selective-Download-from-9-3-GB/)
-  - <a href="magnet:?xt=urn:btih:F372C4A629979DADDBAF090C13E9CB047316B313&dn=Warhammer+40%2C000%3A+Dawn+of+War+-+Definitive+Edition+%28v2.0.889.0%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+9.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/1049109/warhammer-40000-dawn-of-war-definitive-edition-v-2.0.889.0-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:f372c4a629979daddbaf090c13e9cb047316b313&dn=rutor.info_Warhammer+40000+Dawn+of+War+-+Definitive+Edition+%5Bv+2.0.889.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3069590)
