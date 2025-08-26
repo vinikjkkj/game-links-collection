@@ -1,5 +1,23 @@
 # Latest Games
 
+- Worldwide Rush – v1.0.22/v1.0.25 | 2025-08-26 ([Source: Fitgirl](https://fitgirl-repacks.site/worldwide-rush/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3c131210bd046e93#DKjSN1HY3jjTxi4rSVDLKUCZ6nAaE7ev5gz9YRoVGtah)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3d435b933d5e5bdd#3zqqLXVDwCZ4wCJPJMBJhSod1iaLojwrza7fAvjVUiXn)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8857045aa8d2ba99#n73d9v44KzKhuXzvhchzax8S6ZZSqd6EC7oyCR4fcRQ)
+  - [1337x](https://1337x.to/torrent/6471410/Worldwide-Rush-v1-0-22-v1-0-25-MULTi16-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:12374882F1754A3674826383800D710C0B4BA387&dn=Worldwide+Rush+%28v1.0.22%2Fv1.0.25%2C+MULTi16%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/1050631/worldwide-rush-v-1.0.22/1.0.25-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:12374882f1754a3674826383800d710c0b4ba387&dn=rutor.info_Worldwide+Rush+%5Bv+1.0.22%2F1.0.25%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3072858)
+- Firehawk FPV: Drone Warfare Simulator | 2025-08-26 ([Source: Fitgirl](https://fitgirl-repacks.site/firehawk-fpv-drone-warfare-simulator/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cc64d10bba6671b6#DvcLtqMPxgfN45uzgNaKcgZNHrzFUJ6gAvCkRJvzZera)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d3a7972d55b638e3#CehUVcUbd2Y3UrW5AfTCGHLnju2MTwJmSiJUbcMdk5dy)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1f825be5aeb91618#GWDLmKS5ycZE3DZoDDi7gQTWJ1gYooa5yo4nbtDFhv7B)
+  - [1337x](https://1337x.to/torrent/6471199/Firehawk-FPV-Drone-Warfare-Simulator-MULTi30-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4&dn=Firehawk+FPV%3A+Drone+Warfare+Simulator+%28MULTi30%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/1050573/firehawk-fpv-drone-warfare-simulator-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:178a61b20f9fa02d9cd4c5a6e7f0b970780a66f4&dn=rutor.info_Firehawk+FPV%3A+Drone+Warfare+Simulator+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3072715)
 - Liminal Exit | 2025-08-25 ([Source: Fitgirl](https://fitgirl-repacks.site/liminal-exit/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?828babf72c2c8047#2vuJadG6XShrJiEZ1YbKQmyeR5w5efRHkuzkTr37JAem)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b97c1ca6829e515e#53CFUMGhGi2VgR83eRPztujcykxivLdupkjZRFn3EyXK)
@@ -136,10 +154,3 @@
   - [buzzheavier](https://buzzheavier.com/3a8dh91iocvo)
 - Fable – The Lost Chapters Free Download (Build 29928) | 2025-08-23 ([Source: SteamRIP](https://steamrip.com/fable-the-lost-chapters-free-download/))
   - [buzzheavier](https://buzzheavier.com/lxq0046g41qn)
-- Assassin’s Creed Liberation HD Free Download (Build 160942) | 2025-08-23 ([Source: SteamRIP](https://steamrip.com/assassins-creed-liberation-hd-free-download/))
-  - [buzzheavier](https://buzzheavier.com/6bpgsbo2m8cy)
-- Smalland Survive the Wilds (2024),  8.50GB | 2025-08-23 ([Source: Elamigos](https://elamigos.site/data/Smalland_Survive_the_Wilds_MULTi9_-_ElAmigos.html))
-  - [filecrypt](https://www.filecrypt.cc/Container/DFAF504A73.html)
-  - [keeplinks](https://www.keeplinks.org/p16/65ce2b53e5478)
-  - [filecrypt](https://www.filecrypt.cc/Container/6EC8898CA8.html)
-  - [keeplinks](https://www.keeplinks.org/p16/65ce2b058554a)
