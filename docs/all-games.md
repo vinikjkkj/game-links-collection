@@ -2449,6 +2449,15 @@
     - [1337x](https://1337x.to/torrent/6124366/ALTF42-v2-0-1-Release-MULTi15-FitGirl-Repack-Selective-Download-from-13-7-GB/)
     - <a href="magnet:?xt=urn:btih:C721F80466F0A811E28F0FC208CB96FE2684A36B&dn=ALTF42+%28v2.0.1%2FRelease%2C+MULTi15%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+13.7+GB%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2982618)
+  - Altheia: The Wrath of Aferi – v1.005 | 2025-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/altheia-the-wrath-of-aferi/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f434a6c98d5546e9#3dauXEH85mDQfaTFiq4gkScRL9nHaVD8ZoPFWy6qGuqL)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6088e5eb74104198#8321xjjBKcnU8foPVgXNLiUXit7nMD2aDFYCbTSg9aah)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cea5b7f6c333c0a3#547F1LasQynaa6WABmt49kveXVT2A2rMRibpr8uXvH1f)
+    - [1337x](https://1337x.to/torrent/6471600/Altheia-The-Wrath-of-Aferi-v1-005-MULTi5-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:567A4A4A0D921B77F525C8EA1BB3DBE3FFF2E172&dn=Altheia%3A+The+Wrath+of+Aferi+%28v1.005%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](http://rutor.info/torrent/1050635/altheia-the-wrath-of-aferi-v-1.005-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:567a4a4a0d921b77f525c8ea1bb3dbe3fff2e172&dn=rutor.info_Altheia%3A+The+Wrath+of+Aferi+%5Bv+1.005%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3072882)
   - ALUMNI: Escape Room Adventure | 2022-07-10 ([Source: Fitgirl](https://fitgirl-repacks.site/alumni-escape-room-adventure/))
     - [1337x](https://1337x.to/torrent/5320835/ALUMNI-Escape-Room-Adventure-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:6F515C3294040C225FE9AEB971ADD3FFD9831315&dn=ALUMNI%3A+Escape+Room+Adventure+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -4693,6 +4702,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/67dd6967e762c)
   - Atelier Yumia: The Alchemist of Memories & the Envisioned Land Free Download (v1.0.0.1) | 2025-03-25 ([Source: SteamRIP](https://steamrip.com/atelier-yumia-the-alchemist-of-memories-the-envisioned-land-free-download/))
     - [gofile](https://gofile.io/d/sffr2f)
+  - Atelier Yumia: The Alchemist of Memories & the Envisioned Land – Deluxe Edition, v1.42 + 36 DLCs | 2025-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/atelier-yumia-the-alchemist-of-memories-and-the-envisioned-land/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?70965c2656d4b21b#45dq7PCVbo14ohbMmpGwuWtYmBSuRG5S63ABgviYShCu)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?883288e40458bf37#2qMQ5SNf6Ga7WKpQzQZwza2tzuna4zvguzo7AznGC8qX)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/atelier-yumia-the-alchemist-of-memories-and-the-envisioned-land/)
+    - [1337x](https://1337x.to/torrent/6471941/Atelier-Yumia-The-Alchemist-of-Memories-the-Envisioned-Land-Deluxe-Edition-v1-42-36-DLCs-MULTi9-FitGirl-Repack-Selective-Download-from-13-GB/)
+    - <a href="magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00&dn=Atelier+Yumia%3A+The+Alchemist+of+Memories+%26amp%3B+the+Envisioned+Land+-+Deluxe+Edition+%28v1.42+%2B+36+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+13+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](http://rutor.info/torrent/1030127/atele-jumija_atelier-yumia-deluxe-edition-v-1.42-dlcs-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:dfa7a25dc178a1df50a1a8c455e097b067f6fb00&dn=rutor.info_%D0%90%D1%82%D0%B5%D0%BB%D1%8C%D0%B5+%D0%AE%D0%BC%D0%B8%D1%8F+%2F+Atelier+Yumia+-+Deluxe+Edition+%5Bv+1.42+%2B+DLC%27s%5D+%282025%29+PC+%7C+Repack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3072936)
   - Atelier Yumia: The Alchemist of Memories & the Envisioned Land – v1.00b/v1.00c + 20 DLCs | 2025-03-21 ([Source: Fitgirl](https://fitgirl-repacks.site/atelier-yumia-the-alchemist-of-memories-and-the-envisioned-land/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6c6f4556ae69f719#5oJ2GCM7Fd2DEf42vksFh2MH9bWBYwpzw8yibnt7bCwx)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?17e5950af78043fa#4eq4kZF9c1amFSznc8cBMaQWdqajBemewnhsGtzuDKWa)
@@ -7059,6 +7077,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/629bad64cf70b)
     - [filecrypt](https://www.filecrypt.cc/Container/1DDEE7D332.html)
     - [keeplinks](https://www.keeplinks.org/p16/629bad3f9ab6a)
+    - [filecrypt](https://www.filecrypt.cc/Container/FF7C97E170.html)
+    - [keeplinks](https://www.keeplinks.org/p16/629bad64cf70b)
+    - [filecrypt](https://www.filecrypt.cc/Container/1DDEE7D332.html)
+    - [keeplinks](https://www.keeplinks.org/p16/629bad3f9ab6a)
+  - Black Geyser: Couriers of Darkness (2022),  14.32GB | 2025-08-27 ([Source: Elamigos](https://elamigos.site/data/Black_Geyser_Couriers_of_Darkness_MULTi4_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/FF7C97E170.html)
     - [keeplinks](https://www.keeplinks.org/p16/629bad64cf70b)
     - [filecrypt](https://www.filecrypt.cc/Container/1DDEE7D332.html)
@@ -19091,6 +19114,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3029587)
     - **Updates**
       - [Echo.Point.Nova.Update.v1.323-TENOKE.rar](https://filecrypt.cc/Container/A9AE1CD1DE.html)
+  - Echo Point Nova: Digital Deluxe Edition, v2.1 + Bonus OST | 2025-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/echo-point-nova/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e1ab8f7ea313ae55#imwHCXWje3joiJF2fkWo34dyK2okhZZGG1ThEiTiiRK)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?af69cd740717dc24#5aYvcs5Kj45QscPooNuobgwjdPRJAfgZDCYySBF6cxWh)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9574c64d76efcb25#3tGMyNH1RprL2cBRzhJqx2KYb8VwvoywguUmkitGWm33)
+    - [1337x](https://1337x.to/torrent/6472565/Echo-Point-Nova-Digital-Deluxe-Edition-v2-1-Bonus-OST-MULTi7-FitGirl-Repack-Selective-Download-from-2-3-GB/)
+    - <a href="magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16&dn=Echo+Point+Nova%3A+Digital+Deluxe+Edition+%28v2.1+%2B+Bonus+OST%2C+MULTi7%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](http://rutor.info/torrent/1018876/echo-point-nova-digital-deluxe-edition-v-2.1-dlc-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:3fc367710f39671413746ecb727645f46ee57d16&dn=rutor.info_Echo+Point+Nova%3A+Digital+Deluxe+Edition+%5Bv+2.1+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3073032)
   - EchoBlade, v1.3.0 | 2023-10-13 ([Source: Fitgirl](https://fitgirl-repacks.site/echoblade/))
     - [1337x](https://1337x.to/torrent/5845778/EchoBlade-v1-3-0-MULTi8-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:F3F756A94850B0CB06849F0EBE85BD619CC13A8A&dn=EchoBlade+%28v1.3.0%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -24992,6 +25024,8 @@
     - [upera](https://public.upera.co/f/9EhTwp9c)
   - Gears of War Free Download (v1.3) | 2022-09-07 ([Source: SteamRIP](https://steamrip.com/gears-of-war-free-download-1x/))
     - [megadb](https://megadb.net/zyf25fk9q5yr)
+  - Gears of War: Reloaded Free Download (v1.0.1.3689997) | 2025-08-27 ([Source: SteamRIP](https://steamrip.com/gears-of-war-reloaded-free-download/))
+    - [filecrypt](https://www.filecrypt.cc/Container/7FAC8A66C7)
   - Gears of War: Ultimate Edition (2016),  33.63GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Gears_of_War_Ultimate_Edition_MULTi11__ElAmigos_-_wrHkagTt.html))
     - [filecrypt](https://www.filecrypt.cc/Container/7996A8C67E.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5839313d8)
@@ -31436,6 +31470,8 @@
     - [gofile](https://gofile.io/d/IFHy4F)
   - inZOI Free Download (v20250820.6849.W) | 2025-03-29 ([Source: SteamRIP](https://steamrip.com/inzoi-free-download/))
     - [gofile](https://gofile.io/d/mWG0lL)
+  - inZOI Free Download (v20250825.6945.W) | 2025-08-27 ([Source: SteamRIP](https://steamrip.com/inzoi-free-download/))
+    - [gofile](https://gofile.io/d/NiNKmy)
   - Ion Fury | 2019-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/ion-fury/))
     - [1337x](http://1337x.to/torrent/3940889/Ion-Fury-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:058355445C1B74ADF1BE2E199459B0BDA7ECA8CD">Torrent</a>
@@ -38090,6 +38126,17 @@
     - [rutor](http://rutor.info/torrent/706149/metal-gear-solid-v-the-phantom-pain-v-1.15-2015-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:933a21781658817340f0b73f9ffd0844667b450c&dn=rutor.info_Metal+Gear+Solid+V%3A+The+Phantom+Pain+%5Bv+1.15%5D+%282015%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2599675)
+  - METAL GEAR SOLID Δ: SNAKE EATER Free Download (v1.1.1) | 2025-08-27 ([Source: SteamRIP](https://steamrip.com/metal-gear-solid-%ce%b4-snake-eater-free-download/))
+    - [filecrypt](https://www.filecrypt.cc/Container/DEF23035BC)
+  - METAL GEAR SOLID Δ: SNAKE EATER – Digital Deluxe Edition, v1.1.1 + Sneaking DLC Pack | 2025-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/metal-gear-solid-delta-snake-eater/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c280537566a2e810#6CvPWVXcN9BbbL7ecVWLNPzgpV2gkmtrTaPGwxo2Nq91)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?38573e64d2e1afe9#3hginweRcymAYPPkq1E9V8h2yKg6eBdHXzqL5W5JbPFR)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/metal-gear-solid-delta-snake-eater/)
+    - [1337x](https://1337x.to/torrent/6472201/METAL-GEAR-SOLID-DELTA-SNAKE-EATER-Digital-Deluxe-Edition-v1-1-1-Sneaking-DLC-Pack-MULTi11-FitGirl-Repack-Selective-Download-from-53-7-GB/)
+    - <a href="magnet:?xt=urn:btih:319E1B84A9029D57856C4367A7993E8C8C13FD00&dn=METAL+GEAR+SOLID+DELTA%3A+SNAKE+EATER+-+Digital+Deluxe+Edition+%28v1.1.1+%2B+Sneaking+DLC+Pack%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+53.7+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](http://rutor.info/torrent/1050710/metal-gear-solid-delta-snake-eater-digital-deluxe-edition-v-1.1.1-dlc-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:319e1b84a9029d57856c4367a7993e8c8c13fd00&dn=rutor.info_Metal+Gear+Solid+Delta%3A+Snake+Eater+-+Digital+Deluxe+Edition+%5Bv+1.1.1+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?t=279056)
   - METAL GEAR SOLID – Master Collection Free Download (v1.5.0) | 2024-12-06 ([Source: SteamRIP](https://steamrip.com/metal-gear-solid-master-collection-free-download/))
   
   - Metal Gear: Tri-Pack (MG + MGS/VR + MGS2) | 2020-09-28 ([Source: Fitgirl](https://fitgirl-repacks.site/metal-gear-tri-pack/))
@@ -57491,6 +57538,13 @@
     - **Updates**
       - [Spirit.City.Lofi.Sessions.Cozy.Kitchen.Update.v1.9.1-TENOKE.rar](https://filecrypt.cc/Container/9D587D43A2.html)
       - [Spirit.City.Lofi.Sessions.Cozy.Kitchen.Update.v1.11-TENOKE.rar](https://filecrypt.cc/Container/16E472EBF1.html)
+  - Spirit City: Lofi Sessions – All-in Bundle, v2.0.1 + 4 DLCs | 2025-08-26 ([Source: Fitgirl](https://fitgirl-repacks.site/spirit-city-lofi-sessions/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d75b2ece8cbd598d#DVKUYBdsYx61edweSddC7EFH2TokLrtihj8omrjiip3r)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8721c365f9781b28#9A1tKdii8dDSrtsBh3teJczPskD1eAPaRWbGFfx4gnYn)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3a579e1e1bcc1afb#8GAiuoZb4R6eLZ3apKVim4H4t8PsZSPqQCqApYXN1eck)
+    - [1337x](https://1337x.to/torrent/6471520/Spirit-City-Lofi-Sessions-All-in-Bundle-v2-0-1-4-DLCs-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:8C64101BC567BC79AED153036EA7A1E5498E5FE8&dn=Spirit+City%3A+Lofi+Sessions+-+All-in+Bundle+%28v2.0.1+%2B+4+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3072872)
   - Spirit Hunter: Death Mark II | 2024-02-18 ([Source: Fitgirl](https://fitgirl-repacks.site/spirit-hunter-death-mark-2/))
     - [1337x](https://1337x.to/torrent/5995556/Spirit-Hunter-Death-Mark-II-ENG-JAP-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:B3B2F839D518A58523DBEB21462E1C3F2E6568A0&dn=Spirit+Hunter%3A+Death+Mark+II+%28ENG%2FJAP%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -66089,6 +66143,8 @@
     - [gofile](https://gofile.io/d/WkHD24)
   - The RPG Free Download (v1.015) | 2025-08-12 ([Source: SteamRIP](https://steamrip.com/the-rpg-free-download/))
     - [gofile](https://gofile.io/d/AsNtUA)
+  - The RPG Free Download (v1.019) | 2025-08-27 ([Source: SteamRIP](https://steamrip.com/the-rpg-free-download/))
+    - [megadb](https://megadb.net/oavhbdg6zqh5)
   - The RPG – v1.001/v1.004 | 2025-08-09 ([Source: Fitgirl](https://fitgirl-repacks.site/the-rpg/))
     - [datanodes](https://datanodes.to/zhndnnixihnt/The_RPG_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/qej6delamqiy#The_RPG_--_fitgirl-repacks.site_--_.rar)
