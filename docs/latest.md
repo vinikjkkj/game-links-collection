@@ -1,5 +1,17 @@
 # Latest Games
 
+- My Summer Car (2024),  0.30GB | 2025-09-15 ([Source: Elamigos](https://elamigos.site/data/My_Summer_Car_-_ElAmigos.html))
+  - [filecrypt](https://filecrypt.cc/Container/BDAF36CA2D.html)
+  - [keeplinks](https://www.keeplinks.org/p16/677edbfd87472)
+  - [filecrypt](https://filecrypt.cc/Container/3EB7F8F94C.html)
+  - [keeplinks](https://www.keeplinks.org/p16/677edbf6cd449)
+- Bubsy in: The Purrfect Collection | 2025-09-15 ([Source: Fitgirl](https://fitgirl-repacks.site/bubsy-in-the-purrfect-collection/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8dbbbcc9ed267255#6n9yRJS3vK1aGT3Qjc18oYJH1A9JVXuUmDMTugY9LmJv)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?82bc75e80d8b066d#DhbP6LV3QfLKq69RFB9Q2QANVvwSSXvhHSjET5XitLmo)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?08fe022b8a88ad88#77nJX3kyqCiWDHdQUCCNqtSLVKbnSxL439mWiBYZG9F5)
+  - [1337x](https://1337x.to/torrent/6483671/Bubsy-in-The-Purrfect-Collection-FitGirl-Repack-Selective-Download-from-544-MB/)
+  - <a href="magnet:?xt=urn:btih:F2518DDF51FF06C3F76D1750BC58AFD46953ACEE&dn=Bubsy+in%3A+The+Purrfect+Collection+%5BFitGirl+Repack%2C+Selective+Download+-+from+544+MB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3076346)
 - The Binding of Isaac: Rebirth (2014),  1.82GB | 2025-09-14 ([Source: Elamigos](https://elamigos.site/data/The_Binding_of_Isaac_Rebirth__ElAmigos_-_rgXtYrQK.html))
   - [filecrypt](https://www.filecrypt.cc/Container/6C253772C5.html)
   - [keeplinks](https://www.keeplinks.org/p16/5dde344122455)
@@ -190,21 +202,3 @@
   - [keeplinks](https://www.keeplinks.org/p16/671d2f1831d0a)
   - [filecrypt](https://www.filecrypt.cc/Container/1F6323517F.html)
   - [keeplinks](https://www.keeplinks.org/p16/671d2f1168262)
-- Star Fire: Eternal Cycle – v1.25.271 | 2025-09-10 ([Source: Fitgirl](https://fitgirl-repacks.site/star-fire-eternal-cycle/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?08b697687dc7943e#G7vbnGW3xhpgU2JYeEhii3MashhoLt7paf9BwtM35yby)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?dc4eb883dec79461#DJLmSP3HroLiLzxvZivnG4QL8mHhrR5YVASQHHvTNGQn)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d732783bed0ef5cd#6fVwBgLjezuMYZwRko3WMLFZsjQao4sbFwDD9t3D7ewv)
-  - [1337x](https://1337x.to/torrent/6481079/Star-Fire-Eternal-Cycle-v1-25-271-MULTi8-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:63A853B717D0E19B2A324AAD874D2A0D3EDCF48D&dn=Star+Fire%3A+Eternal+Cycle+%28v1.25.271%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/1052646/star-fire-eternal-cycle-v-1.25.271-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:63a853b717d0e19b2a324aad874d2a0d3edcf48d&dn=rutor.info_Star+Fire%3A+Eternal+Cycle+%5Bv+1.25.271%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3075468)
-- Lawn Mowing Simulator: Complete Edition, v1.0.15.0 + 3 DLCs | 2025-09-10 ([Source: Fitgirl](https://fitgirl-repacks.site/lawn-mowing-simulator/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2d8dd21f292d4356#6Th1cTfUCMJbkg8mDQzesLJvLQxtLKy8uXLmx8EGr9Z4)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6820c9ae10452fe4#7jNmrTHEH2xyG2y6zHE7j5KrkdUYS1LbQzzkQdvqZUV3)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?12c97277fc6f601f#a6BiMsuz3xHY7VK1NAJzuA6Xyjd9WqJwTA1rZjPxsfL)
-  - [1337x](https://1337x.to/torrent/6481074/Lawn-Mowing-Simulator-Complete-Edition-v1-0-15-0-3-DLCs-MULTi11-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:B021375979300708380BD34476333BE9F8D916B8&dn=Lawn+Mowing+Simulator%3A+Complete+Edition+%28v1.0.15.0+%2B+3+DLCs%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](http://rutor.info/torrent/1052644/lawn-mowing-simulator-complete-edition-v-1.0.15.0-dlcs-2021-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:b021375979300708380bd34476333be9f8d916b8&dn=rutor.info_Lawn+Mowing+Simulator%3A+Complete+Edition+%5Bv+1.0.15.0+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3075461)
