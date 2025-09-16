@@ -1,5 +1,40 @@
 # Latest Games
 
+- Candy Shop Simulator | 2025-09-16 ([Source: Fitgirl](https://fitgirl-repacks.site/candy-shop-simulator/))
+  - [datanodes](https://datanodes.to/86619x8bzpvl/Candy_Shop_Simulator_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/t2gzrji0is00#Candy_Shop_Simulator_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/8fc8123d0487ccfa97d7e4a15ca781ee/Candy_Shop_Simulator_--_fitgirl-raepacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6484369/Candy-Shop-Simulator-MULTi13-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:39702DC70D1CB2BF967030559022B784F4F5A50D&dn=Candy+Shop+Simulator+%28MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/1053343/candy-shop-simulator-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:39702dc70d1cb2bf967030559022b784f4f5a50d&dn=rutor.info_Candy+Shop+Simulator+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3076555)
+- The Derailed – v1.0.1 | 2025-09-16 ([Source: Fitgirl](https://fitgirl-repacks.site/the-derailed/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?aa2c3a2f2feb4551#BBHKsN9d9SVdaa3Re9Pad3ufrd3uVQkoUnrqGEAhujqn)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9e8d2a53bbd7c3c2#6UzDQ6Qmnvn2VW5sZfnZdAtF4W8p9UHgMxsuRrQeYZcY)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/the-derailed/)
+  - [1337x](https://1337x.to/torrent/6484118/The-Derailed-v1-0-1-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600&dn=The+Derailed+%28v1.0.1%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/1053271/the-derailed-v-1.0.1-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:06e29edb05d5670e74ec25120d825222a4b4e600&dn=rutor.info_The+Derailed+%5Bv+1.0.1%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3076501)
+- LEGO Voyagers – v1.0.6 | 2025-09-16 ([Source: Fitgirl](https://fitgirl-repacks.site/lego-voyagers/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e5d1b5d11716d39c#ARprX2rKbHaLwwBJEoG63rtX1FXem82UbRPrLtqJaoJ4)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c6cabc00998931fb#9i5TFBwGitkMYQhX8JE3evtQmeJaeBZMMFGfbtESoS8z)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b39ec09a5d1b4483#9AMGooHRobR8HMLeaZCDZPLiv9WZBeFoC9nWKwtBvS4u)
+  - [1337x](https://1337x.to/torrent/6483959/LEGO-Voyagers-v1-0-6-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:4E7C09F98D7F76B91E9F180D67E0CA0BE1260A6B&dn=LEGO+Voyagers+%28v1.0.6%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/1053217/lego-voyagers-v-1.0.6-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:4e7c09f98d7f76b91e9f180d67e0ca0be1260a6b&dn=rutor.info_LEGO+Voyagers+%5Bv+1.0.6%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3076474)
+- Call to Arms: Gates of Hell – Ostfront: Complete Edition, v1.054.0 + 6 DLCs | 2025-09-16 ([Source: Fitgirl](https://fitgirl-repacks.site/call-to-arms-gates-of-hell-ostfront/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2a9806f4ecffca14#vgbvF4ZJNeRptFMCZK6rTm1XDPSc7dioh3jjpunEspy)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ff1c04c60e8c794d#64TMuh71LX3Rcn62GCKUWqmnyKGaDdRQKqF2Whd5GipJ)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2459a12af061b09f#FqfHwgmYCuprBesyUd19m4X9ChQbAn4skn81St5fdjHu)
+  - [1337x](https://1337x.to/torrent/6483956/Call-to-Arms-Gates-of-Hell-Ostfront-Complete-Edition-v1-054-0-6-DLCs-MULTi10-FitGirl-Repack-Selective-Download-from-24-8-GB/)
+  - <a href="magnet:?xt=urn:btih:4E1AB26E5ACDA27ADF9D28A8C620D67E1238216E&dn=Call+to+Arms%3A+Gates+of+Hell+-+Ostfront%3A+Complete+Edition+%28v1.054.0+%2B+6+DLCs%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+24.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](http://rutor.info/torrent/957336/call-to-arms-gates-of-hell-ostfront-complete-edition-v-1.054.0-dlcs-2021-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:4e1ab26e5acda27adf9d28a8c620d67e1238216e&dn=rutor.info_Call+to+Arms%3A+Gates+of+Hell+-+Ostfront%3A+Complete+Edition+%5Bv+1.054.0+%2B+DLC%27s%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
 - My Summer Car (2024),  0.30GB | 2025-09-15 ([Source: Elamigos](https://elamigos.site/data/My_Summer_Car_-_ElAmigos.html))
   - [filecrypt](https://filecrypt.cc/Container/BDAF36CA2D.html)
   - [keeplinks](https://www.keeplinks.org/p16/677edbfd87472)
@@ -182,23 +217,3 @@
   - [rutor](http://rutor.info/torrent/1023318/kingdom-come-deliverance-ii-v-1.4-dlcs-2025-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:e4b233cb5b991a0ba1ef6a9bc2034c38e06f9259&dn=rutor.info_Kingdom+Come%3A+Deliverance+II+%5Bv+1.4+%2B+DLCs%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?t=272783)
-- X4: Foundations Collector's Edition (2018),  23.96GB | 2025-09-10 ([Source: Elamigos](https://elamigos.site/data/X4_Foundations_Collectors_Edition_MULTi8__ElAmigos_-_7dEXn08P.html))
-  - [filecrypt](https://www.filecrypt.cc/Container/D3C0DAAA7C.html)
-  - [keeplinks](https://www.keeplinks.org/p16/5dde4a62172cc)
-  - [filecrypt](https://www.filecrypt.cc/Container/FCD7AF146D.html)
-  - [keeplinks](https://www.keeplinks.org/p16/5dde4a695fbbf)
-- Tainted Grail The Fall of Avalon (2025),  14.08GB | 2025-09-10 ([Source: Elamigos](https://elamigos.site/data/Tainted_Grail_The_Fall_of_Avalon_MULTi12_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/C8E2C95A5A.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6830abf535483)
-  - [filecrypt](https://filecrypt.cc/Container/C6AA6EE652.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6830abeaba387)
-- Kingdom Come Deliverance II Gold Edition (2025),  77.31GB | 2025-09-10 ([Source: Elamigos](https://elamigos.site/data/Kingdom_Come_Deliverance_II_Gold_Edition_MULTi15_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/B629DA0E07.html)
-  - [keeplinks](https://www.keeplinks.org/p16/67a2408baa8c8)
-  - [filecrypt](https://filecrypt.cc/Container/7C09E0958F.html)
-  - [keeplinks](https://www.keeplinks.org/p16/67a2408065f95)
-- Drova Forsaken Kin (2024),  0.96GB | 2025-09-10 ([Source: Elamigos](https://elamigos.site/data/Drova_Forsaken_Kin_MULTi3_-_ElAmigos.html))
-  - [filecrypt](https://www.filecrypt.cc/Container/DC6B0BEF4B.html)
-  - [keeplinks](https://www.keeplinks.org/p16/671d2f1831d0a)
-  - [filecrypt](https://www.filecrypt.cc/Container/1F6323517F.html)
-  - [keeplinks](https://www.keeplinks.org/p16/671d2f1168262)
