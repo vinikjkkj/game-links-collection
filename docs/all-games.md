@@ -5328,6 +5328,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/5e9b1844a5c63)
   - Baba Is You Free Download (v477c) | 2021-12-08 ([Source: SteamRIP](https://steamrip.com/baba-is-you-free-download-u1/))
     - [megadb](https://megadb.net/4cawoqsg4c5p)
+  - Baby Steps – Hotfix 2 (26.09.2025) | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/baby-steps/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1a9a5f179f99fa12#AmUQsTG1mstUSgqiP8ywMPik7NizRJkqhcPN6hB7JMbH)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?eb24321cbf31992e#Fvy48ReypAHJmV6AtsYwfEiBbyDnyyN1C2xkZbcNdyoL)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/baby-steps/)
+    - [1337x](https://1337x.to/torrent/6493674/Baby-Steps-Hotfix-2-26-09-2025-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3&dn=Baby+Steps+%28Hotfix+2%2F26.09.2025%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1055193/baby-steps-hotfix-2-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:714dce0c1839b44a0276f2f5670b5317f44de3d3&dn=rutor.info_Baby+Steps+%5BHotfix+2%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3079134)
   - Back 4 Blood Ultimate Edition (2021),  47.89GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Back_4_Blood_Ultimate_Edition_MULTi15_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/CA06282A4E.html)
     - [keeplinks](https://www.keeplinks.org/p16/664513141e57d)
@@ -10198,6 +10207,15 @@
     - [rutor](http://rutor.info/torrent/970067/caribbean-legend-polnoe-izdanie-v-1.5.0/13.06.25-dlcs-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:984b123fe6fbc020539ae170664bebd52d505797&dn=rutor.info_Caribbean+Legend%3A+%D0%9F%D0%BE%D0%BB%D0%BD%D0%BE%D0%B5+%D0%98%D0%B7%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5+%5Bv+1.5.0%2F13.06.25+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3060056)
+  - Caribbean Legend: Complete Edition, v1.5.1 (26.09.25) + 6 DLCs | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/caribbean-legend/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3995ef41aeea8e1e#EdC7qAwYiC2ouKAGRhcsBxhU6Mkw14C7qRdHZkPMyRRB)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?daf464bb7669f49a#2aTTHRuKEwok1EuGwte9naUzRJjuaa2R4L4qV6Pf1NNB)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/caribbean-legend/)
+    - [1337x](https://1337x.to/torrent/6493475/Caribbean-Legend-Complete-Edition-v1-5-1-26-09-25-6-DLCs-MULTi8-FitGirl-Repack-Selective-Download-from-11-6-GB/)
+    - <a href="magnet:?xt=urn:btih:E3518922750D82C5FB0F6EB38E2F2DC8FE85F917&dn=Caribbean+Legend%3A+Complete+Edition+%28v1.5.1%2F26.09.25+%2B+6+DLCs%2C+MULTi8%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+11.6+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/970067/caribbean-legend-polnoe-izdanie-v-1.5.1/26.09.25-dlcs-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:e3518922750d82c5fb0f6eb38e2f2dc8fe85f917&dn=rutor.info_Caribbean+Legend%3A+%D0%9F%D0%BE%D0%BB%D0%BD%D0%BE%D0%B5+%D0%98%D0%B7%D0%B4%D0%B0%D0%BD%D0%B8%D0%B5+%5Bv+1.5.1%2F26.09.25+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?t=264786)
   - Caribbean! | 2016-07-10 ([Source: Fitgirl](https://fitgirl-repacks.site/caribbean/))
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks/)
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks-of-the-year/)
@@ -13751,6 +13769,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?a27afc0050e87c8e#5uQ4jfhUAh9mPLf8A7SoHD754wXZ6WTohoKQNo46U5yf)
   - CULTIC Free Download (Build 13015560) | 2022-10-14 ([Source: SteamRIP](https://steamrip.com/cultic-free-download-1r/))
     - [megadb](https://megadb.net/au4yupbnmthh)
+  - CULTIC: Complete Edition, Build 20066947, Chapters I/II + Bonus Soundtrack | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/cultic/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3c3402f40ef3748d#3uFioaqNiCaJL3pR9Mtao2z4yjVS1vHaQZQqkUGPEgz8)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f1ddfd39fd342f5a#DgT2n21DwCSQhrfbWfnCQyGfDUSHKuMpGvHtjt2MJVqo)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bf1c3ca75092dfd6#DTZwST52fG2vXD9pUnkPMZzKPCUwoJrHjtvH1WaR1xzG)
+    - [1337x](https://1337x.to/torrent/6493616/CULTIC-Complete-Edition-Build-20066947-Chapters-I-II-Bonus-Soundtrack-FitGirl-Repack-Selective-Download-from-1-1-GB/)
+    - <a href="magnet:?xt=urn:btih:F356A9A3D6E1F8D48F3B7E0BAB2C547CE857BB71&dn=CULTIC%3A+Complete+Edition+%28Build+20066947%2C+Chapters+I%2FII+%2B+Bonus+Soundtrack%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.1+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=http%3A%2F%2Ft.nyaatracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ffe.dealclub.de%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3079094)
   - Cultist Simulator Free Download (v2023.12.s.5) | 2022-03-05 ([Source: SteamRIP](https://steamrip.com/cultist-simulator-free-download-1i/))
     - [megadb](https://megadb.net/ks3wcxew6nyb)
   - Cults & Daggers | 2016-07-09 ([Source: Fitgirl](https://fitgirl-repacks.site/cults-daggers/))
@@ -30867,6 +30892,13 @@
     - [rutor](https://rutor.info/torrent/1054977/hyperviolent-v-1.0.0.2-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:e6c6f395ed0cbfdd464f90929773746d28c21326&dn=rutor.info_HYPERVIOLENT+%5Bv+1.0.0.2%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3078788)
+  - HYPERxFANTASY | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/hyperxfantasy/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9fd56592d67c702b#4VAxrb2ofVtBLyuxUFvwvHQat8N3iV7y6wZmEamorSmG)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0ff042e9d572ca18#DYvPwzo1obXZEowyiB7ixVYHKzuToRqfaGZpUrKbgSed)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1efddcbe4111dd17#8B9JDCzKJDzDFvLnzvB9ztwPeoGj9T51wzzp2xQcj6sw)
+    - [1337x](https://1337x.to/torrent/6493501/HYPERxFANTASY-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:02994E7B4E244880F12E036EAF227FDD96F5CA1C&dn=HYPERxFANTASY+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3079056)
   - Hypothetimania Free Download | 2024-07-08 ([Source: SteamRIP](https://steamrip.com/hypothetimania-free-download/))
     - [megadb](https://megadb.net/uni0c8x79jdf)
   - Hyrule Warriors: Age of Calamity – v1.0.1 + DLC + Yuzu/Ryujinx Emus for PC | 2021-05-02 ([Source: Fitgirl](https://fitgirl-repacks.site/hyrule-warriors-age-of-calamity/))
@@ -35545,6 +35577,13 @@
     - [fitgirl-repacks](https://fitgirl-repacks.site/games-with-my-personal-pink-paw-award/)
     - [fitgirl-repacks](https://fitgirl-repacks.site/all-switch-emulated-repacks-a-z/)
     - [fitgirl-repacks](https://fitgirl-repacks.site/all-playstation-3-emulated-repacks-a-z/)
+  - LEGO Party! – v1.1.0 + Pre-Order Pack DLC | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/lego-party/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?56de86f75775f7f3#B3qkKNVmrAg8D9gedrcyXFQDkKTnYrnxBKmX154bRHah)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7f9dcc60cb76195b#B1D5SMrL2dfuNtjdGVH97853BoKkLrjwFYJaXDSC5m9v)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/lego-party/)
+    - [1337x](https://1337x.to/torrent/6493727/LEGO-Party-v1-1-0-Pre-Order-Pack-DLC-MULTi13-FitGirl-Repack-Selective-Download-from-3-4-GB/)
+    - <a href="magnet:?xt=urn:btih:F07CB6509F5B2671768E3D2DE3097591C8684BA9&dn=LEGO+Party%21+%28v1.1.0+%2B+Pre-Order+Pack+DLC%2C+MULTi13%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.4+GB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3079172)
   - LEGO Pirates of the Caribbean The Video Game Free Download | 2021-12-14 ([Source: SteamRIP](https://steamrip.com/lego-pirates-of-the-caribbean-the-video-game-free-download-u1/))
     - [buzzheavier](https://buzzheavier.com/len1x2rlyya8)
   - LEGO Pirates of the Caribbean: The Video Game (2011), 7.17GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/LEGO_Pirates_of_the_Caribbean_The_Video_Game__ElAmigos_-_ZiPM36Gn.html))
@@ -41325,6 +41364,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=2992668)
     - **Updates**
       - [Mr.Prepper.Update.v1.34h-TENOKE.rar](https://filecrypt.cc/Container/89D0C32A1B.html)
+  - Mr. Prepper: Anniversary Edition – v1.42b + 3 DLCs/Bonuses | 2025-09-29 ([Source: Fitgirl](https://fitgirl-repacks.site/mr-prepper/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?194530f34ae2e39a#C2wUGumchNEgmtYCBfbRQWBUrVrjEyqmCpNnoDwnVbo2)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bf379bdd84427ccd#8BeD1MfXtbxoEFddyFM3ZA8wdkHtwEcMBtgsPV1ap7NF)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?26b6315cbed93c41#4PyettEnvCQMYywRT785A9Vvypm3oepX4imZcfy9jtYA)
+    - [1337x](https://1337x.to/torrent/6493168/Mr-Prepper-Complete-Edition-v1-42b-3-DLCs-Bonuses-MULTi17-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:B605E36BE2281C39CC9D250460FE37D258833ECD&dn=Mr.+Prepper%3A+Complete+Edition+%28v1.42b+%2B+3+DLCs%2FBonuses%2C+MULTi17%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1055085/mr-prepper-complete-edition-v-1.42b-dlcs-2021-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:b605e36be2281c39cc9d250460fe37d258833ecd&dn=rutor.info_Mr.+Prepper%3A+Complete+Edition+%5Bv+1.42b+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3078981)
   - Mr. Shifty | 2017-04-15 ([Source: Fitgirl](https://fitgirl-repacks.site/mr-shifty/))
     - [extra](http://extra.to/torrent/5577023/)
     - [free-torrents](http://free-torrents.org/forum/viewtopic1.php?t=216282)
@@ -63461,6 +63509,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/674cec82cbd7a)
     - [filecrypt](https://filecrypt.cc/Container/74E56B1115.html)
     - [keeplinks](https://www.keeplinks.org/p16/674cec7c1a323)
+  - Teenage Mutant Ninja Turtles Splintered Fate (2024),  1.71GB | 2025-09-30 ([Source: Elamigos](https://elamigos.site/data/Teenage_Mutant_Ninja_Turtles_Splintered_Fate_MULTi14_-_ElAmigos.html))
+    - [filecrypt](https://filecrypt.cc/Container/BB5C6B3D03.html)
+    - [keeplinks](https://www.keeplinks.org/p16/674cec82cbd7a)
+    - [filecrypt](https://filecrypt.cc/Container/74E56B1115.html)
+    - [keeplinks](https://www.keeplinks.org/p16/674cec7c1a323)
   - Teenage Mutant Ninja Turtles: Mutants in Manhattan | 2016-07-27 ([Source: Fitgirl](https://fitgirl-repacks.site/teenage-mutant-ninja-turtles-mutants-in-manhattan/))
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks/)
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks-of-the-year/)
@@ -63513,6 +63566,15 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=3035179)
     - **Updates**
       - [Teenage.Mutant.Ninja.Turtles.Splintered.Fate.Casey.Jones.and.the.Junkyard.Jam.Update.v1.10.2-RUNE.rar](https://filecrypt.cc/Container/A366191AF1.html)
+  - Teenage Mutant Ninja Turtles: Splintered Fate – Heroes Premium Bundle, v1.11.0 + 4 DLCs/Bonuses | 2025-09-30 ([Source: Fitgirl](https://fitgirl-repacks.site/teenage-mutant-ninja-turtles-splintered-fate/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c4a37284ed2a21f4#B48A3o3UiAC1FmwNsvurXrDWyYDe8gYPchDysbD8KMtH)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?04a574ba715811ec#3m1dUJR9MJhbdRCBh83mESxPFtXESUoVoVstvhxYYWdp)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?405367bd264c98de#GTJhyrtaynvpUpnZuWseY9ZBvNt7TnrCVipQ1QN5Lah8)
+    - [1337x](https://1337x.to/torrent/6493694/Teenage-Mutant-Ninja-Turtles-Splintered-Fate-Heroes-Premium-Bundle-v1-11-0-4-DLCs-Bonuses-MULTi15-FitGirl-Repack-Selective-Download-from-1-1-GB/)
+    - <a href="magnet:?xt=urn:btih:CF1B0FD672C2BC2AA8EAC1858987417CD372D288&dn=Teenage+Mutant+Ninja+Turtles%3A+Splintered+Fate+-+Heroes+Premium+Bundle+%28v1.11.0+%2B+4+DLCs%2FBonuses%2C+MULTi15%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.1+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1011146/teenage-mutant-ninja-turtles-splintered-fate-heroes-premium-bundle-v-1.11.0-dlcs-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:cf1b0fd672c2bc2aa8eac1858987417cd372d288&dn=rutor.info_Teenage+Mutant+Ninja+Turtles%3A+Splintered+Fate+-+Heroes+Premium+Bundle+%5Bv+1.11.0+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3079154)
   - Teenage Mutant Ninja Turtles: Tactical Takedown – v25.21.b | 2025-05-24 ([Source: Fitgirl](https://fitgirl-repacks.site/teenage-mutant-ninja-turtles-tactical-takedown/))
     - [datanodes](https://datanodes.to/6gjouj7pb789/TMNT_Tactical_Takedown_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/ltm497v7wek8#TMNT_Tactical_Takedown_--_fitgirl-repacks.site_--_.rar)
