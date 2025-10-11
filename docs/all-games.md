@@ -212,6 +212,13 @@
     - [megadb](https://megadb.net/hxmon0l4hdi3)
 
 - Initial: 6
+  - 60 Minutes to Extinction: Escape Room – v1.0.1 | 2025-10-11 ([Source: Fitgirl](https://fitgirl-repacks.site/60-minutes-to-extinction-escape-room/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a745aa100233e42f#DsWpDo2WfYAK7LN962xgujmfNahzw2RhtrkDXybHPgqL)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c2c65c4deadaa931#9ydxoLkgadK4Jk31GJdwE8JwhPimuKm5AfNdGQ44i83E)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?340cc681aade0eb4#UM6CFmXvFJ3raGC7ENTCkftDRBx1WgK6dkq4ZkwBK8P)
+    - [1337x](https://1337x.to/torrent/6500520/60-Minutes-to-Extinction-Escape-Room-v1-0-1-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:49165CA09675901BB0968D8CB3B563575C66AC9F&dn=60+Minutes+to+Extinction%3A+Escape+Room+%28v1.0.1%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081001)
   - 60 Parsecs (2018), 0.52GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/60_Parsecs_MULTi5__ElAmigos_-_V0gwR0x0.html))
     - [filecrypt](https://www.filecrypt.cc/Container/AC91FBFDAC.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd067682753)
@@ -1077,6 +1084,15 @@
     - [1337x](https://1337x.to/torrent/6060789/Acolyte-of-the-Altar-v1-0-69-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:856F4CD3A7AD88757749B536BA00BEE9DB1286B8&dn=Acolyte+of+the+Altar+%28v1.0.69%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2975064)
+  - ACRES | 2025-10-11 ([Source: Fitgirl](https://fitgirl-repacks.site/acres/))
+    - [datanodes](https://datanodes.to/019jqpxnieuj/ACRES_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/mql6sdd0g76p#ACRES_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/6a9bebd4a0d034c87ce160779d3d62e1/ACRES_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6500553/ACRES-MULTi29-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B&dn=ACRES+%28MULTi29%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1056722/acres-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:07c11652e91c125cdbf847d1ad1ad69f28408b0b&dn=rutor.info_ACRES+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081015)
   - Across the Obelisk Free Download (v1.5.0) | 2022-08-18 ([Source: SteamRIP](https://steamrip.com/across-the-obelisk-free-download-m1/))
     - [megadb](https://megadb.net/3iupe22pxvg8)
   - Across The Obelisk: Complete Bundle – v1.6.0 + 12 DLCs | 2025-06-12 ([Source: Fitgirl](https://fitgirl-repacks.site/across-the-obelisk/))
@@ -5091,6 +5107,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?51480b48bb5cbfd4#22wBEvsR26w8THki5ZvFFPCJrrRFcMzZ7tvzWCm2CcKS)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?fddbf34972af1065#2itpK1pKKRmazN7aPh1xeZBY72KsGZUjGzr4RwcLtuZG)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?acc52b43df1e45ee#Ammxy1Z7qZCBnvhB4SjJ17aUZ3nb5rCbVAYy4topm92L)
+  - Autobahn Police Simulator 3 – v1.4.0.r49909 + 2 DLCs | 2025-10-11 ([Source: Fitgirl](https://fitgirl-repacks.site/autobahn-police-simulator-3/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fc5ceeb4361a9727#GuGBbPSjrSgogvMJ1BNgFYBSaM4YKQuD9mojsKui5NyL)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?80c2f88fb030fbd7#3s6q3Wv1fJovR2BcgGEo2p8F3QaXk7g9ghu4bbg2v28x)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?03981a859695733c#7vBv8VAcAvetREX9LgPVEtywafQxx127GULabBuDVatE)
+    - [1337x](https://1337x.to/torrent/6500566/Autobahn-Police-Simulator-3-v1-4-0-r49909-2-DLCs-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:95123A04FA4A7EE2C636D82AF8D4650DD654DDDC&dn=Autobahn+Police+Simulator+3+%28v1.4.0.r49909+%2B+2+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1056724/autobahn-police-simulator-3-v-1.4.0.r49909-dlcs-2022-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:95123a04fa4a7ee2c636d82af8d4650dd654dddc&dn=rutor.info_Autobahn+Police+Simulator+3+%5Bv+1.4.0.r49909+%2B+DLC%27s%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081022)
   - Automate It: Factory Puzzle – Supporter Bundle, v1.0.0.6 + Bonus Soundtrack | 2025-05-31 ([Source: Fitgirl](https://fitgirl-repacks.site/automate-it-factory-puzzle/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ae8f80eea21a14de#5PwKMv9pMxdEscqiuM4E8BJH2swdVJ1fNz8qZwoVFk9a)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?de7b8175e53ad329#ELCyhpEaRbtdZ5pLVgqjp6QFpf6eKWUCG324U2CascsH)
@@ -26676,6 +26701,11 @@
     - [filecrypt](https://www.filecrypt.cc/Container/EC96B16207.html)
     - [keeplinks](https://www.keeplinks.org/p16/60a9420a6b94f)
   - Gold Mining Simulator / Gold Rush The Game (2017),  5.84GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Gold_Rush_The_Game__ElAmigos_-_jpxV3uKF.html))
+    - [filecrypt](https://www.filecrypt.cc/Container/BF5706239C.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5ddd59fed4a1a)
+    - [filecrypt](https://www.filecrypt.cc/Container/DEA1721492.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5ddd5a04dc2e7)
+  - Gold Mining Simulator / Gold Rush The Game (2017),  6.00GB | 2025-10-11 ([Source: Elamigos](https://elamigos.site/data/Gold_Rush_The_Game__ElAmigos_-_jpxV3uKF.html))
     - [filecrypt](https://www.filecrypt.cc/Container/BF5706239C.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd59fed4a1a)
     - [filecrypt](https://www.filecrypt.cc/Container/DEA1721492.html)
