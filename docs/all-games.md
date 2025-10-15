@@ -24558,6 +24558,15 @@
     - [rutor](http://rutor.info/torrent/1049393/forgotten-realms-demon-stone-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:7c6888d1af24dc2f80e777b40b231f45a4ce7f09&dn=rutor.info_Forgotten+Realms%3A+Demon+Stone+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3070345)
+  - Forgotten Seas | 2025-10-15 ([Source: Fitgirl](https://fitgirl-repacks.site/forgotten-seas/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?14c1e7cdb2a5fd39#FJXPJzFwg5f3Q8y9ZsppESYCaKS1XyGL21C8w7to7uZN)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?be1dadc6bcde2267#6bvXJNkZ6U5HDGFc9wNUWsGpztZXhGXA8w7ebpA76rwu)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?af6243558e6aee77#erkMgc4jUa2mAiWa7e9HnNHdrzKxLnb8nsVbvnL5fc1)
+    - [1337x](https://1337x.to/torrent/6503107/Forgotten-Seas-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:AD4FDCE9D2E68FF47F65D6F7A3FE7647F0E7FDC0&dn=Forgotten+Seas+%28MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1057173/forgotten-seas-v-1.0-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:ad4fdce9d2e68ff47f65d6f7a3fe7647f0e7fdc0&dn=rutor.info_Forgotten+Seas+%5Bv+1.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081615)
   - Forgotton Anne | 2018-05-15 ([Source: Fitgirl](https://fitgirl-repacks.site/forgotton-anne/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?334ed4c3143b2461#BH2z3vEoUc4yWyot4dwPWD9bxgio3QRrtXvY5wNJEuFt)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?46ac2eab9e1875b7#9VewKYTBhxvMEMRVtxK2ozDrM7FwHJDNfVMXRurauQfp)
@@ -57629,6 +57638,13 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3042245)
     - **Updates**
       - [Sledders.Update.v1.1.1-RUNE.rar](https://filecrypt.cc/Container/ED18AA0508.html)
+  - Sledders – v1.1.2 | 2025-10-15 ([Source: Fitgirl](https://fitgirl-repacks.site/sledders/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f22cdd6e7400e35a#7TURwyvYNxusr14dFXuWqTpGfdYShLR5yfwKiFji8zwj)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?37b9cffb7e54dd28#FyiQ8ZRVyZgHUmp2bW4fotMEWqT9GCU4EGfdKjxzWePY)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3a5da02b28f29b07#Fwe7c4pNpAjfF67yFTkD1ofjWhy5MeVbivPR4LcbXCst)
+    - [1337x](https://1337x.to/torrent/6502847/Sledders-v1-1-2-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:208BF2EF5D82FC1F8B06623771F703B641A35336&dn=Sledders+%28v1.1.2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081549)
   - Sleeping Dogs (2012), 7.26GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Sleeping_Dogs_Game_of_the_Year_Edition_MULTi7__ElAmigos_-_vby1kccC.html))
     - [filecrypt](https://www.filecrypt.cc/Container/33F3D24DE5.html)
     - [filecrypt](https://www.filecrypt.cc/Container/71BB740936.html)
@@ -61418,6 +61434,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3065274)
   - Stronghold Crusader: Definitive Edition Free Download (v1.00) | 2025-07-17 ([Source: SteamRIP](https://steamrip.com/stronghold-crusader-definitive-edition-free-download/))
     - [gofile](https://gofile.io/d/R1tqx6)
+  - Stronghold Crusader: Definitive Edition – v2.01 + DLC | 2025-10-15 ([Source: Fitgirl](https://fitgirl-repacks.site/stronghold-crusader-definitive-edition/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0801e95eb7d05c40#ECwexPKofNPjCnGmpWwj3vngY7ssNBJnEfDoD9cNVLcV)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9b0aa3014a41574e#BWeX8W81LpYVaZeTkBZ9cmKwGryqJ54W8ckdb9CmE7Ww)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/stronghold-crusader-definitive-edition/)
+    - [1337x](https://1337x.to/torrent/6503011/Stronghold-Crusader-Definitive-Edition-v2-01-DLC-MULTi20-FitGirl-Repack-Selective-Download-from-2-3-GB/)
+    - <a href="magnet:?xt=urn:btih:0E03EB451941E2EA167461BD6CE5D9A81DF91138&dn=Stronghold+Crusader%3A+Definitive+Edition+%28v2.01+%2B+DLC%2C+MULTi20%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1045815/stronghold-crusader-definitive-edition-v-2.01-dlc-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:0e03eb451941e2ea167461bd6ce5d9a81df91138&dn=rutor.info_Stronghold+Crusader%3A+Definitive+Edition+%5Bv+2.01+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081585)
   - Stronghold Definitive Edition (2023),  3.78GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Stronghold_Definitive_Edition_MULTi17_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/424A095823.html)
     - [keeplinks](https://www.keeplinks.org/p16/654a80b2ca5ef)
@@ -64095,6 +64120,15 @@
     - **Updates**
       - [TEKKEN_8_Update_from_v2.00.01_to_v2.01.00-ElAmigos (2 parts)](https://filecrypt.cc/Container/478D073A55.html)
       - [TEKKEN.8.Update.v2.03.01.incl.DLC-RUNE (2 parts)](https://filecrypt.cc/Container/F00EB15684.html)
+  - TEKKEN 8: Ultimate Edition, v2.06.01 + 23 DLCs + Bonus Soundtrack | 2025-10-15 ([Source: Fitgirl](https://fitgirl-repacks.site/tekken-8/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?76841b359a27e75b#ESTd1u75omnsf9uDU8z1avhi2FkpczcyPS2jFDiugHyi)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f755e0852992dffe#5Cvx9DSvz9csr2YMW8Ahq7ArACvPfRn2DCXQv5zrRrz5)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/tekken-8/)
+    - [1337x](https://1337x.to/torrent/6503058/TEKKEN-8-Ultimate-Edition-v2-06-01-23-DLCs-Bonus-Soundtrack-MULTi15-FitGirl-Repack-Selective-Download-from-42-9-GB/)
+    - <a href="magnet:?xt=urn:btih:C00B6FE4C58F94D1AC1CEB7678FF5E593F9DAC70&dn=TEKKEN+8%3A+Ultimate+Edition+%28v2.06.01+%2B+23+DLCs+%2B+Bonus+Soundtrack%2C+MULTi15%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+42.9+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/966214/tekken-8-ultimate-edition-v-2.06.01-dlcs-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c00b6fe4c58f94d1ac1ceb7678ff5e593f9dac70&dn=rutor.info_Tekken+8%3A+Ultimate+Edition+%5Bv+2.06.01%2B+DLCs%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081598)
   - TeleMorpher + Windows 7 Fix | 2024-07-09 ([Source: Fitgirl](https://fitgirl-repacks.site/telemorpher/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?839cba559b30e98e#AWv5W65TtaHUkJhZPoX5njESGQ41Xkrnh777pUQ9jwP1)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?72ddfae733b2b3e9#HE2xKMzfiyBTYztTBUhJvf1dDUXjz6Qp5Li3aNW3Y9Pa)
@@ -71047,6 +71081,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde321d558c7)
   - Total War: THREE KINGDOMS Free Download (v1.5.3) | 2022-07-05 ([Source: SteamRIP](https://steamrip.com/total-war-three-kingdoms-free-download-1m/))
     - [1fichier](https://1fichier.com/?31vguq8hqgccb35midv3)
+  - Total War: Three Kingdoms Warlord Edition (2019),  24.11GB | 2025-10-15 ([Source: Elamigos](https://elamigos.site/data/Total_War_Three_Kingdoms_MULTi11__ElAmigos_-_esV4E1Qw.html))
+    - [filecrypt](https://www.filecrypt.cc/Container/C4A8099264.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5dde3216c7c85)
+    - [filecrypt](https://www.filecrypt.cc/Container/C5BEAF2C3F.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5dde321d558c7)
   - Total War: Three Kingdoms – v1.5.3 + 7 DLCs | 2020-10-17 ([Source: Fitgirl](https://fitgirl-repacks.site/total-war-three-kingdoms/))
     - [1337x](https://1337x.to/torrent/4647424/Total-War-Three-Kingdoms-v1-5-3-7-DLCs-MULTi13-FitGirl-Repack-Selective-Download-from-13-1-GB/)
     - <a href="magnet:?xt=urn:btih:FFCE668CE613E3A25D8114460453FBFECF99C9ED">Torrent</a>
