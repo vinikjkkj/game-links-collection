@@ -1607,6 +1607,15 @@
     - [rutor](http://rutor.info/torrent/886412/age-of-empires-ii-definitive-edition-v-101.103.12349.0-143421-dlcs-2019-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:04a4870df95fb48860140ca86ae17d5f115f2436&dn=rutor.info_Age+of+Empires+II%3A+Definitive+Edition+%5Bv+101.103.12349.0+%23143421+%2B+DLCs%5D+%282019%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?t=225607)
+  - Age of Empires II: Definitive Edition – v101.103.26969.0 (#158041) + 14 DLCs/Bonuses + Windows 7 Fix | 2025-10-15 ([Source: Fitgirl](https://fitgirl-repacks.site/age-of-empires-2-definitive-edition/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?60c452d6117e12a8#7JR3gz9WgMmcc6vZwzy5GveSouipg5r5JksRLf5YwtM3)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?de51239c91c86c94#3kKhLgPmt8oPpzBeoibCWkPjvq8nTKVYxqWDatEbpLcK)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c4bb795266b35109#65sqwyKUD7acw1caBf5SNY58RvcghpZsyh7QL2JUfcih)
+    - [1337x](https://1337x.to/torrent/6503111/Age-of-Empires-II-Definitive-Edition-v101-103-26969-0-158041-14-DLCs-Bonuses-Windows-7-Fix-MULTi17-FitGirl-Repack-Selective-Download-from-11-8-GB/)
+    - <a href="magnet:?xt=urn:btih:5CDE05A602F2C6E56EA8350981429483896F6D33&dn=Age+of+Empires+II%3A+Definitive+Edition+%28v101.103.26969.0+%23158041+%2B+14+DLCs%2FBonuses+%2B+Windows+7+Fix%2C+MULTi17%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+11.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/886412/age-of-empires-ii-definitive-edition-v-101.103.26969.0-158041-dlcs-2019-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:5cde05a602f2c6e56ea8350981429483896f6d33&dn=rutor.info_Age+of+Empires+II%3A+Definitive+Edition+%5Bv+101.103.26969.0+%23158041+%2B+DLCs%5D+%282019%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=2635842)
   - Age of Empires II: Definitive Free Download (v101.103.12349.0) | 2021-07-12 ([Source: SteamRIP](https://steamrip.com/age-of-empires-ii-definitive-edition-free-download-2g/))
     - [datanodes](https://datanodes.to/ul6f6u87z3ur/Age-of-Empires-2-DE-SteamRIP.com.rar)
   - Age of Empires III: Complete Collection (2005-2007), 4.77GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Age_of_Empires_III_Complete_Collection___ElAmigos_-_VzJ2SQWj.html))
@@ -12899,6 +12908,11 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?a43e341d6d1f56ff#E1MJFQeBimH3DvrLH2Wt9h3g13CqYwtVvGxbnX7T4TUH)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?95faca3a439a3db0#DYZow98K8g2UyKHe4M5s3XdDZ9tuTkAE4HXr12emqEjd)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?dd6b3d44669349c2#5g9TzbZDH6MZn21TovUXmCesBUtYgyHaBfJyuhJb7kkY)
+  - Cooking Simulator (2019),  10.01GB | 2025-10-16 ([Source: Elamigos](https://elamigos.site/data/Cooking_Simulator_MULTi11__ElAmigos_-_mkUr8USj.html))
+    - [filecrypt](https://www.filecrypt.cc/Container/3C9FAF0D72.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5ddd2fb864f02)
+    - [filecrypt](https://www.filecrypt.cc/Container/5A0814FEB6.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5ddd2fbe32b40)
   - Cooking Simulator (2019),  9.35GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Cooking_Simulator_MULTi11__ElAmigos_-_mkUr8USj.html))
     - [filecrypt](https://www.filecrypt.cc/Container/3C9FAF0D72.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd2fb864f02)
@@ -37003,6 +37017,15 @@
   - Lords of Football: Royal Edition (2013), 1.68GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Lords_of_Football_Royal_Edition__ElAmigos_-_RQEL1RS2.html))
     - [rapidgator](https://rapidgator.net/file/85789fa6c215088cb207caa8033166d2/Lo1rdsoFoo1tb5allRE-elamigos.part1.rar.html)
     - [rapidgator](https://rapidgator.net/file/6296f157ed3a46d2cda693f409491803/Lo1rdsoFoo1tb5allRE-elamigos.part2.rar.html)
+  - Lords of Ravage – v1.0-1-26 | 2025-10-16 ([Source: Fitgirl](https://fitgirl-repacks.site/lords-of-ravage/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d2ab0be1e76d1a69#ByLzSd5ZJHUccHzrpJ2gnqn4y1dv8Xr2wLxZpu1KFKR6)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bf651f33dece5022#7knJ7rp4TkjoKM5JwjXTQWB8tKg1nYb9mCBfkrZwBzB7)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?53136456f2e72a1b#5Z2DQ829dKhe64hminxQPrmuDjocg3skHs74bzH1euCE)
+    - [1337x](https://1337x.to/torrent/6503660/Lords-of-Ravage-v1-0-1-26-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:13815FF536598CA07F92E6EFD46FF7248D01FB12&dn=Lords+of+Ravage+%28v1.0-1-26%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1057274/lords-of-ravage-v-1.0-1-26-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:13815ff536598ca07f92e6efd46ff7248d01fb12&dn=rutor.info_Lords+of+Ravage+%5Bv+1.0-1-26%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081726)
   - Lords of the Fallen (2023): Deluxe Edition – v1.6.49 + 6 DLCs/Bonuses + Multiplayer | 2024-12-03 ([Source: Fitgirl](https://fitgirl-repacks.site/lords-of-the-fallen-2023/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f481c4ee3a1c61a0#DckifQEq8WKgYB5jWhgm1ME3vbUewxEKidVSbk7N87zP)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?61e52b51e55a30ad#8Tn3GJZQ7HpZzSQQu3F3DqGSovDXAoC5za91qt95jhsu)
@@ -66352,6 +66375,13 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=3034708)
   - The Greatest Penguin Heist of All Time Free Download (Build 16082024 + Co-op) | 2021-07-28 ([Source: SteamRIP](https://steamrip.com/the-greatest-penguin-heist-of-all-time-free-download-p4/))
     - [megadb](https://megadb.net/l3738b75wv3w)
+  - The Gretlow Tapes | 2025-10-16 ([Source: Fitgirl](https://fitgirl-repacks.site/the-gretlow-tapes/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4a95fe5de0fa7cf1#26RVKfAHabZYmak4WPKRW4ygiqXRUmU6XLyGXCawh1NV)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d04cdfebad364359#DuHk113tGb2DZU1jEobLoQe3SuGqtLa43rWsuP8V2krr)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?22947aabf8459401#APTpn9CykB87ukyBrRWriqPF6F9iNhXUkFEfAv4Urs1r)
+    - [1337x](https://1337x.to/torrent/6503720/The-Gretlow-Tapes-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:F887A83717DB7B1329EECFEBA5D599B66FD0FDB6&dn=The+Gretlow+Tapes+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3081762)
   - The Grinch: Christmas Adventures | 2023-10-20 ([Source: Fitgirl](https://fitgirl-repacks.site/the-grinch-christmas-adventures/))
     - [1337x](https://1337x.to/torrent/5854293/The-Grinch-Christmas-Adventures-MULTi15-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:17F62AAD6203F00919B3A48BBD65D4944229ED71&dn=The+Grinch%3A+Christmas+Adventures+%28MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -71086,6 +71116,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde3216c7c85)
     - [filecrypt](https://www.filecrypt.cc/Container/C5BEAF2C3F.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde321d558c7)
+  - Total War: Three Kingdoms – Collection, v1.7.1 Build 17847.0 + 10 DLCs | 2025-10-16 ([Source: Fitgirl](https://fitgirl-repacks.site/total-war-three-kingdoms/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e71725e3fedb114f#GgfGoqQM3bjTdxLwNo6tWfJJqzyyBXrNTDNPaoLYQ91v)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3c1c7876a038b351#EerUam6dzwAQUZFABEs9rnAFTnEjUzPfDLBzUijacMa)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/total-war-three-kingdoms/)
+    - [1337x](https://1337x.to/torrent/6503700/Total-War-Three-Kingdoms-Collection-v1-7-1-Build-17847-0-10-DLCs-MULTi13-FitGirl-Repack-Selective-Download-from-15-7-GB/)
+    - <a href="magnet:?xt=urn:btih:7B00FE73C832730C5BC719F94361A79EB7E24B00&dn=Total+War%3A+Three+Kingdoms+-+Collection+%28v1.7.1+Build+17847.0+%2B+10+DLCs%2C+MULTi13%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+15.7+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/780236/total-war-three-kingdoms-collection-v-1.7.1-build-17847.0-dlcs-2019-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:7b00fe73c832730c5bc719f94361a79eb7e24b00&dn=rutor.info_Total+War%3A+Three+Kingdoms+-+Collection+%5Bv+1.7.1+Build+17847.0+%2B+DLCs%5D+%282019%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?t=221721)
   - Total War: Three Kingdoms – v1.5.3 + 7 DLCs | 2020-10-17 ([Source: Fitgirl](https://fitgirl-repacks.site/total-war-three-kingdoms/))
     - [1337x](https://1337x.to/torrent/4647424/Total-War-Three-Kingdoms-v1-5-3-7-DLCs-MULTi13-FitGirl-Repack-Selective-Download-from-13-1-GB/)
     - <a href="magnet:?xt=urn:btih:FFCE668CE613E3A25D8114460453FBFECF99C9ED">Torrent</a>
