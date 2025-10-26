@@ -1,5 +1,28 @@
 # Latest Games
 
+- LEGO Horizon Adventures Deluxe Edition (2024),  12.93GB | 2025-10-26 ([Source: Elamigos](https://elamigos.site/data/LEGO_Horizon_Adventures_Deluxe_Edition_MULTi25_-_ElAmigos.html))
+  - [filecrypt](https://www.filecrypt.cc/Container/A117132C0E.html)
+  - [keeplinks](https://www.keeplinks.org/p16/67367835ed960)
+  - [filecrypt](https://www.filecrypt.cc/Container/6774084B85.html)
+  - [keeplinks](https://www.keeplinks.org/p16/6736782d086d5)
+- Onirism – v1.0 (Release) | 2025-10-26 ([Source: Fitgirl](https://fitgirl-repacks.site/onirism/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?32ff092fca21e289#3s6d9Mk4XVJfWAVNrQYyuvhngdKbX6F5rAucJ4Pic3eq)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9bb4fa5cddf5de52#9sSw11XtRGr5HWDBzn4XPirAqGTMeVvqzuF1Zq58MWsU)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/onirism/)
+  - [1337x](https://1337x.to/torrent/6512366/Onirism-v1-0-Release-MULTi8-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:D0A4B5C789A9B1D7897600D04D2056BFDE2B2C86&dn=Onirism+%28v1.0%2FRelease%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1058454/onirism-v-1.0-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:d0a4b5c789a9b1d7897600d04d2056bfde2b2c86&dn=rutor.info_Onirism+%5Bv+1.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3083550)
+- Becastled Free Download (v1.0) | 2025-10-26 ([Source: SteamRIP](https://steamrip.com/becastled-free-download-f2/))
+  - [megadb](https://megadb.net/3fdhorjkja5m)
+- Once Upon A KATAMARI: King of All Sounds Edition – v1.0.2 + 3 DLCs | 2025-10-25 ([Source: Fitgirl](https://fitgirl-repacks.site/once-upon-a-katamari/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b61fa2fbf6603914#3BTpVUkZ1Fj7LKeUEzAKSa1caS2YYD5xVRESeHMBUVTo)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a9057efe8ac78240#DmAEwFiQJmM5KEw9UxGa3ufcAA5Bx5L6PMGM3z6ULYy5)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?21013067fc14fa7f#6tKSKUvBSohVbMg4qx8cN8u1hx26Nw7uiZ2ZUQMGPHrG)
+  - [1337x](https://1337x.to/torrent/6512363/Once-Upon-A-KATAMARI-King-of-All-Sounds-Edition-v1-0-2-3-DLCs-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:E408FCEFB45C9B912BDE3F2BE00309E1AA7FC95A&dn=Once+Upon+A+KATAMARI%3A+King+of+All+Sounds+Edition+%28v1.0.2+%2B+3+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3083545)
 - GODBREAKERS: Juice Edition + 2 DLCs + Multiplayer | 2025-10-25 ([Source: Fitgirl](https://fitgirl-repacks.site/godbreakers/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?19aea5465ef6d3a4#F49k9HexARuhFJuSvdEmQwGFdGyzn8fEff8iPjge4ULn)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?77c31591e5e3500b#953KiNcVvpbQzAgoNvbHHBF57qq4cWWGmNHmuUg9Rx2u)
@@ -158,23 +181,3 @@
   - [gofile](https://gofile.io/d/b6uSTW)
 - PowerWash Simulator 2 Free Download (v1.1.0) | 2025-10-23 ([Source: SteamRIP](https://steamrip.com/powerwash-simulator-2-free-download/))
   - [gofile](https://gofile.io/d/sLscMh)
-- Shining Resonance Refrain – v1.00.1618 (Proper Crack) | 2025-10-23 ([Source: Fitgirl](https://fitgirl-repacks.site/shining-resonance-refrain/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3fd0138deb40f780#AVpGuDq1qBSjNwR7DD6fYsEcpr4KA8cyC3RNHBePvueP)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d7f44639ff8cb060#9r6LRZLSpTeuz6qetb1qNgKnaRKPwoWhYkQoeEgBHfmN)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/shining-resonance-refrain/)
-  - [1337x](https://1337x.to/torrent/6509987/Shining-Resonance-Refrain-v1-00-1618-MULTi5-FitGirl-Repack-Selective-Download-from-6-GB/)
-  - <a href="magnet:?xt=urn:btih:C9AED7E47B8143D31E0E89B73C85FCD97380B459&dn=Shining+Resonance+Refrain+%28v1.00.1618%2C+MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+6+GB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3083052)
-- NINJA GAIDEN 4: Deluxe Edition – v1.0.1.0 + 2 DLCs | 2025-10-23 ([Source: Fitgirl](https://fitgirl-repacks.site/ninja-gaiden-4/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?983d6a1008dd9d8c#7QdpxC69ehmruLkuvPEoW9HajMhtnKZbjbkZPUqo3ScN)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4cdb472bf749799d#2TVcZ9aG7cVJJkmzbGoWGmKxAbPFC9FSj8LT31ZuijRZ)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f55a65804e7d60a4#4PKMi4Wa8vNs2ZCkKpD5YbYzKmncvuYennAjinHy7jaB)
-  - [1337x](https://1337x.to/torrent/6509558/NINJA-GAIDEN-4-Deluxe-Edition-v1-0-1-0-2-DLCs-MULTi12-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:CE1A7C820C7D7A98E5196BE7049CCCAC94061A49&dn=NINJA+GAIDEN+4%3A+Deluxe+Edition+%28v1.0.1.0+%2B+2+DLCs%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1058072/ninja-gaiden-4-deluxe-edition-v-1.0.1.0-dlcs-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:ce1a7c820c7d7a98e5196be7049cccac94061a49&dn=rutor.info_Ninja+Gaiden+4+-+Deluxe+Edition+%5Bv+1.0.1.0+%2B+DLC%27s%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?t=281097)
-- Dispatch Free Download (v1.0.14955) | 2025-10-23 ([Source: SteamRIP](https://steamrip.com/dispatch-free-download/))
-  - [gofile](https://gofile.io/d/wHp8xj)
-- Dispatch Free Download (v1.0.14864) | 2025-10-23 ([Source: SteamRIP](https://steamrip.com/dispatch-free-download/))
-  - [gofile](https://gofile.io/d/etL2Bi)
