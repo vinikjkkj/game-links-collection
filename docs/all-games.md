@@ -109,6 +109,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?7bfa1e4e7e391e7d#ECH1g5FWGrwDGSdsjLwuasktraudML1nCiY1TVHC6h3U)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?11ba5e88de3a3660#HmnBmAXcpwArdCgyjdTSXMf45ma1cw3hVs6fSGZn6NUy)
     - [gamesdrive](https://gamesdrive.co/index.php?/topic/611-1917-the-prologue/&tab=comments#comment-1070)
+  - 1998: The Toll Keeper Story – Inflation Edition, v1.0.4f5 + Bonus Content | 2025-11-09 ([Source: Fitgirl](https://fitgirl-repacks.site/1998-the-toll-keeper-story/))
+    - [datanodes](https://datanodes.to/bfkhf7cysieb/1998_The_Toll_Keeper_Story_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/i0ch7blcyjg7#1998_The_Toll_Keeper_Story_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/3d359bf0a3fcd0c2e40fce7e56ed6dbd/1998_The_Toll_Keeper_Story_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6523465/1998-The-Toll-Keeper-Story-Inflation-Edition-v1-0-4f5-Bonus-Content-MULTi4-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:F05375CF42E1155D43DD1A338DF03999D060DBBA&dn=1998%3A+The+Toll+Keeper+Story+-+Inflation+Edition+%28v1.0.4f5+%2B+Bonus+Content%2C+MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3086334)
 
 - Initial: 2
   - 20 Minutes Till Dawn Free Download (v1.0.2) | 2023-06-08 ([Source: SteamRIP](https://steamrip.com/20-minutes-till-dawn-free-download-n1/))
@@ -7979,6 +7986,8 @@
     - [gofile](https://gofile.io/d/3xHz1w)
   - BlazBlue Entropy Effect Free Download (v1.0.7.123249) | 2024-01-31 ([Source: SteamRIP](https://steamrip.com/blazblue-entropy-effect-free-download-b1/))
     - [gofile](https://gofile.io/d/sKCrri)
+  - BlazBlue Entropy Effect Free Download (v1.0.7.127247.0) | 2024-01-31 ([Source: SteamRIP](https://steamrip.com/blazblue-entropy-effect-free-download-b1/))
+    - [gofile](https://gofile.io/d/DSWEEV)
   - BlazBlue Entropy Effect: Collection, v1.0.3.105542 + 5 DLCs/Bonuses | 2025-01-21 ([Source: Fitgirl](https://fitgirl-repacks.site/blazblue-entropy-effect/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b2bc5216497cacf2#BEiuNMdbj5Bb7MXnzpGnna3A746Z8zhfgQbYuRoKQjj)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d300a4ffff3473d7#5XCC4w2JA5nCLpeB4vYzKU4eNxAAi5TD1sD8V3zFuQiE)
@@ -20353,6 +20362,13 @@
     - [1337x](https://1337x.to/torrent/6227336/EARTH-DEFENSE-FORCE-WORLD-BROTHERS-2-DLC-Bundle-20-DLCs-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:AB8FD3D471DB4D664A5EDAC2BEFD97E3B81CBADB&dn=EARTH+DEFENSE+FORCE%3A+WORLD+BROTHERS+2+-+DLC+Bundle+%28%2B+20+DLCs%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3000735)
+  - Earth vs Mars – v001.000.4207100 | 2025-11-09 ([Source: Fitgirl](https://fitgirl-repacks.site/earth-vs-mars/))
+    - [datanodes](https://datanodes.to/mwjvyanq8pz4/Earth_vs_Mars_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/3sawb8gk9g3p#Earth_vs_Mars_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/f47fa8119c6915499caad98cff2c05e4/Earth_vs_Mars_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6522924/Earth-vs-Mars-v001-000-4207100-MULTi5-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A6CAA80EBF3971381B5CF64B8D86DA0B5C8C7C0D&dn=Earth+vs+Mars+%28v001.000.4207100%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3086230)
   - Earthfall (2018), 6.70GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Earthfall_MULTi10__ElAmigos_-_9ccq4EtQ.html))
     - [filecrypt](https://www.filecrypt.cc/Container/6407658B59.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd4320ecc73)
@@ -20726,6 +20742,8 @@
     - [rutor](http://rutor.info/torrent/780005/efootball-pes-2021-v-1.01.00-vse-kommentatory-2020-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:7afff2753baefe27fab3c3bbff78db0ef9db4845&dn=rutor.info_eFootball+PES+2021+%5Bv+1.01.00+%2B+%D0%92%D1%81%D0%B5+%D0%BA%D0%BE%D0%BC%D0%BC%D0%B5%D0%BD%D1%82%D0%B0%D1%82%D0%BE%D1%80%D1%8B%5D+%282020%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2722632)
+  - Egging On Free Download (v0.1.8671) | 2025-11-09 ([Source: SteamRIP](https://steamrip.com/egging-on-free-download/))
+    - [megadb](https://megadb.net/73m368ryu2ow)
   - Eisenwald: Blood of November | 2016-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/eisenwald-blood-november/))
     - [extratorrent](http://extratorrent.cc/torrent/5267906/)
     - <a href="magnet:?xt=urn:btih:efb34622e00b4b3cef937f2f46db2cf4df43abe5">Torrent</a>
@@ -24150,6 +24168,8 @@
     - [rutor](http://rutor.info/torrent/668214/fifa-19-2018-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:f8dfe9dee0a67da407cf320b943be86633e40ce8&dn=rutor.info_FIFA+19+%282018%29+PC+%7C+Repack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2548962)
+  - FIFA 20 Free Download (v1.0.66.8249) | 2025-11-09 ([Source: SteamRIP](https://steamrip.com/fifa-20-free-download/))
+    - [gofile](https://gofile.io/d/ZrML6w)
   - FIFA 20 – v1.0.66.8249 | 2025-11-08 ([Source: Fitgirl](https://fitgirl-repacks.site/fifa-20/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d317614af60d52f3#2BDc3WfDu5DpUTXJKR56iD4GUP8WjZuuRs5MMuWrtUkg)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fbf18558d9d14f44#3HLx6dtBy3TSKppTc6mJymrEpg49qcHLJLgDjSJkc1eT)
@@ -34130,6 +34150,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/682df546a31d7)
     - [filecrypt](https://filecrypt.cc/Container/484F94A463.html)
     - [keeplinks](https://www.keeplinks.org/p16/682df53d828f2)
+  - JDM Japanese Drift Master (2025),  13.49GB | 2025-11-09 ([Source: Elamigos](https://elamigos.site/data/JDM_Japanese_Drift_Master_MULTi15_-_ElAmigos.html))
+    - [filecrypt](https://filecrypt.cc/Container/BBFE1C6CC3.html)
+    - [keeplinks](https://www.keeplinks.org/p16/682df546a31d7)
+    - [filecrypt](https://filecrypt.cc/Container/484F94A463.html)
+    - [keeplinks](https://www.keeplinks.org/p16/682df53d828f2)
   - JDM: Japanese Drift Master Free Download (v1.1.79.1) | 2025-05-21 ([Source: SteamRIP](https://steamrip.com/jdm-japanese-drift-master-free-download/))
     - [buzzheavier](https://buzzheavier.com/vnaqrku8ri4m)
   - JDM: Japanese Drift Master Free Download (v1.2.43.1) | 2025-05-21 ([Source: SteamRIP](https://steamrip.com/jdm-japanese-drift-master-free-download/))
@@ -36907,6 +36932,8 @@
       - [Legendary.Hoplite.Update.v1.4.7-TENOKE (2 parts)](https://filecrypt.cc/Container/75843C997E.html)
       - [Legendary.Hoplite.Update.v20240314-TENOKE.rar](https://filecrypt.cc/Container/F8569AF2E7.html)
       - [Legendary.Hoplite.Update.v1.9.9-TENOKE.rar](https://filecrypt.cc/Container/CE196E6082.html)
+  - Legends of Dragaea: Idle Dungeons Free Download (v1.0.3) | 2025-11-09 ([Source: SteamRIP](https://steamrip.com/legends-of-dragaea-idle-dungeons-free-download/))
+    - [megadb](https://megadb.net/yv7zl2jt8jzn)
   - Legends of Eisenwald Knights Edition (2015), 0.74GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Legends_of_Eisenwald_Knights_Edition__ElAmigos_-_uWESwujc.html))
     - [filecrypt](https://www.filecrypt.cc/Container/6C584482B7.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd69af0690f)
@@ -62760,6 +62787,8 @@
     - [gofile](https://gofile.io/d/3JiShT)
   - Stellaris Ultimate Bundle Free Download (v4.1.6) | 2024-10-17 ([Source: SteamRIP](https://steamrip.com/stellaris-free-download-s2/))
     - [gofile](https://gofile.io/d/EtPBAW)
+  - Stellaris Ultimate Bundle Free Download (v4.1.7) | 2024-10-17 ([Source: SteamRIP](https://steamrip.com/stellaris-free-download-s2/))
+    - [gofile](https://gofile.io/d/kCr4mv)
   - Stellaris: Ultimate Bundle, v4.0.1 (1ae3) + 41 DLCs/Bonuses | 2025-05-05 ([Source: Fitgirl](https://fitgirl-repacks.site/stellaris-galaxy-edition/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fcdaaa711c6da6da#Gaz7rr5a1UKhUwiuproQdE9Kg4r9KEWwxcsEZRnNWgHt)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8f8eb13a9a43a720#3L4JJBjMsLgJxUPX2VM8Bnrufc7WHyFX2JRhM5kqd3Lm)
@@ -67176,6 +67205,15 @@
     - [rutor](http://rutor.info/torrent/975113/the-beast-inside-v-1.05-2019-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:d8314fd45ce65dc4313a82be3f24a54718d12338&dn=rutor.info_The+Beast+Inside+%5Bv+1.05%5D+%282019%29+PC+%7C+Repack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f4471f83d17a94b5#G2xjFKJaZHbn5pG9tsqifo3cQtT2QNVBQPis4kgQqyY7)
+  - The Bench – v1.0.107 | 2025-11-09 ([Source: Fitgirl](https://fitgirl-repacks.site/the-bench/))
+    - [datanodes](https://datanodes.to/830oo1vsa60j/The_Bench_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/sm50sy4vwnxl#The_Bench_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/854083fb6ff1c567de823f66d42398f4/The_Bench_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6523385/The-Bench-v1-0-107-MULTi13-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:12CB9A5D463A6BF21CA20143254270883E2A8525&dn=The+Bench+%28v1.0.107%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1060120/the-bench-v-1.0.107-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:12cb9a5d463a6bf21ca20143254270883e2a8525&dn=rutor.info_The+Bench+%5Bv+1.0.107%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3086296)
   - The Binding of Isaac: Rebirth (2014),  1.76GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/The_Binding_of_Isaac_Rebirth__ElAmigos_-_rgXtYrQK.html))
     - [filecrypt](https://www.filecrypt.cc/Container/6C253772C5.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde344122455)
@@ -77246,6 +77284,15 @@
     - [gofile](https://gofile.io/d/J0Xkcr)
   - Voidtrain Free Download (v11661) | 2021-08-15 ([Source: SteamRIP](https://steamrip.com/voidtrain-free-download-2l/))
   
+  - Voidtrain – v1.0 (Release) + Supporter Upgrade DLC | 2025-11-08 ([Source: Fitgirl](https://fitgirl-repacks.site/voidtrain/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b9b015166a029bcd#3SSL98iWZQ7MqjUr5nSvjtyZWXXAzc39ucmU7grMkuqP)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?12ecc6d3f1033e83#7NnZWEArGNSWf27HnQmPAxn3zcD8zh6KGeC6mTyvDtwP)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?93b0f26c4a146991#H6Md8ks6M95JawWGdfKh63HWMGxWmDDusn53LEFR12Vt)
+    - [1337x](https://1337x.to/torrent/6522911/Voidtrain-v1-0-Release-Supporter-Upgrade-DLC-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:51B3FDBB08EBAF04D388FE436681A9069E70A02F&dn=Voidtrain+%28v1.0%2FRelease+%2B+Supporter+Upgrade+DLC%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1060050/voidtrain-v-1.0-dlc-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:51b3fdbb08ebaf04d388fe436681a9069e70a02f&dn=rutor.info_Voidtrain+%5Bv+1.0+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3086224)
   - Voidwrought Free Download (v0.27.56) | 2024-10-31 ([Source: SteamRIP](https://steamrip.com/voidwrought-free-download/))
     - [megadb](https://megadb.net/6ywfmo2zp91s)
   - Volcano Princess Free Download (v2.02.01) | 2023-07-04 ([Source: SteamRIP](https://steamrip.com/volcano-princess-free-download-1m/))
@@ -77837,6 +77884,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/68485de415585)
     - [filecrypt](https://filecrypt.cc/Container/2735A15965.html)
     - [keeplinks](https://www.keeplinks.org/p16/68485ddba0abe)
+    - [filecrypt](https://filecrypt.cc/Container/2F375E3278.html)
+    - [keeplinks](https://www.keeplinks.org/p16/68485de415585)
+    - [filecrypt](https://filecrypt.cc/Container/2735A15965.html)
+    - [keeplinks](https://www.keeplinks.org/p16/68485ddba0abe)
+  - Warhammer 40000 Space Marine Master Crafted Edition (2025),  7.40GB | 2025-11-09 ([Source: Elamigos](https://elamigos.site/data/Warhammer_40000_Space_Marine_Master_Crafted_Edition_MULTi8_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/2F375E3278.html)
     - [keeplinks](https://www.keeplinks.org/p16/68485de415585)
     - [filecrypt](https://filecrypt.cc/Container/2735A15965.html)
