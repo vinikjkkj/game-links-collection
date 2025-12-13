@@ -1,5 +1,32 @@
 # Latest Games
 
+- Barotrauma (2023),  1.29GB | 2025-12-13 ([Source: Elamigos](https://elamigos.site/data/Barotrauma_MULTi13_-_ElAmigos.html))
+  - [filecrypt](https://www.filecrypt.cc/Container/FDD882659F.html)
+  - [keeplinks](https://www.keeplinks.org/p16/640f8716a1bd4)
+  - [filecrypt](https://www.filecrypt.cc/Container/5F81B4E697.html)
+  - [keeplinks](https://www.keeplinks.org/p16/640f870ae0219)
+- Minecraft: Bedrock Edition – v1.21.130 | 2025-12-13 ([Source: Fitgirl](https://fitgirl-repacks.site/minecraft-bedrock-edition/))
+  - [datanodes](https://datanodes.to/hw8l4ncbzmbh/Minecraft_Bedrock_Edition_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/2lteke9v8nre#Minecraft_Bedrock_Edition_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/ae7db12fb80ac29e5ff9c90af7e99e04/Minecraft_Bedrock_Edition_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6546339/Minecraft-Bedrock-Edition-v1-21-130-MULTi27-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:2B4BB99FF82B5B3EA51827E90A27B3309DD6328C&dn=Minecraft%3A+Bedrock+Edition+%28v1.21.130%2C+MULTi27%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1064659/minecraft-bedrock-edition-v-1.21.130-2017-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:2b4bb99ff82b5b3ea51827e90a27b3309dd6328c&dn=rutor.info_Minecraft%3A+Bedrock+Edition+%5Bv+1.21.130%5D+%282017%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3092453)
+- RuneQuest: Warlords – v1.0.0 | 2025-12-13 ([Source: Fitgirl](https://fitgirl-repacks.site/runequest-warlords/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b10e1e70630e1eac#BLrYfvA1LHwFvsof4G6wGLeVZq9ULT5w22McesGeZaPd)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?03e3e1d5659b6fbc#HPuQwGXBQJrjHuHiBwrchNDtXpKdtvXVeM2YpK5ZARJ3)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?672c0b5f4b229a29#YH8hHB7NYBEjTBDgzXWN292E7rvsA3gVoHmrK6e7CcS)
+  - [1337x](https://1337x.to/torrent/6545816/RuneQuest-Warlords-v1-0-0-MULTi8-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:049C37CE0F9FA7A9C6512B4CFE3C8CC175F3DAA3&dn=RuneQuest%3A+Warlords+%28v1.0.0%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1064538/runequest-warlords-v-1.0.0-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:049c37ce0f9fa7a9c6512b4cfe3c8cc175f3daa3&dn=rutor.info_RuneQuest%3A+Warlords+%5Bv+1.0.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3092319)
+- This Ain’t Even Poker, Ya Joker Free Download | 2025-12-12 ([Source: SteamRIP](https://steamrip.com/this-aint-even-poker-ya-joker-free-download/))
+  - [megadb](https://megadb.net/44vr57x33evn)
+- Terminator 2D: NO FATE Free Download | 2025-12-12 ([Source: SteamRIP](https://steamrip.com/terminator-2d-no-fate-free-download/))
+  - [gofile](https://gofile.io/d/kufpQO)
 - Yakuza Kiwami 2 (2019/2025),  25.32GB | 2025-12-12 ([Source: Elamigos](https://elamigos.site/data/Yakuza_Kiwami_2_MULTi2__ElAmigos_-_47YXdzbQ.html))
   - [filecrypt](https://www.filecrypt.cc/Container/C705E0B26C.html)
   - [keeplinks](https://www.keeplinks.org/p16/5dde4b70c3b01)
@@ -165,20 +192,3 @@
   - [1337x](https://1337x.to/torrent/6544381/The-Monster-Breeder-v1-07-MULTi9-FitGirl-Repack/)
   - <a href="magnet:?xt=urn:btih:BCC8D8D188C02D6809DFF7341F0B85EEE63C58CD&dn=The+Monster+Breeder+%28v1.07%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3091906)
-- Tiny Bunny + Bonus OST | 2025-12-10 ([Source: Fitgirl](https://fitgirl-repacks.site/tiny-bunny/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f95e0eda6bc53354#2f171j6PNv2ASvPVcq1nFLQrvWWNbLpsbpskLhBfK6bG)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?24e1acd84d16a22f#8kKSn4tjbWkUMcYuCwqvvVMqv8TTr3Yyvt1jLANNLiPy)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?34ed78d9831a1d17#u8vN1RJzaKteHP73MMU1uF3XtZw6KmgbieQLmciJ4sy)
-  - [1337x](https://1337x.to/torrent/6544239/Tiny-Bunny-Bonus-OST-MULTi6-FitGirl-Repack-Selective-Download-from-3-9-GB/)
-  - <a href="magnet:?xt=urn:btih:A69911B4A5793A0670A8A489F97BD59C62F12F4A&dn=Tiny+Bunny+%28%2B+Bonus+OST%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.9+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1064255/zajchik_tiny-bunny-v-1.0-dlc-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:a69911b4a5793a0670a8a489f97bd59c62f12f4a&dn=rutor.info_%D0%97%D0%B0%D0%B9%D1%87%D0%B8%D0%BA+%2F+Tiny+Bunny+%5Bv+1.0+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3091891)
-- Death Howl Free Download | 2025-12-10 ([Source: SteamRIP](https://steamrip.com/death-howl-free-download/))
-  - [gofile](https://gofile.io/d/qLbwiU)
-- Ultimate Sheep Raccoon Free Download (v1.0.266 + Co-op) | 2025-12-10 ([Source: SteamRIP](https://steamrip.com/ultimate-sheep-raccoon-free-download/))
-  - [megadb](https://megadb.net/98q55ext89kr)
-- Bits & Bops Free Download | 2025-12-10 ([Source: SteamRIP](https://steamrip.com/bits-bops-free-download/))
-  - [megadb](https://megadb.net/uwlra8vspqwf)
-- Storm Lancers Free Download | 2025-12-10 ([Source: SteamRIP](https://steamrip.com/storm-lancers-free-download/))
-  - [megadb](https://megadb.net/avd5z2gbexe9)
