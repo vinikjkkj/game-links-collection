@@ -16911,6 +16911,15 @@
     - [rutor](http://rutor.info/torrent/1036916/deck-of-haunts-v-1.01-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:8767bb32f2c34d1e4ea586d177b5c509287ae5f1&dn=rutor.info_Deck+of+Haunts+%5Bv+1.01%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3051903)
+  - Deck of Haunts – v1.21 | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/deck-of-haunts/))
+    - [datanodes](https://datanodes.to/c1g8je1amwvd/Deck_of_Haunts_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/ishp9fyk0gwz#Deck_of_Haunts_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/4ebfaf0010dd172675c403adc315b88d/Deck_of_Haunts_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6548296/Deck-of-Haunts-v1-21-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:CB10A255AD0CC96A373D78E01CAD9365F1C5F44E&dn=Deck+of+Haunts+%28v1.21%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065088/deck-of-haunts-v-1.21-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:cb10a255ad0cc96a373d78e01cad9365f1c5f44e&dn=rutor.info_Deck+of+Haunts+%5Bv+1.21%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3092970)
   - Decktamer Free Download (v1.0.24) | 2025-10-31 ([Source: SteamRIP](https://steamrip.com/decktamer-free-download/))
     - [megadb](https://megadb.net/nvh2y8rucqxv)
   - Decktamer – v1.0.21 | 2025-11-01 ([Source: Fitgirl](https://fitgirl-repacks.site/decktamer/))
@@ -34828,6 +34837,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=2982422)
     - **Updates**
       - [Isles.of.Sea.and.Sky.Update.v20241004-TENOKE.rar](https://filecrypt.cc/Container/239010CFC3.html)
+  - Isles of Sea and Sky: Game and Soundtrack Bundle – v2.5d + Bonus OST | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/isles-of-sea-and-sky/))
+    - [datanodes](https://datanodes.to/51mkzekpipcn/Isles_of_Sea_and_Sky_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/x9jhumbxmxy5#Isles_of_Sea_and_Sky_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/9341cc75ea4b8d651fc4da96dca2b032/Isles_of_Sea_and_Sky_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6548755/Isles-of-Sea-and-Sky-Game-and-Soundtrack-Bundle-v2-5d-Bonus-OST-MULTi15-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6482A92CB3343D7440161DA2FF1ACD9B2844BFC8&dn=Isles+of+Sea+and+Sky%3A+Game+and+Soundtrack+Bundle+%28v2.5d+%2B+Bonus+OST%2C+MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065175/isles-of-sea-and-sky-game-and-soundtrack-bundle-v-2.5d-dlc-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:6482a92cb3343d7440161da2ff1acd9b2844bfc8&dn=rutor.info_Isles+of+Sea+and+Sky%3A+Game+and+Soundtrack+Bundle+%5Bv+2.5d+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093059)
   - Islets Free Download (Build 8/3/2022) | 2022-08-26 ([Source: SteamRIP](https://steamrip.com/islets-free-download-z1/))
     - [megadb](https://megadb.net/92ermh09pyps)
   - Islets – Build 8/3/2022 | 2022-08-25 ([Source: Fitgirl](https://fitgirl-repacks.site/islets/))
@@ -46856,6 +46874,15 @@
     - [rutor](http://rutor.info/torrent/1047780/ninja-gaiden-ragebound-soundtrack-edition-v-cs36158-dlc-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:081ab5cc852a9f8cc70f38d80cd866a05f546aa2&dn=rutor.info_Ninja+Gaiden%3A+Ragebound+-+Soundtrack+Edition+%5Bv+CS36158+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3067587)
+  - NINJA GAIDEN: Ragebound – Soundtrack Edition, vCS37895 + Bonus OST | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/ninja-gaiden-ragebound/))
+    - [datanodes](https://datanodes.to/9niyim6kmi7o/NINJA_GAIDEN_Ragebound_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/3jg4ur63cpt6#NINJA_GAIDEN_Ragebound_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/3049fabc83599f448126b004c098a868/NINJA_GAIDEN_Ragebound_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6548319/NINJA-GAIDEN-Ragebound-Soundtrack-Edition-vCS37895-Bonus-OST-MULTi13-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6BCB6CBF1FCE3F437E1BB07C7CC92DE89ADF17DC&dn=NINJA+GAIDEN%3A+Ragebound+-+Soundtrack+Edition+%28vCS37895+%2B+Bonus+OST%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065089/ninja-gaiden-ragebound-soundtrack-edition-v-cs37895-dlc-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:6bcb6cbf1fce3f437e1bb07c7cc92de89adf17dc&dn=rutor.info_Ninja+Gaiden%3A+Ragebound+-+Soundtrack+Edition+%5Bv+CS37895+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3092975)
   - NINJA KIDZ: TIME MASTERS | 2023-10-16 ([Source: Fitgirl](https://fitgirl-repacks.site/ninja-kidz-time-masters/))
     - [1337x](https://1337x.to/torrent/5848989/NINJA-KIDZ-TIME-MASTERS-ENG-ESP-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:3992B88606F80012D587748038907058FD476641&dn=NINJA+KIDZ%3A+TIME+MASTERS+%28ENG%2FESP%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -49391,6 +49418,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/65d72e1c0d035)
   - Pacific Drive Free Download (v1.11.0) | 2024-02-22 ([Source: SteamRIP](https://steamrip.com/pacific-dgdjo7-drive-free-download-p1/))
     - [gofile](https://gofile.io/d/HozM6m)
+  - Pacific Drive Free Download (v1.14.0) | 2024-02-22 ([Source: SteamRIP](https://steamrip.com/pacific-dgdjo7-drive-free-download-p1/))
+    - [gofile](https://gofile.io/d/rFwn7d)
   - Pacific Drive Free Download (v1.9.4) | 2024-02-22 ([Source: SteamRIP](https://steamrip.com/pacific-dgdjo7-drive-free-download-p1/))
     - [gofile](https://gofile.io/d/n87Zr9)
   - Pacific Drive: Deluxe Edition – v1.9.3-CL30287 + 5 DLCs/Bonuses | 2025-05-27 ([Source: Fitgirl](https://fitgirl-repacks.site/pacific-drive/))
@@ -50211,6 +50240,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?524ed186771e570a#GZZtGCgLwTQxzQeRCoqo4gkbg9CTiba2Jj9qAwqUwx2x)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?9de192d5feae385a#5TVbHCToZasv8XYJQpkzv3M1og1iL2jHi4dubKLA43eN)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?dd3d492a1fb39666#EAn971Me8N2JUbtKBoSoFfGWY8Y195dzXgCHPWHgwNxq)
+  - Pawn Planet – v1.0 | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/pawn-planet/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?022df62540e51767#FRy98M2g67P5VfKcYuYVLHr3T4ttaZBaXidfizucMrSZ)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?31dda35717260d77#F7xKrNvU9dsW3hVyc1ioiwvSJXiAfjWU69JqUZHCyaDg)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f4d17ced5f626e31#4Mxcy5G26DWetFoTS2Z2T5wnVhvb8eDDsEfPcJ7Ar6ZU)
+    - [1337x](https://1337x.to/torrent/6548849/Pawn-Planet-v1-0-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:B4F3E334BD76CC18DB9BED2AC0CF5619F130EFE9&dn=Pawn+Planet+%28v1.0%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065183/pawn-planet-v-1.0-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:b4f3e334bd76cc18db9bed2ac0cf5619f130efe9&dn=rutor.info_Pawn+Planet+%5Bv+1.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093071)
   - Pawn Simulator – v1.0.2 | 2024-08-13 ([Source: Fitgirl](https://fitgirl-repacks.site/pawn-simulator-v1-0-2/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?22f3b0dfe459c9cc#EoUh6cmx9N1WUuV11VfyUyVReGg21TxAceL1pQxpJP9e)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a894093c43b30ed6#9SCGWVGNfG2WVoQChrWQnLpETK3cAZwHb7ZKR7Svh2J6)
@@ -50802,6 +50840,11 @@
     - [gofile](https://gofile.io/d/J3wjp8)
   - Phasmophobia Free Download (v0.15.0.2 + Co-op) | 2021-05-29 ([Source: SteamRIP](https://steamrip.com/phasmophobia-free-download-2d/))
     - [buzzheavier](https://buzzheavier.com/69shi1qq3g0c)
+  - Phoenix Point Complete Edition (2019),  13.38GB | 2025-12-17 ([Source: Elamigos](https://elamigos.site/data/Phoenix_Point_MULTi8__ElAmigos_-_7T8qUADs.html))
+    - [filecrypt](https://www.filecrypt.cc/Container/630B0A42F0.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5de6c76f83536)
+    - [filecrypt](https://www.filecrypt.cc/Container/FED23AFF76.html)
+    - [keeplinks](https://www.keeplinks.org/p16/5de6c76079c0c)
   - Phoenix Point Ultra Edition (2019),  13.57GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Phoenix_Point_MULTi8__ElAmigos_-_7T8qUADs.html))
     - [filecrypt](https://www.filecrypt.cc/Container/630B0A42F0.html)
     - [keeplinks](https://www.keeplinks.org/p16/5de6c76f83536)
@@ -58136,6 +58179,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?e8cd0c92e297442a#6PoycEJHVvx5EPNTR8qF3RV7NFXj1hmdgotL1qS5HAa1)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?18646ca8d1376991#4e8GqsLtyk7aLeB12e2LtECjduXyYD3uVkT3yWRDnF74)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?0cfeabafcb041eda#5e9ge7jDsQPioEuPtWAAwSYv2tQrZJ2K56VTMmGaEd4r)
+  - SANABI – v1.3.51 + A Haunted Day DLC + Bonus OST | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/sanabi/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?491ed44a4cc810e3#Dsu57S2SZadvV2Kf4MzFnz74D847u96ZvVh59CowDJpV)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2fa9aa9c9a8a4ee0#3AguQBFYhLHiSacZgYDLRcQuWyCWQ2i7jG3P4W6D5MCY)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9a7f50d7b2d7d476#2G7rWCBGqSE6K2MGQjfTUrWi8Eb5qYeRFqZwNC4uMM2G)
+    - [1337x](https://1337x.to/torrent/6548886/SANABI-v1-3-51-A-Haunted-Day-DLC-Bonus-OST-MULTi11-FitGirl-Repack-Selective-Download-from-1-2-GB/)
+    - <a href="magnet:?xt=urn:btih:C9D34019200E5DB2A21E7C1BFFFBC8E5C82AC56C&dn=SANABI+%28v1.3.51+%2B+A+Haunted+Day+DLC+%2B+Bonus+OST%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065192/sanabi-v-1.3.51-dlcs-2023-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c9d34019200e5db2a21e7c1bfffbc8e5c82ac56c&dn=rutor.info_SANABI+%5Bv+1.3.51+%2B+DLC%27s%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093085)
   - Sanatorium: A Mental Asylum Simulator – v0.99 + Bonus OST | 2025-11-13 ([Source: Fitgirl](https://fitgirl-repacks.site/sanatorium-a-mental-asylum-simulator/))
     - [datanodes](https://datanodes.to/s9ho7rp8bvs1/Sanatorium_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/tt2lu615dmc6#Sanatorium_--_fitgirl-repacks.site_--_.rar)
@@ -61492,6 +61544,8 @@
     - [rutor](http://rutor.info/torrent/1001011/snap-snap-dlcs-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:e8ddf3aa63dfa64017a0874fcdf1a088977837da&dn=rutor.info_SNAP+SNAP+%5B%2B+DLCs%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2997259)
+  - Sneak Thief Free Download (Build 9024013) | 2025-12-17 ([Source: SteamRIP](https://steamrip.com/sneak-thief-free-download/))
+    - [gofile](https://gofile.io/d/GXLYOB)
   - Snezhinka: Sentinel Girls 2, v1.2.1 + Bonus Content | 2024-10-19 ([Source: Fitgirl](https://fitgirl-repacks.site/snezhinka-sentinel-girls-2/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7520a8910ecddefb#7h16Kz5yqEKWMttzZe2nuzUroXcYv6SHANbPMbqayTJv)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?120b2a4df6f06a2f#8QE69JQL52PA4RDeKgVcxmokoPbBQJNSg4EP6wQoSGMJ)
@@ -61690,6 +61744,15 @@
     - <a href="magnet:?xt=urn:btih:B4738C79C5CD0E1B94244606B2B0DC46070C4986&dn=Snow+Plowing+Simulator+%28v2506161915%2FRelease%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [rutor](http://rutor.info/torrent/1042332/snow-plowing-simulator-v-2506161915-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:b4738c79c5cd0e1b94244606b2b0dc46070c4986&dn=rutor.info_Snow+Plowing+Simulator+%5Bv+2506161915%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3060586)
+  - Snow Plowing Simulator: Ski Resort Edition – v2511261103 + DLC | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/snow-plowing-simulator/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ad9202d1fa2859db#4epypLvwtHpfQdWgRNW9TS1MzntroYui3mse2gTGWE22)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fb2307b6501e1f4b#4vRFYzvTpboiT1GqjeyFAcbKofic2cvG4DFSkQxyf2s2)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/snow-plowing-simulator/)
+    - [1337x](https://1337x.to/torrent/6549032/Snow-Plowing-Simulator-Ski-Resort-Edition-v2511261103-DLC-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:24125A98E802DF005F464F78424583579D9EEA82&dn=Snow+Plowing+Simulator%3A+Ski+Resort+Edition+%28v2511261103+%2B+DLC%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065203/snow-plowing-simulator-ski-resort-edition-v-2511261103-dlc-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:24125a98e802df005f464f78424583579d9eea82&dn=rutor.info_Snow+Plowing+Simulator%3A+Ski+Resort+Edition+%5Bv+2511261103+%2B+DLC%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3060586)
   - SNOW The Ultimate Edition (2020), 6.10GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/SNOW_The_Ultimate_Edition__ElAmigos_-_fBJu1iXU.html))
     - [filecrypt](https://www.filecrypt.cc/Container/6D56B5FA80.html)
@@ -64673,6 +64736,13 @@
     - [megadb](https://megadb.net/zcb6m9ysjo52)
   - Storm Lancers Free Download | 2025-12-10 ([Source: SteamRIP](https://steamrip.com/storm-lancers-free-download/))
     - [megadb](https://megadb.net/avd5z2gbexe9)
+  - Storm Lancers – v1.1.0.16 | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/storm-lancers/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?81279fb68e42adae#DVFtmtfpYtnatZf7QMP66UQX3nX6C3SKW9FVxpeo6XKz)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cbbb52b4509ede02#AXXw7LtE9AXaMX1sGqSnHPn6GKUkt8wRz5q7tiLqQm4w)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7bc499f920a118ea#D4WdfBJnqGGDKuzk41erbxNRbaz436Afijeup1TPGhXV)
+    - [1337x](https://1337x.to/torrent/6548302/Storm-Lancers-v1-1-0-16-MULTi6-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:95394D4D0741A0015FA3A5052EC3D18FD95307C4&dn=Storm+Lancers+%28v1.1.0.16%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3092973)
   - Stormland VR (2019),  8.60GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Stormland_VR_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/E79F1C695A.html)
     - [keeplinks](https://www.keeplinks.org/p16/644e67a94617d)
@@ -77491,6 +77561,13 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=2969511)
   - UNBEATABLE Free Download | 2025-12-09 ([Source: SteamRIP](https://steamrip.com/unbeatable-free-download/))
     - [gofile](https://gofile.io/d/v2VUV9)
+  - UNBEATABLE: Breakout Edition – v1.5.5 + DLC | 2025-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/unbeatable/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f69cc53760e36761#A98AiWTj5dYjUGL9AyDGhbdrwNCWkzCwxBubGrH5oKFP)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?65949d9c87d3a848#8dCrXTSFrbrsxGpBk9NAwmpvrFy76HejkTNtBqJ5oHou)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/unbeatable/)
+    - [1337x](https://1337x.to/torrent/6549023/UNBEATABLE-Breakout-Edition-v1-5-5-DLC-FitGirl-Repack-Selective-Download-from-9-GB/)
+    - <a href="magnet:?xt=urn:btih:955DF920E59FD1960A50B8465CA9162DBB6469E3&dn=UNBEATABLE%3A+Breakout+Edition+%28v1.5.5+%2B+DLC%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+9+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093115)
   - Unblock – v1.0.1 | 2025-05-09 ([Source: Fitgirl](https://fitgirl-repacks.site/unblock/))
     - [datanodes](https://datanodes.to/4gdb2tid8336/Unblock_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/fa85ftzhfapc#Unblock_--_fitgirl-repacks.site_--_.rar)
@@ -77893,6 +77970,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde443987be8)
     - [filecrypt](https://www.filecrypt.cc/Container/6E47001E4B.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde443ec442d)
+  - Unity of Command II Free Download (Build 21099579) | 2022-07-17 ([Source: SteamRIP](https://steamrip.com/unity-of-command-ii-free-download-o1/))
+    - [megadb](https://megadb.net/uv29bq76xrsy)
   - Unity of Command II Free Download (Build 9107189) | 2022-07-17 ([Source: SteamRIP](https://steamrip.com/unity-of-command-ii-free-download-o1/))
     - [megadb](https://megadb.net/kewmjuis6ro1)
   - Unity of Command II, Build 21099579 + 12 DLCs/Bonuses + Windows 7 Fix | 2025-12-15 ([Source: Fitgirl](https://fitgirl-repacks.site/unity-of-command-2/))
