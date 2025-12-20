@@ -12507,6 +12507,15 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=2553703)
     - [paste2](https://paste2.org/pULjBO56)
     - [upera](https://public.upera.co/f/b53mosg3)
+  - City Transport Simulator: Bus + Tram Special Bundle, v1.4.0 + 13 DLCs | 2025-12-20 ([Source: Fitgirl](https://fitgirl-repacks.site/city-transport-simulator/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8941864179edf2e3#3xcq4Fi35iNWcQCSZJC7vcf2uaVY7nULkaGD3XHeD1wf)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fcb688cb2d16b511#wzuKNCrHsm6kqrZrwjh6Tttn7YbKopsSsLTrBWBoCwo)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/city-transport-simulator/)
+    - [1337x](https://1337x.to/torrent/6550706/City-Transport-Simulator-Bus-Tram-Special-Bundle-v1-4-0-13-DLCs-MULTi9-FitGirl-Repack-Selective-Download-from-11-2-GB/)
+    - <a href="magnet:?xt=urn:btih:96D5AD39BB08587F8080084AB160B8BE35E79743&dn=City+Transport+Simulator%3A+Bus+%2B+Tram+Special+Bundle+%28v1.4.0+%2B+13+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+11.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065535/city-transport-simulator-bus-tram-special-bundle-v-1.4.0-dlcs-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:96d5ad39bb08587f8080084ab160b8be35e79743&dn=rutor.info_City+Transport+Simulator%3A+Bus+%2B+Tram+Special+Bundle+%5Bv+1.4.0+%2B+DLCs%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093613)
   - CityDriver Free Download (v25.06.26.43749) | 2025-07-03 ([Source: SteamRIP](https://steamrip.com/citydriver-free-download/))
     - [gofile](https://gofile.io/d/c7ztVN)
   - CityDriver: Deluxe-Bundle, v25.06.26.43749 + 10 DLCs | 2025-07-02 ([Source: Fitgirl](https://fitgirl-repacks.site/citydriver/))
@@ -13638,6 +13647,15 @@
     - [rutor](https://rutor.info/torrent/1059378/contractville-v-1.5-dlcs-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:d94a13be4c01da1bbe7caa4a8968c83424813a0d&dn=rutor.info_ContractVille+%5Bv+1.5+%2B+DLC%27s%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3085105)
+  - ContractVille – v1.7 + 3 DLCs | 2025-12-20 ([Source: Fitgirl](https://fitgirl-repacks.site/contractville/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0b3e1daf5e95653a#CrtE11fRdJ8KjkrPkcNGCFFKyBejcCB3FymLpNq2wrwz)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a9ea3fa5ae5226e1#BSkJE9d6mq8cdKucq2Zrj5HVPxSrGS8EK4VQTatxpAaB)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/contractville/)
+    - [1337x](https://1337x.to/torrent/6550719/ContractVille-v1-7-3-DLCs-MULTi17-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:D45FB741A7A6E716B27861D19E0218213E06B923&dn=ContractVille+%28v1.7+%2B+3+DLCs%2C+MULTi17%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1065536/contractville-v-1.7-dlcs-2025-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:d45fb741a7a6e716b27861d19e0218213e06b923&dn=rutor.info_ContractVille+%5Bv+1.7+%2B+DLC%27s%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093617)
   - Contrast: Collector’s Edition (2013), 1.50GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Contrast_Collectors_Edition__ElAmigos_-_jwYZeu5C.html))
     - [filecrypt](https://www.filecrypt.cc/Container/3759E2AFCF.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd300c7bec0)
@@ -38887,6 +38905,13 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3068317)
   - Light Up The Town Free Download | 2025-12-11 ([Source: SteamRIP](https://steamrip.com/light-up-the-town-free-download/))
     - [gofile](https://gofile.io/d/jacQmM)
+  - Light Up The Town – v1.0.2 | 2025-12-20 ([Source: Fitgirl](https://fitgirl-repacks.site/light-up-the-town/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?333b51a1fe20be42#6vw7Zu3328kJ7GBCeGHB81QQLJ8qoKp2EC4V3a8rcLS8)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?730fdc81da1b4282#AMWJC4P2PZp8GBTHVydfRpsCD3xEHTbrRh6yTnJ4E4ju)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/light-up-the-town/)
+    - [1337x](https://1337x.to/torrent/6550876/Light-Up-The-Town-v1-0-2-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:83310188462068122F5F9FD7301FA58CFC1C38BA&dn=Light+Up+The+Town+%28v1.0.2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093629)
   - Lightmatter (2020), 0.72GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Lightmatter_MULTi10__ElAmigos_-_kJcF4q4i.html))
     - [filecrypt](https://www.filecrypt.cc/Container/AB2E26C6A7.html)
     - [keeplinks](https://www.keeplinks.org/p16/5e21c3ee634ae)
@@ -62250,6 +62275,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/67377772cb4bc)
     - [filecrypt](https://www.filecrypt.cc/Container/3FE0728890.html)
     - [keeplinks](https://www.keeplinks.org/p16/6737776a67704)
+  - Songs of Silence: Complete Edition, v1.6.0-d.9224 + 10 DLCs/Bonuses | 2025-12-20 ([Source: Fitgirl](https://fitgirl-repacks.site/songs-of-silence/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?053faabf5f0bf746#5FLPSiGAVJmXMGfrNz2Zg7ZaDZAnnDmfogaJFt1DKZVS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8981e55b6bdac5df#CXMkn96Aahn39RyMpMUdZkJ8NHbcNYz35b4cSNC46xCY)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/songs-of-silence/)
+    - [1337x](https://1337x.to/torrent/6550962/Songs-of-Silence-Complete-Edition-v1-6-0-d-9224-10-DLCs-Bonuses-MULTi14-FitGirl-Repack-Selective-Download-from-4-2-GB/)
+    - <a href="magnet:?xt=urn:btih:5516D74BB78218D735499FE87E96EC4F8DC2AC61&dn=Songs+of+Silence%3A+Complete+Edition+%28v1.6.0-d.9224+%2B+10+DLCs%2FBonuses%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1025742/songs-of-silence-complete-edition-v-1.6.0-d.9224-dlcs-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:5516d74bb78218d735499fe87e96ec4f8dc2ac61&dn=rutor.info_Songs+of+Silence%3A+Complete+Edition+%5Bv+1.6.0-d.9224+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3093669)
   - Songs of Silence: Deluxe Edition, v1.2.0-d.8104 + 3 DLCs/Bonuses | 2025-02-21 ([Source: Fitgirl](https://fitgirl-repacks.site/songs-of-silence/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ba28e9f4da02623f#5HitjXUfzAgtko1ZT9474h6ZFWovbVSjkJzjWbGJsyuM)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ae80b2e1b127dc5d#DJB65S3pUfFgT1bws77cmjMa3sRxBxq5F8ZFHEpJNzQa)
