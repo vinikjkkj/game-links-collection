@@ -1,5 +1,7 @@
 # Latest Games
 
+- Ogu and the Secret Forest Free Download (v1.3a) | 2025-12-25 ([Source: SteamRIP](https://steamrip.com/ogu-and-the-secret-forest-free-download/))
+  - [megadb](https://megadb.net/xmid1i7xo891)
 - Dragon Ball Sparking ZERO Ultimate Edition (2024),  25.43GB | 2025-12-24 ([Source: Elamigos](https://elamigos.site/data/Dragon_Ball_Sparking_ZERO_Ultimate_Edition_MULTi16_-_ElAmigos.html))
   - [filecrypt](https://www.filecrypt.cc/Container/C33C10A64B.html)
   - [keeplinks](https://www.keeplinks.org/p16/6704676684d2c)
@@ -178,12 +180,3 @@
   - [rutor](https://rutor.info/torrent/1065535/city-transport-simulator-bus-tram-special-bundle-v-1.4.0-dlcs-2025-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:96d5ad39bb08587f8080084ab160b8be35e79743&dn=rutor.info_City+Transport+Simulator%3A+Bus+%2B+Tram+Special+Bundle+%5Bv+1.4.0+%2B+DLCs%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3093613)
-- Star Trucker: Deluxe Bundle – v1.0.72.2 + 5 DLCs/Bonuses | 2025-12-20 ([Source: Fitgirl](https://fitgirl-repacks.site/star-trucker/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?da3806c7d9de1a6b#6hXXXdtznNK2qPbgYLYYkwf7LYkYnJeowzTYVbqxvf2x)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fa562bd62cadd38c#FVWZ416n1Dhft2rGAYWRPMRm3WksATHntvqWfrbyPXeu)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?985925a48fb79c03#2Wz8jSNGcNmnqdVA3pZsqEsiyuFz5wqeBiYcMTRFtJDC)
-  - [1337x](https://1337x.to/torrent/6550520/Star-Trucker-Deluxe-Bundle-v1-0-72-2-5-DLCs-Bonuses-MULTi10-FitGirl-Repack-Selective-Download-from-3-1-GB/)
-  - <a href="magnet:?xt=urn:btih:A98B7D9FFF22BC80454CDDC043A61BAD7B9F7B46&dn=Star+Trucker%3A+Deluxe+Bundle+%28v1.0.72.2+%2B+5+DLCs%2FBonuses%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.1+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1043760/star-trucker-deluxe-bundle-v-1.0.72.2-dlcs-2024-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:a98b7d9fff22bc80454cddc043a61bad7b9f7b46&dn=rutor.info_Star+Trucker%3A+Deluxe+Bundle+%5Bv+1.0.72.2+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3093589)
