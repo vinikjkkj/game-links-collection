@@ -1,5 +1,14 @@
 # Latest Games
 
+- Ogu and the Secret Forest: Deluxe Edition – v1.3a + 2 DLCs/Bonuses | 2026-01-01 ([Source: Fitgirl](https://fitgirl-repacks.site/ogu-and-the-secret-forest/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a30e4c35669c5dba#GFFR6HwozRFvg8MwRVJjg1UgomW13mqzCtE7vnUkfNhk)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c1b5df178179e790#7gPWpVE58oiaZjeubncnm69BZfEJ3KgPrgeKxzsGdsrt)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?34942f6ad19775ab#99azDs4dxQkQ5PfQdaDoWJd1nfhTAEF4WLAUseaftbqC)
+  - [1337x](https://1337x.to/torrent/6558035/Ogu-and-the-Secret-Forest-Deluxe-Edition-v1-3a-2-DLCs-Bonuses-MULTi12-FitGirl-Repack-Selective-Download-from-1-2-GB/)
+  - <a href="magnet:?xt=urn:btih:D110C8C962746A9AB92C334DC0FA65561F4224CC&dn=Ogu+and+the+Secret+Forest%3A+Deluxe+Edition+%28v1.3a+%2B+2+DLCs%2FBonuses%2C+MULTi12%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1067106/ogu-and-the-secret-forest-deluxe-edition-v-1.3a-dlcs-2024-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:d110c8c962746a9ab92c334dc0fa65561f4224cc&dn=rutor.info_Ogu+and+the+Secret+Forest%3A+Deluxe+Edition+%5Bv+1.3a+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=2989179)
 - Grand Theft Auto V Enhanced – Build 1013.20/Online 1.72 | 2025-12-31 ([Source: Fitgirl](https://fitgirl-repacks.site/gta-5-enhanced/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1af105f5b7a1a91a#7ZuLu453NMAsbF8ub3vdHuULGdzx7Em7vweXSLqv5Afg)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bda51762a456ca44#2tHxLeeuwVXzYVQShM7EQkanYh3rwk2eANEABL1s9xHr)
@@ -192,10 +201,3 @@
   - [rutor](https://rutor.info/torrent/1040631/wrap-house-simulator-v-1.10-2025-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:74916d845c6bb517fb50e31e9ffae293729f5656&dn=rutor.info_Wrap+House+Simulator+%5Bv+1.10%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3095003)
-- Taxi Chaos 2 | 2025-12-27 ([Source: Fitgirl](https://fitgirl-repacks.site/taxi-chaos-2/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5f3089b3ee94954d#HicsuRhLcevB8kmc8CDUY1ARVyGbTRgDCnxx5Vz13d6j)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?58ba821cec2848db#BxuueFGVr2mfugF4vv7uXCkXgEZQ6k9SsRWiq4Lok4bH)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/taxi-chaos-2/)
-  - [1337x](https://1337x.to/torrent/6555151/Taxi-Chaos-2-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:CA964F87E7F75BE5206D416939846F9C3DB149BE&dn=Taxi+Chaos+2+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3094998)

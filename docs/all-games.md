@@ -13862,6 +13862,10 @@
   - Cooking Simulator Free Download (v7.0.5) | 2021-08-25 ([Source: SteamRIP](https://steamrip.com/cooking-simulator-free-download-7m/))
     - [gofile](https://gofile.io/d/WqZ4Ib)
     - [megadb](https://megadb.net/8r0qmec3x6cu)
+  - Cooking Simulator Free Download (v7.0.6) | 2021-08-25 ([Source: SteamRIP](https://steamrip.com/cooking-simulator-free-download-7m/))
+    - [gofile](https://gofile.io/d/0fzo4Q)
+    - [buzzheavier](https://buzzheavier.com/y0tzwc37gngp)
+    - [vikingfile](https://vikingfile.com/f/Vq5gyiXi3n)
   - Cooking Simulator VR (2021),  3.22GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Cooking_Simulator_VR_MULTi12_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/DF0AC0E89F.html)
     - [keeplinks](https://www.keeplinks.org/p16/64301209753fa)
@@ -48271,6 +48275,15 @@
     - **Updates**
       - [Ogu.and.the.Secret.Forest.Update.v1.2-TENOKE.rar](https://filecrypt.cc/Container/2F38C549E6.html)
       - [Ogu.and.the.Secret.Forest.Update.v1.2.1-TENOKE.rar](https://filecrypt.cc/Container/F322D71A55.html)
+  - Ogu and the Secret Forest: Deluxe Edition – v1.3a + 2 DLCs/Bonuses | 2026-01-01 ([Source: Fitgirl](https://fitgirl-repacks.site/ogu-and-the-secret-forest/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a30e4c35669c5dba#GFFR6HwozRFvg8MwRVJjg1UgomW13mqzCtE7vnUkfNhk)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c1b5df178179e790#7gPWpVE58oiaZjeubncnm69BZfEJ3KgPrgeKxzsGdsrt)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?34942f6ad19775ab#99azDs4dxQkQ5PfQdaDoWJd1nfhTAEF4WLAUseaftbqC)
+    - [1337x](https://1337x.to/torrent/6558035/Ogu-and-the-Secret-Forest-Deluxe-Edition-v1-3a-2-DLCs-Bonuses-MULTi12-FitGirl-Repack-Selective-Download-from-1-2-GB/)
+    - <a href="magnet:?xt=urn:btih:D110C8C962746A9AB92C334DC0FA65561F4224CC&dn=Ogu+and+the+Secret+Forest%3A+Deluxe+Edition+%28v1.3a+%2B+2+DLCs%2FBonuses%2C+MULTi12%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1067106/ogu-and-the-secret-forest-deluxe-edition-v-1.3a-dlcs-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:d110c8c962746a9ab92c334dc0fa65561f4224cc&dn=rutor.info_Ogu+and+the+Secret+Forest%3A+Deluxe+Edition+%5Bv+1.3a+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=2989179)
   - Oh Deer Free Download (v3.0.0) | 2024-07-05 ([Source: SteamRIP](https://steamrip.com/oh-deer-free-download/))
     - [gofile](https://gofile.io/d/IO2AzD)
   - OHV Free Download (Build 17381023) | 2024-12-21 ([Source: SteamRIP](https://steamrip.com/ohv-free-download/))
