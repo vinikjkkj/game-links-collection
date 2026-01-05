@@ -1,5 +1,21 @@
 # Latest Games
 
+- Tomba! Special Edition – Build 19099803 | 2026-01-05 ([Source: Fitgirl](https://fitgirl-repacks.site/tomba-special-edition/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?54ea78f32ea3b82d#3qPSsN15NHboy7wRf3UTwLoANWHrwRXXrU3GKVvkmZeW)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7759f9b14d377cfc#9vSZ6ByNkCN7kM22zLRp49A44rTQ8K6mxkpcjnTiT6WW)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5c4175c757ba84a3#B4d1NaVtWhYtCMzvE6Tuwn5ETE89eHcEwm6yzadod7H5)
+  - [1337x](https://1337x.to/torrent/6560142/Tomba-Special-Edition-Build-19099803-MULTi7-FitGirl-Repack-Selective-Download-from-1-5-GB/)
+  - <a href="magnet:?xt=urn:btih:6CE3E2E2D6CD3C55A73B270DA23BCC3E9E036EE0&dn=Tomba%21+Special+Edition+%28Build+19099803%2C+MULTi7%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.5+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3096672)
+- Prison Simulator – v1.4.3.29 + 4 DLCs/Bonuses | 2026-01-05 ([Source: Fitgirl](https://fitgirl-repacks.site/prison-simulator/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b4210c4c240c5bfc#3A1mQDi53BdWE4y1cb6vS6U732FU9z73dkRNyVnpTkdV)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?78891ec47e98048f#GwMPGrnAR56GTJXKrwtWFzhfkoWzjojQ4CL74ZBhZKMo)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6d096484b6e0c472#F2aiMHQrD7efZ8sVu6VUeR3cY7hhFW9AL1qqmH2J3oEA)
+  - [1337x](https://1337x.to/torrent/6560058/Prison-Simulator-v1-4-3-29-4-DLCs-Bonuses-MULTi18-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:9D1205DD61305970B55B38C21D545CB071CB8482&dn=Prison+Simulator+%28v1.4.3.29+%2B+4+DLCs%2FBonuses%2C+MULTi18%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/844342/prison-simulator-v-1.4.3.29-dlcs-2021-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:9d1205dd61305970b55b38c21d545cb071cb8482&dn=rutor.info_Prison+Simulator+%5Bv+1.4.3.29+%2B+DLC%27s%5D+%282021%29+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3096649)
 - FINAL FANTASY XIII Free Download (Build 463513) | 2026-01-04 ([Source: SteamRIP](https://steamrip.com/final-fantasy-xiii-free-download/))
   - [gofile](https://gofile.io/d/DwiyAD)
   - [vikingfile](https://vikingfile.com/f/GyBs2Rxjj4)
@@ -157,8 +173,3 @@
   - [buzzheavier](https://buzzheavier.com/4d5r75sw7sl5)
 - Hello Neighbor: Hide and Seek Free Download | 2025-12-30 ([Source: SteamRIP](https://steamrip.com/hello-neighbor-hide-and-seek-free-download/))
   - [buzzheavier](https://buzzheavier.com/r8t0vcfsimao)
-- Dishonored: Death of the Outsider Free Download (Build 17712087) | 2025-12-30 ([Source: SteamRIP](https://steamrip.com/dishonored-death-of-the-outsider-free-download/))
-  - [gofile](https://gofile.io/d/X3XqWG)
-  - [buzzheavier](https://buzzheavier.com/4aw3rmmhpixk)
-- Darkwood Free Download (Build 13092424) | 2025-12-30 ([Source: SteamRIP](https://steamrip.com/darkwood-free-download/))
-  - [buzzheavier](https://buzzheavier.com/3qz77x672y4u)
