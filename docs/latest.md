@@ -1,5 +1,19 @@
 # Latest Games
 
+- Fantasy Life i The Girl Who Steals Time Deluxe Edition (2025),  9.81GB | 2026-01-08 ([Source: Elamigos](https://elamigos.site/data/Fantasy_Life_i_The_Girl_Who_Steals_Time_Deluxe_Edition_MULTi9_-_ElAmigos.html))
+  - [filecrypt](https://filecrypt.cc/Container/C8BB22EDD7.html)
+  - [keeplinks](https://www.keeplinks.org/p16/682b37fac7247)
+  - [filecrypt](https://filecrypt.cc/Container/CE8628A079.html)
+  - [keeplinks](https://www.keeplinks.org/p16/682b37f1a7c42)
+- Gotham Knights: Deluxe Edition – v6.0.21.0 + 11 DLCs + Bonus Soundtrack | 2026-01-08 ([Source: Fitgirl](https://fitgirl-repacks.site/gotham-knights/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e51add0f93a11a70#8EpGYaQgqjn3e67p9k4D3D6ysdVXWgGTfS2GT9B33sxu)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7bcc51369b0505f1#CaP4W4EXjEWUHUtFxeESNMMZgottPdtAN4swkSHpCPSv)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ad7c08f134f17b72#FAvvvk6RThFYiNsKxx23CugiSjhJM3sAmt5QGHLsXRHc)
+  - [1337x](https://1337x.to/torrent/6561716/Gotham-Knights-Deluxe-Edition-v6-0-21-0-11-DLCs-Bonus-Soundtrack-MULTi14-FitGirl-Repack-Selective-Download-from-29-3-GB/)
+  - <a href="magnet:?xt=urn:btih:1C8A566D09504CDCC47DD2D4F09B22F098542DCA&dn=Gotham+Knights%3A+Deluxe+Edition+%28v6.0.21.0+%2B+11+DLCs+%2B+Bonus+Soundtrack%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+29.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1067846/gotham-knights-deluxe-edition-v-6.0.21.0-dlcs-2022-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:1c8a566d09504cdcc47dd2d4f09b22f098542dca&dn=rutor.info_Gotham+Knights%3A+Deluxe+Edition+%5Bv+6.0.21.0+%2B+DLC%27s%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?t=255670)
 - Duck Game Free Download (Build 8782838) | 2026-01-07 ([Source: SteamRIP](https://steamrip.com/duck-game-free-download/))
   - [buzzheavier](https://buzzheavier.com/lytvv3n7an22)
 - Crysis 3 Remastered Free Download (vRC2 82938) | 2026-01-07 ([Source: SteamRIP](https://steamrip.com/crysis-3-remastered-free-download/))
@@ -144,15 +158,3 @@
   - [rutor](https://rutor.info/torrent/1067325/call-of-duty-black-ops-cold-war-v-1.34.1.15931218-dlcs-2020-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:3811bd1e97ced25c97cd7f2972ca96bbf7104a74&dn=rutor.info_Call+of+Duty%3A+Black+Ops+-+Cold+War+%5Bv+1.34.1.15931218+%2B+DLC%27s%5D+%282020%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3096214)
-- Leaf Blower Co. – v2025_NL_Dec_17 | 2026-01-03 ([Source: Fitgirl](https://fitgirl-repacks.site/leaf-blower-co/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0e21c049fada2cfd#8FLxsA4La9YGLJib2XGhSAnjwftrRj4AK9yHb2kBXQ1N)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7f7f1f1e7d663887#CBcDvCnfDQXRzEfEEYWqUTnVHta2bjY4AZpSLiNvFwiq)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/leaf-blower-co/)
-  - [1337x](https://1337x.to/torrent/6559005/Leaf-Blower-Co-v2025_NL_Dec_17-MULTi9-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:6874511EADAC7EC854C1F45432A7DCB0A1CB4662&dn=Leaf+Blower+Co.+%28v2025_NL_Dec_17%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1067304/leaf-blower-co-v-2025-nl-dec-17-2025-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:6874511eadac7ec854c1f45432a7dcb0a1cb4662&dn=rutor.info&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3096193)
-- The Séance of Blake Manor Free Download (Build 21194802) | 2026-01-03 ([Source: SteamRIP](https://steamrip.com/the-seance-of-blake-manor-free-download/))
-  - [megadb](https://megadb.net/ammeeogq3frx)
-  - [buzzheavier](https://buzzheavier.com/inw3o2x35ses)
