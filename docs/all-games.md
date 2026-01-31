@@ -11133,6 +11133,11 @@
     - [keeplinks](https://www.keeplinks.org/p16/683a21d20a9dd)
     - [filecrypt](https://filecrypt.cc/Container/781D354511.html)
     - [keeplinks](https://www.keeplinks.org/p16/683a21cad0c5b)
+  - Car Dealer Simulator (2025),  16.64GB | 2026-01-31 ([Source: Elamigos](https://elamigos.site/data/Car_Dealer_Simulator_MULTi18_-_ElAmigos.html))
+    - [filecrypt](https://filecrypt.cc/Container/CD847FED54.html)
+    - [keeplinks](https://www.keeplinks.org/p16/683a21d20a9dd)
+    - [filecrypt](https://filecrypt.cc/Container/781D354511.html)
+    - [keeplinks](https://www.keeplinks.org/p16/683a21cad0c5b)
   - Car Dealer Simulator Free Download (Build 18721835) | 2025-05-31 ([Source: SteamRIP](https://steamrip.com/car-dealer-simulator-free-download/))
     - [gofile](https://gofile.io/d/6JT3Ip)
   - Car Dealer Simulator Free Download (Build 21365683) | 2025-05-31 ([Source: SteamRIP](https://steamrip.com/car-dealer-simulator-free-download/))
@@ -12993,6 +12998,15 @@
     - **Updates**
       - [Classified.France.44.Update.v1.03.incl.DLC-RUNE](https://filecrypt.cc/Container/18E16FEFC4.html)
       - [Classified.France.44.Devils.DLC-RUNE.rar](https://filecrypt.cc/Container/3B7D78F70C.html)
+  - Cleaning Simulator – v1.0.7 | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/cleaning-simulator/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7f2276554d4d85b3#5ib8RVqxZnxyQYtupZM1h3XPpqNaUovGMTMRShxZ33qA)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?71a4ee92df4958e7#5KsKitQshTXtP7Hco4bW5tuGSSAYcPcJyRCsiN5anTrV)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?066c6cc71d0a0512#GL22MKeh3n3qKxA42MGmMVtrcVFbsefzJZDK1nY5GezM)
+    - [1337x](https://1337x.to/torrent/6576209/Cleaning-Simulator-v1-0-7-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:02374492F068C80F2950C264B9E8809D59628BF3&dn=Cleaning+Simulator+%28v1.0.7%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1070888/cleaning-simulator-v-1.0.7-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:02374492f068c80f2950c264b9e8809d59628bf3&dn=rutor.info_Cleaning+Simulator+%5Bv+1.0.7%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3100569)
   - CLeM | 2024-02-08 ([Source: Fitgirl](https://fitgirl-repacks.site/clem/))
     - [1337x](https://1337x.to/torrent/5984424/CLeM-MULTi11-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:A06153B172F347D60865776BE918711F124BE3D5&dn=CLeM+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -21228,6 +21242,13 @@
     - [1337x](https://1337x.to/torrent/6538000/Duskpunk-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:AEE4B4C7A958A33331BDE3BA7897DA0FB64FF948&dn=Duskpunk+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3090217)
+  - Dust & Courage: Jake Bolton’s Journey | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/dust-and-courage-jake-boltons-journey/))
+    - [datanodes](https://datanodes.to/ox8hpzonewjb/Dust_and_Courage_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/gsdwaz1xgmcx#Dust_and_Courage_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/a850894f81a3cb45dbc403698c783cee/Dust_and_Courage_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6576234/Dust-Courage-Jake-Bolton-s-Journey-MULTi3-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A33363E9F80CB66A1A8552CABFCA907280500AC3&dn=Dust+%26amp%3B+Courage%3A+Jake+Bolton%26%23039%3Bs+Journey+%28MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3100575)
   - Dust & Neon Free Download | 2023-02-21 ([Source: SteamRIP](https://steamrip.com/dust-neon-free-download-1q/))
     - [megadb](https://megadb.net/hep2opojz01t)
   - Dust Fleet – v6.0 (The Sector Assault Update) | 2025-01-13 ([Source: Fitgirl](https://fitgirl-repacks.site/dust-fleet/))
@@ -31430,6 +31451,9 @@
     - [vikingfile](https://vikingfile.com/f/ARIyXEay3F)
   - HALF DEAD 2 Free Download (v1.01) | 2021-07-28 ([Source: SteamRIP](https://steamrip.com/half-dead-2-free-download-1j/))
     - [megadb](https://megadb.net/d/3o)
+  - Half Sword Free Download (Build 21722011) | 2026-01-31 ([Source: SteamRIP](https://steamrip.com/half-sword-free-download/))
+    - [vikingfile](https://vikingfile.com/f/eeg9Cfb1fo)
+    - [buzzheavier](https://buzzheavier.com/zmgp0lgqp89y)
   - HALF-BAKED GIRLS | 2024-11-03 ([Source: Fitgirl](https://fitgirl-repacks.site/half-baked-girls/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2527f71300f63ab6#FfrEBvHfom3ABhipeVbdRCtbVhAvHT7gfL4MsvtpK2Bf)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?036b1b2120e7ea73#A8eRoENtZpBR943uC14HwdsAjovHf77VtXU4dqMuQBsL)
@@ -42039,6 +42063,15 @@
     - **Updates**
       - [Magenta.Horizon.Neverending.Harvest.Update.v1.0.14-RUNE.rar](https://filecrypt.cc/Container/AD5377EBC4.html)
       - [Magenta.Horizon.Neverending.Harvest.Update.v1.0.15-RUNE.rar](https://filecrypt.cc/Container/C03BFEB363.html)
+  - Magenta Horizon: Neverending Harvest – v1.1.4 | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/magenta-horizon-neverending-harvest/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?aae504936bb0e6ee#J1wq3bKS8dFP5vgxDqY5wDCFLtriNntbhdL3VHFkWete)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?602245ac095ac8fa#8BFT5G8pwqUc4VKsnKWSKrDisV2sy6i4w8xSG571gtPS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?393184fff4b766ce#CVJNttKyUQ5qfiD3BacnrExo43ZDpBELBMWzhCZmakVC)
+    - [1337x](https://1337x.to/torrent/6576245/Magenta-Horizon-Neverending-Harvest-v1-1-4-MULTi6-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:9ED81C14ACB6509C900F4BA9A4E384B82D808CF6&dn=Magenta+Horizon%3A+Neverending+Harvest+%28v1.1.4%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1070891/magenta-horizon-neverending-harvest-v-1.1.4-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:9ed81c14acb6509c900f4ba9a4e384b82d808cf6&dn=rutor.info_Magenta+Horizon%3A+Neverending+Harvest+%5Bv+1.1.4%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3100585)
   - Mages of Mystralia | 2017-05-19 ([Source: Fitgirl](https://fitgirl-repacks.site/mages-of-mystralia/))
     - [1337x](http://1337x.to/torrent/2219064/Mages-of-Mystralia-MULTi7-FitGirl-Repack/)
     - [rutor](http://rutor.info/torrent/567822/mages-of-mystralia-2017-pc-repack-ot-fitgirl)
@@ -51428,6 +51461,10 @@
     - [gofile](https://gofile.io/d/hzYwra)
   - Palworld Free Download (v0.6.9.82911 + Co-op) | 2024-01-19 ([Source: SteamRIP](https://steamrip.com/palworld-free-download-2p/))
     - [buzzheavier](https://buzzheavier.com/n8mxsoxm0tdw)
+  - Palworld Free Download (v0.7.1.86065 + Co-op) | 2024-01-19 ([Source: SteamRIP](https://steamrip.com/palworld-free-download-2p/))
+    - [gofile](https://gofile.io/d/QhjGWE)
+    - [buzzheavier](https://buzzheavier.com/3m69r05kkc6s)
+    - [vikingfile](https://vikingfile.com/f/Vm3KFjLnsf)
   - Pandemic Train Free Download (v1.2.0) | 2023-10-19 ([Source: SteamRIP](https://steamrip.com/pandemic-train-free-download-1r/))
     - [megadb](https://megadb.net/vmcuumltdl3r)
   - Pandemic Train – v1.2.0 | 2024-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/pandemic-train/))
@@ -59273,6 +59310,13 @@
     - [1337x](https://1337x.to/torrent/6174731/RoomGirl-Paradise-Compressed-BetterRepack-Release-R2-1-MULTi10-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:DD68415A5E99018A6E549719C16C174439FD5E16&dn=RoomGirl+Paradise+%28Compressed+BetterRepack+Release+R2.1%2C+MULTi10%2B%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2988618)
+  - Roots Devour – v1.0.0.0 | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/roots-devour/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a5307af20778cad1#7gdwfQKNZ4EFwZ8B276ywF1Fs1a4yRvZh5hyjJZMRXEd)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cd4d9ef4b964ec35#5E3RQVhaLiqychDDnpQ4RDhzmtzcXh3X3j2uCUkseat9)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1092604acb14720d#CuKi9ehuKc5jhChUq7ktVfxJvptgst5h6Qbvxnr5TM25)
+    - [1337x](https://1337x.to/torrent/6576717/Roots-Devour-v1-0-0-0-ENG-CHS-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:43FFA55BB53279E503BC65CCEB7F1DBD6FEF6B16&dn=Roots+Devour+%28v1.0.0.0%2C+ENG%2FCHS%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3100673)
   - Roots of Pacha (2023),  1.06GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Roots_of_Pacha_MULTi7_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/E2685A18A3.html)
     - [keeplinks](https://www.keeplinks.org/p16/64597e4b3ea5e)
@@ -84904,6 +84948,15 @@
     - <a href="magnet:?xt=urn:btih:5A10A926A59F79415E02AA057B5D7F31CCFF082B&dn=World+War+Z%3A+Aftermath+-+Deluxe+Edition+%28v2.43+%2B+All+DLCs%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [rutor](https://rutor.info/torrent/1058641/world-war-z-aftermath-deluxe-edition-v-2.43-dlcs-2021-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:5a10a926a59f79415e02aa057b5d7f31ccff082b&dn=rutor.info_World+War+Z%3A+Aftermath+-+Deluxe+Edition+%5Bv+2.43+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=2584007)
+  - World War Z: Aftermath – Deluxe Edition – v2.44 (0.1.MS.1077865/1078398) + All DLCs | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/world-war-z-aftermath/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4d9ca74770ace608#BDep98uso8BFG86RJ5h1JTP7fBNy5GVgy6PoiPYcjgkn)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?08970d1ba6499a69#7cXnDd3AGVTfoE1Qxv3WCUVFwNgE4c3srontneN6aXXw)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/world-war-z-aftermath/)
+    - [1337x](https://1337x.to/torrent/6576724/World-War-Z-Aftermath-Deluxe-Edition-v2-44-All-DLCs-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:CDEB0C40A91C0525C9AADE616D828A3EF11AE645&dn=World+War+Z%3A+Aftermath+-+Deluxe+Edition+%28v2.44+%2B+All+DLCs%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1058641/world-war-z-aftermath-deluxe-edition-v-2.44-dlcs-2021-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:cdeb0c40a91c0525c9aade616d828a3ef11ae645&dn=rutor.info_World+War+Z%3A+Aftermath+-+Deluxe+Edition+%5Bv+2.44+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2584007)
   - World War Zombie | 2023-10-23 ([Source: Fitgirl](https://fitgirl-repacks.site/world-war-zombie/))
     - [1337x](https://1337x.to/torrent/5856947/World-War-Zombie-ENG-FRA-FitGirl-Repack/)
