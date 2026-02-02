@@ -1,5 +1,28 @@
 # Latest Games
 
+- Three Kingdoms: The Last Warlord – v1.1.10.4065 + 10 DLCs | 2026-02-02 ([Source: Fitgirl](https://fitgirl-repacks.site/three-kingdoms-the-last-warlord/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0930caf116d2d4c7#G3PLQjqMrvrUtCRqr2uF3E3wm9Kv2AZrBEdtrnCqK319)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?21d38fbfea0b55cf#FV217qSRB5oqWwPyvZELd2rFUF4ErccMTXG7oR2CYSC6)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6b12b68dc94feecf#9CbeqS2h7yXGArf716zfYQEmNf7JAaJkKQfN7JVEkpnn)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/three-kingdoms-the-last-warlord/1337x.to/torrent/6578158/Three-Kingdoms-The-Last-Warlord-v1-1-10-4065-10-DLCs-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:30C726C3FF8FE375EBAC5D399B7E0D30AA8035F3&dn=Three+Kingdoms%3A+The+Last+Warlord+%28v1.1.10.4065+%2B+10+DLCs%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/962023/three-kingdoms-the-last-warlord-v-1.1.10.4065-dlcs-2021-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:30c726c3ff8fe375ebac5d399b7e0d30aa8035f3&dn=rutor.info_Three+Kingdoms%3A+The+Last+Warlord+%5Bv+1.1.10.4065+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3100960)
+- Vampires: Bloodlord Rising Free Download (v1.0.1.19431 + Multiplayer) | 2026-02-02 ([Source: SteamRIP](https://steamrip.com/vampires-bloodlord-rising-free-download/))
+  - [vikingfile](https://vikingfile.com/f/imvIggLRPG)
+  - [buzzheavier](https://buzzheavier.com/mviiulrswxzf)
+- Earth Must Die Free Download | 2026-02-02 ([Source: SteamRIP](https://steamrip.com/earth-must-die-free-download/))
+  - [megadb](https://megadb.net/slj0jni0h4mv)
+- Rainbow Gate – v1.3 | 2026-02-01 ([Source: Fitgirl](https://fitgirl-repacks.site/rainbow-gate/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3ccfe1f805e00048#Ceda2MUBtPSUjDvGRiHT8rxP9JeFkUcvromFy62WUNcf)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?42ce4931e9389f85#GiFPzXupxpjmKta2nJzZ3an7AEG8Y4Nptnk5BpoLbPCc)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?55e5da1885d98adc#EJZMATKq6femY1oVWoNX3xZuw9YLLNMareQsy9fmW3m7)
+  - [1337x](https://1337x.to/torrent/6577573/Rainbow-Gate-v1-3-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:07CF39A240F439DDB9F51B37BF0D0AAC8A5D1B3F&dn=Rainbow+Gate+%28v1.3%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1071164/rainbow-gate-v-1.3-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:07cf39a240f439ddb9f51b37bf0d0aac8a5d1b3f&dn=rutor.info_Rainbow+Gate+%5Bv+1.3%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3100848)
 - Zaccaria Pinball (2025),  3.45GB | 2026-02-01 ([Source: Elamigos](https://elamigos.site/data/Zaccaria_Pinball_MULTi8_-_ElAmigos.html))
   - [filecrypt](https://filecrypt.cc/Container/03389E93BC.html)
   - [keeplinks](https://www.keeplinks.org/p16/68fce94fe8762)
@@ -158,27 +181,3 @@
   - [tapochek](https://tapochek.net/viewtopic.php?p=3100470)
 - I Hate This Place Free Download | 2026-01-30 ([Source: SteamRIP](https://steamrip.com/i-hate-this-place-free-download/))
   - [megadb](https://megadb.net/6mip9ihjw3iw)
-- City Tales – Medieval Era Free Download | 2026-01-30 ([Source: SteamRIP](https://steamrip.com/city-tales-medieval-era-free-download/))
-  - [megadb](https://megadb.net/0vkewh0vmnbf)
-- Cairn Free Download (v1.0.299s) | 2026-01-30 ([Source: SteamRIP](https://steamrip.com/cairn-free-download/))
-  - [gofile](https://gofile.io/d/9miNmM)
-  - [vikingfile](https://vikingfile.com/f/35avXOAfrg)
-  - [buzzheavier](https://buzzheavier.com/qisqmo7gw8fv)
-- Cairn: Deluxe Edition – v1.0.299s_1713 + 3 DLCs/Bonuses | 2026-01-30 ([Source: Fitgirl](https://fitgirl-repacks.site/cairn/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f1cb060cbf558bed#Dsmbs2nrgmp8Xp6T6SePqKX2n4Bs6P3jVPrqqHNDJ3fm)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7e166bbf25f8d182#7AvX4roBpqxYdQFSuyv3d1LJ6KYq1hkMuBTYx9WY7b9a)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?405142edd612fa76#7kLgngwWKEo8vLsTTrwmgYLcHDkd73k9w2YMr8ZKKGR5)
-  - [1337x](https://1337x.to/torrent/6575511/Cairn-Deluxe-Edition-v1-0-299s_1713-3-DLCs-Bonuses-MULTi11-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:BE5D373CD4ECC09FD778D3489EC4996EF6D1AF34&dn=Cairn%3A+Deluxe+Edition+%28v1.0.299s_1713+%2B+3+DLCs%2FBonuses%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1070764/cairn-deluxe-edition-v-1.0.299s-1713-dlcs-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:be5d373cd4ecc09fd778d3489ec4996ef6d1af34&dn=rutor.info_Cairn%3A+Deluxe+Edition+%5Bv+1.0.299s+1713+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3100356)
-- ANNO: Mutationem – Collectors Edition, v1.2.00.00 + 2 DLC/Bonuses | 2026-01-30 ([Source: Fitgirl](https://fitgirl-repacks.site/anno-mutationem/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3c3bd5bfe530b76e#8kEfVPMSER77LKd6K7du7Ach5t3LFFkHjpFehJoqZ3Ri)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?193ff2ddffb593fc#B6H1MfFaqP2K9RC9UtUn8k35eVJC44AxA4rRpuaEdnpM)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?98eba8d50338c180#J86Xb3SgRXhARw7yWiX1yu4o3YacQurouuAn1x2gUQJ4)
-  - [1337x](https://1337x.to/torrent/6575504/ANNO-Mutationem-Collectors-Edition-v1-2-00-00-2-DLC-Bonuses-MULTi10-FitGirl-Repack-Selective-Download-from-7-1-GB/)
-  - <a href="magnet:?xt=urn:btih:7AB4810EB3F6B27F52FCD618FD46696B141D3F70&dn=ANNO%3A+Mutationem+-+Collectors+Edition+%28v1.2.00.00+%2B+2+DLC%2FBonuses%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+7.1+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/866997/anno-mutationem-collectors-edition-v-1.2.00.00-dlcs-2022-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:7ab4810eb3f6b27f52fcd618fd46696b141d3f70&dn=rutor.info_Anno%3A+Mutationem+-+Collectors+Edition+%5Bv+1.2.00.00+%2B+DLC%27s%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=2840799)
