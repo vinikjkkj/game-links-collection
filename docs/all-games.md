@@ -16388,6 +16388,15 @@
     - [rutor](http://rutor.info/torrent/1050444/dark-envoy-directors-cut-supporter-edition-v-1.8.0.74338-dlcs-2023-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:7ec7eb4c71ad6ff90a0b35480fac0c39bb8ef68c&dn=rutor.info_Dark+Envoy%3A+Director%27s+Cut+-+Supporter+Edition+%5Bv+1.8.0.74338+%2B+DLC%27s%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3072573)
+  - Dark Envoy: Director’s Cut – Supporter Edition, v1.9.2.75237 + Bonus Content | 2026-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/dark-envoy/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d2e4f0d10e2d773b#24VNDAC6EFaowCGhUGYXGB91EWdPTHrc1s192yFzNMqS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a2f29df5d8379e13#FdXTpBDvXnrpVGPLtjN9g5NSWhN7dgMi2txgmrzF1NtD)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/dark-envoy/)
+    - [1337x](https://1337x.to/torrent/6591922/Dark-Envoy-Director-s-Cut-Supporter-Edition-v1-9-2-75237-Bonus-Content-MULTi11-FitGirl-Repack-Selective-Download-from-22-8-GB/)
+    - <a href="magnet:?xt=urn:btih:4842278EF9AB468723A5933AFEF3224E90A6BE98&dn=Dark+Envoy%3A+Director%26%23039%3Bs+Cut+-+Supporter+Edition+%28v1.9.2.75237+%2B+Bonus+Content%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+22.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1050444/dark-envoy-directors-cut-supporter-edition-v-1.9.2.75237-dlcs-2023-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:4842278ef9ab468723a5933afef3224e90a6be98&dn=rutor.info_Dark+Envoy%3A+Director%27s+Cut+-+Supporter+Edition+%5Bv+1.9.2.75237+%2B+DLC%27s%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=2946209)
   - Dark Hours Free Download (Build 18584870) | 2025-06-06 ([Source: SteamRIP](https://steamrip.com/dark-hours-free-download/))
     - [buzzheavier](https://buzzheavier.com/eh6eslcigr4h)
   - Dark Light Free Download (v1.1.0.13) | 2022-09-30 ([Source: SteamRIP](https://steamrip.com/dark-light-free-download-i1/))
@@ -21435,6 +21444,13 @@
     - [1337x](https://1337x.to/torrent/6555135/Dungeon-Defenders-Ultimate-Collection-v10-5-0-42-DLCs-MULTi5-FitGirl-Repack-Selective-Download-from-3-1-GB/)
     - <a href="magnet:?xt=urn:btih:27243E8495F02E84F0F624B1EE9C2E648BCA8683&dn=Dungeon+Defenders%3A+Ultimate+Collection+%28v10.5.0+%2B+42+DLCs%2C+MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.1+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2463264)
+  - Dungeon Defenders: Ultimate Collection – v10.6.2 + 43 DLCs | 2026-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/dungeon-defenders/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8360fac12474d4c9#CX8RLhvtbXorep7iV1zF1hEhfUQkmgMqu9Y7tZsKyu9o)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e885a8afdf1f005e#99MXRZgd7j8EBCXPdm9JSrLU95FqeFwae45yvr2LjJ6M)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0b8d380694af67fe#EGbpaUKcw5kX69hWNqpSFTi7vECHC9JHPrdHvhKxn2FH)
+    - [1337x](https://1337x.to/torrent/6591883/Dungeon-Defenders-Ultimate-Collection-v10-6-2-43-DLCs-MULTi5-FitGirl-Repack-Selective-Download-from-3-1-GB/)
+    - <a href="magnet:?xt=urn:btih:51AD3DA965E8FA4DB835FAF9D1977DEF3D14AE05&dn=Dungeon+Defenders%3A+Ultimate+Collection+%28v10.6.2+%2B+43+DLCs%2C+MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.1+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3104399)
   - Dungeon Drafters Free Download (v1.1.0.4) | 2023-05-02 ([Source: SteamRIP](https://steamrip.com/dungeon-drafters-free-download-1w/))
     - [megadb](https://megadb.net/tk6x7rxjkx3h)
   - Dungeon Drafters – v1.1.0.4 + Bonus Soundtrack | 2023-11-24 ([Source: Fitgirl](https://fitgirl-repacks.site/dungeon-drafters/))
@@ -34380,6 +34396,8 @@
     - [rutor](http://rutor.info/torrent/883024/horizon-zero-dawn-complete-edition-v-1.11.2-dlcs-bonus-vr-2020-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:2b72edc366bff51b47a5b87af6f09ca840f436ea&dn=rutor.info_Horizon+Zero+Dawn%3A+Complete+Edition+%5Bv+1.11.2+%2B+DLCs+%2B+Bonus+%2B+VR%5D+%282020%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2864652)
+  - Horripilant Free Download (v1.1) | 2026-02-23 ([Source: SteamRIP](https://steamrip.com/horripilant-free-download/))
+    - [megadb](https://megadb.net/p34dfxgaylrr)
   - Horror Gallery | 2023-11-13 ([Source: Fitgirl](https://fitgirl-repacks.site/horror-gallery/))
     - [1337x](https://1337x.to/torrent/5883444/Horror-Gallery-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:46270516B1DB8BF93C25C7C7F81466CF76197454&dn=Horror+Gallery+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -57890,6 +57908,15 @@
     - [rutor](https://rutor.info/torrent/1057405/recycling-center-simulator-v-1.6.0-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:2323c7efd85fda077c5dedf79d5eb1de429eaba5&dn=rutor.info_Recycling+Center+Simulator+%5Bv+1.6.0%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3081862)
+  - Recycling Center Simulator – v1.7.1 + DLC | 2026-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/recycling-center-simulator/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?576ff4b3aa3c6dc6#62myivCK92njnUi1jx4tH8nYFvu96Ny7rrpr5ykQXVv2)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1d60bbed70fedc93#6cn59BWAnUz4eiS1xnbvbLJ7YLxmsAknAuvJszXHEDhh)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4233d9657feae38d#3KSAJG2oG7Kdthn96n6CSVkNgdgFLpEBv9GyE3mGi1J2)
+    - [1337x](https://1337x.to/torrent/6592000/Recycling-Center-Simulator-v1-7-1-DLC-MULTi15-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:7A67A1AC0675C880F039C2CB5E6EA443085486DA&dn=Recycling+Center+Simulator+%28v1.7.1+%2B+DLC%2C+MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1074137/recycling-center-simulator-v-1.7.1-dlc-2024-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:7a67a1ac0675c880f039c2cb5e6ea443085486da&dn=rutor.info_Recycling+Center+Simulator+%5Bv+1.7.1+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3104441)
   - Red Comrades Save the Galaxy: Reloaded | 2016-07-23 ([Source: Fitgirl](https://fitgirl-repacks.site/red-comrades-save-the-galaxy-reloaded/))
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks/)
     - [fitgirl-repacks](https://fitgirl-repacks.site/popular-repacks-of-the-year/)
@@ -69853,6 +69880,9 @@
   - Super Battle Golf Free Download | 2026-02-21 ([Source: SteamRIP](https://steamrip.com/super-battle-golf-free-download/))
     - [gofile](https://gofile.io/d/jH1dLF)
     - [megadb](https://megadb.net/tj42ua18ymsy)
+  - Super Battle Golf Free Download (v313 + Multiplayer) | 2026-02-21 ([Source: SteamRIP](https://steamrip.com/super-battle-golf-free-download/))
+    - [gofile](https://gofile.io/d/Y15V8X)
+    - [megadb](https://megadb.net/th8zkn88413m)
   - Super Bomberman R (2018), 5.69GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Super_Bomberman_R_MULTi13__ElAmigos_-_r9wTWqAS.html))
     - [filecrypt](https://www.filecrypt.cc/Container/099ADF4DCE.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddda8eb4a91e)
@@ -80368,6 +80398,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/632242d60333b)
     - [filecrypt](https://www.filecrypt.cc/Container/B512EE9E91.html)
     - [keeplinks](https://www.keeplinks.org/p16/632242cd50296)
+  - TRAIL OUT Free Download (v5.06) | 2025-09-08 ([Source: SteamRIP](https://steamrip.com/trail-out-free-download/))
+    - [vikingfile](https://vikingfile.com/f/6omhxtnAUI)
+    - [buzzheavier](https://buzzheavier.com/s2px6kp4map0)
   - TRAIL OUT Free Download (v5.1) | 2025-09-08 ([Source: SteamRIP](https://steamrip.com/trail-out-free-download/))
     - [gofile](https://gofile.io/d/ObMjt4)
   - TRAIL OUT: Complete – v3.0 (Last Pursuit Update) + 5 DLCs + Windows 7 Fix | 2024-06-01 ([Source: Fitgirl](https://fitgirl-repacks.site/trail-out/))
@@ -82325,6 +82358,9 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=3035508)
     - **Updates**
       - [Underrail.Update.v1.2.0.23-TENOKE.rar](https://filecrypt.cc/Container/BEDC531577.html)
+  - UnderRail Free Download (v1.3.1.2) | 2026-02-23 ([Source: SteamRIP](https://steamrip.com/underrail-free-download/))
+    - [buzzheavier](https://buzzheavier.com/4mms7pv4xgml)
+    - [vikingfile](https://vikingfile.com/f/hEZ1bPxVmv)
   - Undershadows – v1.0 + Bonus Content | 2025-04-05 ([Source: Fitgirl](https://fitgirl-repacks.site/undershadows/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?11f80694d2d34677#EVV8AekTR1NZWFKNGn4XhekwHerW4QvVcXX4L8jHuZrz)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8e08ca7af01c2b4f#4q4fqULKLWpnt6Tbky4snb4xCfcFj7vhPd6rRUeP5JBb)
@@ -85402,6 +85438,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?bd47017f9ee7a25c#5Q4oJEVcGe2mncBJAZrKDSh3MyFLAe8cgYeUthTLDkFo)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?04d0c397f2ab9c2e#6YD1XxzbZh4apkZRysceTCG9qD6T31cq36fgghkzLGh8)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?3f1dc1cef581c37d#6ZcocwAXrcKQtxFvmAs4vNx94xJiXbcwsrS14bzce4Xz)
+  - Welcome to Doll Town | 2026-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/welcome-to-doll-town/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bea0948388b14d3b#9d2i2jmGJjpA5VgTYPG7As8xgqbw8oq4DkkN3rK8JaLA)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?452d709668197112#2xVNQVYRrcVtEDHDSo2yvmA5VSLFoUfQTvqtoUTuNWEo)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c24d071461b923b5#BMzo9dc67dp6mEVG17caWAb1Mn5zJ9SyEYujnnJb7Ff9)
+    - [1337x](https://1337x.to/torrent/6591911/Welcome-to-Doll-Town-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A1018255D6EFB39E72B8BE532336F0B6E553586B&dn=Welcome+to+Doll+Town+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1074115/welcome-to-doll-town-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:a1018255d6efb39e72b8be532336f0b6e553586b&dn=rutor.info_Welcome+to+Doll+Town+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3104411)
   - Welcome to Empyreum, v1.0.9 + Windows 7 Fix | 2024-10-18 ([Source: Fitgirl](https://fitgirl-repacks.site/welcome-to-empyreum/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?79948fdd15e4d392#67Z9wYxGyXtPvuA5R4MaUfJhTg95CRfXUKDkBmgDF693)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0383e217f87f5a14#4dRxggHK3UXbZJYgxtfQjtbyRfB3w4xhfoF4RhYajr9v)
