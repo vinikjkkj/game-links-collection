@@ -20886,6 +20886,14 @@
     - [1337x](https://1337x.to/torrent/6230707/Dragonero-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:3E4AD86A8D288EC51C2B0A975E47FCE861F03AB3&dn=Dragonero+%28MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3001471)
+  - Dragonkin: The Banished Free Download (v1.2.64.53721) | 2026-03-17 ([Source: SteamRIP](https://steamrip.com/dragonkin-the-banished-free-download/))
+    - [buzzheavier](https://buzzheavier.com/4dg9qj1jewzj)
+    - [vikingfile](https://vikingfile.com/f/VKUoQlUFUU)
+  - Dragonkin: The Banished – Blood Scales Edition, v1.2.64.53721 + 5 DLCs | 2026-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/dragonkin-the-banished/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?50505f726ce8a054#93QHSZYn85KaBvGnXp5vipCnmBAWnnhGk7ztm6qDd2UF)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6ab2f72cfc3992d8#Hf6ZqpyMYxw4TTCsCQkMJVhqfJ5n2c91UsbJeFsFNVCN)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/dragonkin-the-banished/)
   - DragonLoop | 2025-06-22 ([Source: Fitgirl](https://fitgirl-repacks.site/dragonloop/))
     - [datanodes](https://datanodes.to/91o4cjx9zh9h/DragonLoop_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/un383i42lb69#DragonLoop_--_fitgirl-repacks.site_--_.rar)
@@ -22852,6 +22860,11 @@
     - [rutor](https://rutor.info/torrent/1060704/egging-on-v-0.1.8654-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:564e2b4752fb9576430296e047e28fcef00e53bd&dn=rutor.info_Egging+On+%5Bv+0.1.8654%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3087238)
+  - Egypt Frontiers | 2026-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/egypt-frontiers/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f6ebe5c46a41e9c9#2WDShwocz7pxDxtbi9sYTVNjnMyCu6kdEs8XJveyL6j8)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?37a78b6f7249c1d6#8x5rBfBKPrFbaMdni4YMuaLPbKjtAJGe2iiVaMDbsWZh)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a9f437f0d98381eb#FNqsvtsd5bGLzgccLdJLyoSdDPLGMaw8rmH2xh8JMxcN)
   - Eisenwald: Blood of November | 2016-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/eisenwald-blood-november/))
     - [extratorrent](http://extratorrent.cc/torrent/5267906/)
     - <a href="magnet:?xt=urn:btih:efb34622e00b4b3cef937f2f46db2cf4df43abe5">Torrent</a>
@@ -31751,6 +31764,9 @@
     - [rutor](http://rutor.info/torrent/1042692/grimstar-crystals-are-the-new-oil!-v-1.5.0-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:e82f23ddb64bfa242f715312fbe9b2f67f4b64b3&dn=rutor.info_Grimstar%3A+Crystals+are+the+New+Oil%21+%5Bv+1.5.0%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3060937)
+  - Grind Survivors Free Download | 2026-03-17 ([Source: SteamRIP](https://steamrip.com/grind-survivors-free-download/))
+    - [gofile](https://gofile.io/d/2JzJ3S)
+    - [megadb](https://megadb.net/0prna27dz766)
   - GRIP: Combat Racing + 6 DLCs | 2018-11-07 ([Source: Fitgirl](https://fitgirl-repacks.site/grip-combat-racing/))
     - [1337x](https://1337x.to/torrent/3366649/GRIP-Combat-Racing-6-DLCs-MULTi10-FitGirl-Repack/)
     - [rutor](http://rutor.info/torrent/663469/grip-combat-racing-v-1.3.0-dlcs-2016-pc-repack-ot-fitgirl)
@@ -53906,6 +53922,11 @@
     - [1337x](https://1337x.to/torrent/6189376/Pawn-Simulator-v1-0-2-MULTi4-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:CDDE92C748C599614E86DBEF4C6EA694A7A2441B&dn=Pawn+Simulator+%28v1.0.2%2C+MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2992740)
+  - Pawnbroker Simulator – v1.0.2 | 2026-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/pawnbroker-simulator/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f7dcffa8a6f96bc4#GtEcNiszjnqEGKmmns5WkX2mVGG7b1TaLbhBq1kCbn96)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1bec92e234520863#DmKnJEyx7J5XTrZX2C8MKDvukrCCxHhyWR9DABNaFrnS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7a60655f814e2964#7CWrP45sMrocPV58FxHYT76sfFNm2aAzeZqCDB8rN8Ag)
   - Pawperty Damage Free Download | 2023-05-30 ([Source: SteamRIP](https://steamrip.com/pawperty-damage-free-download-1k/))
     - [megadb](https://megadb.net/lzyfekbv83tb)
   - Paws and Soul Free Download | 2021-11-29 ([Source: SteamRIP](https://steamrip.com/paws-and-soul-free-download-t1/))
@@ -63485,6 +63506,11 @@
     - [rutor](http://rutor.info/torrent/1043998/sengoku-dynasty-v-1.1.0.6-dlcs-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:5d8cef14f5d98956eecc00638400aec724f439b4&dn=rutor.info_Sengoku+Dynasty+%5Bv+1.1.0.6+%2B+DLC%27s%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3062403)
+  - Sengoku Dynasty – v1.2.0.0 + Bonus Content | 2026-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/sengoku-dynasty/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?26c53f416ce99367#EGHFp232QffRevvkLBy8jR9vyPwiFPtHf618XKTsFhb1)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?07ae94f15a35df48#8TvMSXP6L89miKgYzpkCoevfH6eFxL38SdQksASNwjmk)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/sengoku-dynasty/)
   - SENRAN KAGURA Bon Appetit! – Full Course – v1.01.05 | 2018-07-19 ([Source: Fitgirl](https://fitgirl-repacks.site/senran-kagura-bon-appetit/))
     - [1337x](http://1337x.to/torrent/3124998/SENRAN-KAGURA-Bon-Appetit-Full-Course-v1-01-05-MULTi4-FitGirl-Repack-Selective-Download-from-1-GB/)
     - <a href="magnet:?xt=urn:btih:507BEAF80C52A711F4AB6C39DA190A3D5E24EC4F">Torrent</a>
@@ -67732,6 +67758,11 @@
     - [rutor](http://rutor.info/torrent/1032906/spin-rhythm-xd-v-1.5.0-dlcs-2023-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:812c7a36e6455d97f66068d83eacaa3ce96e450c&dn=rutor.info_Spin+Rhythm+XD+%5Bv+1.5.0+%2B+DLCs%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3046076)
+  - Spin Rhythm XD – v1.8 + 5 DLCs/Bonuses | 2026-03-17 ([Source: Fitgirl](https://fitgirl-repacks.site/spin-rhythm-xd/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b410a207bb34dd29#2R87PvQEdsfMzcXvz3iEM1Qmc8knCSdbys3ew2vJyos8)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?46b881f9f5940316#EBkYwz2fSPugP1LVSjHK6tbgk9hZfSyHv9XedJWxcEop)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f400c3ffe9184e41#AihczWn1AE66RrT1wWmedFto8WcfQJ1aVSi6DfpXp27)
   - Spindle Free Download | 2025-10-15 ([Source: SteamRIP](https://steamrip.com/spindle-free-download/))
     - [megadb](https://megadb.net/fvx2bl00xk99)
   - Spintires (2014),  2.02GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Spintires__ElAmigos_-_CrkB4V8y.html))
