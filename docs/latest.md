@@ -1,5 +1,11 @@
 # Latest Games
 
+- Resident Evil Requiem: Deluxe Edition – Build 22277314 + 3 DLCs/Bonuses | 2026-03-25 ([Source: Fitgirl](https://fitgirl-repacks.site/resident-evil-requiem/))
+  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
+- Overthrown | 2026-03-25 ([Source: Fitgirl](https://fitgirl-repacks.site/overthrown/))
+  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
 - Assassin’s Creed Shadows – v1.1.9 + Claws of Awaji DLC + 5 Bonus OSTs | 2026-03-25 ([Source: Fitgirl](https://fitgirl-repacks.site/assassins-creed-shadows/))
   - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
   - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
@@ -74,11 +80,5 @@
 - Beatblock Free Download (Build 22093925) | 2026-03-22 ([Source: SteamRIP](https://steamrip.com/beatblock-free-download/))
   - [buzzheavier](https://buzzheavier.com/qqgfjnxrynfq)
 - Grind Survivors: Supporter Edition – v3648 + 2 DLCs | 2026-03-22 ([Source: Fitgirl](https://fitgirl-repacks.site/grind-survivors/))
-  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
-- Black Myth: Wukong – Digital Deluxe Edition, v1.0.21.23831 + 4 DLCs/Bonuses [HV] | 2026-03-22 ([Source: Fitgirl](https://fitgirl-repacks.site/black-myth-wukong/))
-  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
-  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
-- CarX Street: Deluxe Edition – v1.11.0 + 5 DLCs | 2026-03-22 ([Source: Fitgirl](https://fitgirl-repacks.site/carx-street/))
   - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
   - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
