@@ -9617,6 +9617,8 @@
     - [1337x](https://1337x.to/torrent/6517509/Bounty-Star-MULTi13-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:95DD6F3653A3211A81A934ECC7449229E53FE2E2&dn=Bounty+Star+%28MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3084936)
+  - Box Bakery Free Download (v1.0.2.34) | 2026-03-30 ([Source: SteamRIP](https://steamrip.com/box-bakery-free-download/))
+    - [megadb](https://megadb.net/889rla2ewipu)
   - Boxes: Lost Fragments | 2024-02-03 ([Source: Fitgirl](https://fitgirl-repacks.site/boxes-lost-fragments/))
     - [1337x](https://1337x.to/torrent/5979056/Boxes-Lost-Fragments-MULTi14-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:633FB67A14085F81271A16F4B831D6E1DAD4DE60&dn=Boxes%3A+Lost+Fragments+%28MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -24646,6 +24648,9 @@
   - EverSiege: Untold Ages Free Download | 2026-03-27 ([Source: SteamRIP](https://steamrip.com/eversiege-untold-ages-free-download/))
     - [buzzheavier](https://buzzheavier.com/dcvffji6d33g)
     - [vikingfile](https://vikingfile.com/f/R4mSopllie)
+  - EverSiege: Untold Ages – v0.2.134369 | 2026-03-30 ([Source: Fitgirl](https://fitgirl-repacks.site/eversiege-untold-ages/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - EVERSPACE | 2019-01-11 ([Source: Fitgirl](https://fitgirl-repacks.site/everspace/))
     - [1337x](http://1337x.to/torrent/3516110/EVERSPACE-Ultimate-Edition-v1-3-3-36382-DLC-Bonus-Content-MULTi12-FitGirl-Repack-Selective-Download-from-3-1-GB/)
     - [rutor](http://rutor.info/torrent/675073/everspace-ultimate-edition-v-1.3.3.36382-dlc-2017-pc-repack-ot-fitgirl)
@@ -81479,6 +81484,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde3e88a153c)
   - Total War: WARHAMMER II Free Download (v1.12.0) | 2022-02-13 ([Source: SteamRIP](https://steamrip.com/total-war-warhammer-ii-free-download-1n/))
     - [filecrypt](https://filecrypt.co/Container/1583E601B6)
+  - Total War: WARHAMMER III – v7.2.0 + 125 DLCs | 2026-03-30 ([Source: Fitgirl](https://fitgirl-repacks.site/total-war-warhammer-3/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Total War: WARHAMMER – v1.6.0 + 12 DLCs + Multiplayer | 2017-06-18 ([Source: Fitgirl](https://fitgirl-repacks.site/total-war-warhammer/))
     - [1337x](http://1337x.to/torrent/2269737/Total-War-WARHAMMER-v1-6-0-12-DLCs-Multiplayer-MULTi11-FitGirl-Repack-Selective-Download-11-9-GB/)
     - [rutor](http://rutor.info/torrent/572851/total-war-warhammer-v-1.6.0-12-dlc-2016-pc-repack-ot-fitgirl)
