@@ -31885,6 +31885,12 @@
     - [keeplinks](https://www.keeplinks.org/p16/61093dc3ddc88)
   - GRIME Free Download (v1.3.2) | 2021-08-02 ([Source: SteamRIP](https://steamrip.com/grime-free-download-2k/))
     - [megadb](https://megadb.net/dx1yuo1aobbw)
+  - GRIME II Free Download | 2026-04-01 ([Source: SteamRIP](https://steamrip.com/grime-ii-free-download/))
+    - [gofile](https://gofile.io/d/qTg1Gd)
+    - [buzzheavier](https://buzzheavier.com/o6lbd42l50fd)
+  - GRIME II – v1.0.17360c | 2026-04-01 ([Source: Fitgirl](https://fitgirl-repacks.site/grime-2/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - GRIME: Definitive Edition- v1.3.2 + Bonus Soundtrack | 2024-01-26 ([Source: Fitgirl](https://fitgirl-repacks.site/grime/))
     - [1337x](https://1337x.to/torrent/5971073/GRIME-Definitive-Edition-v1-3-2-Bonus-Soundtrack-MULTi11-FitGirl-Repack-Selective-Download-from-2-2-GB/)
     - <a href="magnet:?xt=urn:btih:AC4CCCED33B4659EE511EDEFCD24538B6BEAA0E7&dn=GRIME%3A+Definitive+Edition+%28v1.3.2+%2B+Bonus+Soundtrack%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -49350,6 +49356,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd9fa29536b)
   - Need For Speed The Run Free Download (v1.1.0.0) | 2023-09-14 ([Source: SteamRIP](https://steamrip.com/need-for-speed-the-run-free-download-s1/))
     - [buzzheavier](https://buzzheavier.com/a47tccs70f51)
+  - Need for Speed Unbound: Ultimate Collection, v1.0.8.2549 (Volume 9 Update) + All DLCs + Bonus OST | 2026-04-01 ([Source: Fitgirl](https://fitgirl-repacks.site/need-for-speed-unbound/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Need for Speed Undercover Free Download | 2024-02-03 ([Source: SteamRIP](https://steamrip.com/need-for-speed-undercover-free-download-n2/))
     - [filecrypt](https://filecrypt.co/Container/B2B35ACB2C)
   - Need for Speed Underground 2 Free Download (v1.2) | 2021-06-09 ([Source: SteamRIP](https://steamrip.com/need-for-speed-underground-2-free-download-a2/))
@@ -74476,6 +74485,9 @@
     - [rutor](http://rutor.info/torrent/1052743/the-artifact-protocol-v-1.0.1-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:fbaff32c9c54cf346b594c0f2039aff5f3758ffc&dn=rutor.info_The+Artifact+Protocol+%5Bv+1.0.1%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3075744)
+  - The Artisan of Glimmith | 2026-04-01 ([Source: Fitgirl](https://fitgirl-repacks.site/the-artisan-of-glimmith/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - The Ascent (2021),  19.30GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/The_Ascent_MULTi10_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/86A5D09C6F.html)
     - [keeplinks](https://www.keeplinks.org/p16/6102fb9f32c0a)
@@ -78367,6 +78379,9 @@
     - <a href="magnet:?xt=urn:btih:71867e47bb91b207715ae4cb9eba06a42fd75c91&dn=The+Saboteur+%5BFitGirl+Repack%5D+TAP&tr=retracker.local/announce">Torrent</a>
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=214200)
     - [paste2](http://paste2.org/Wx89Hthn)
+  - The Scourge | Tai Ương – v1.0.0 (Release) | 2026-03-31 ([Source: Fitgirl](https://fitgirl-repacks.site/the-scourge/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - The Seekers: Survival | 2023-04-18 ([Source: Fitgirl](https://fitgirl-repacks.site/the-seekers-survival/))
     - [1337x](https://1337x.to/torrent/5628764/The-Seekers-Survival-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:134692BFE45E478DFC7D12BC88A6D4E19A2B2D7B&dn=The+Seekers%3A+Survival+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2770%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2720%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
