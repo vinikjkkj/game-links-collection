@@ -15664,6 +15664,8 @@
     - [rutor](https://rutor.info/torrent/1003639/crusader-kings-iii-collection-v-1.18.0-dlcs-2020-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:3533a9581d017099064798a4b5df0838457c6c56&dn=rutor.info_Crusader+Kings+III%3A+Collection+%5Bv+1.18.0+%2B+DLCs%5D+%282020%29+PC+%7C+Repack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3084269)
+  - Crusaders Quest : Hero Town Free Download | 2026-04-07 ([Source: SteamRIP](https://steamrip.com/crusaders-quest-hero-town-free-download/))
+    - [megadb](https://megadb.net/vfkhdb8upjc0)
   - Crying Pony | 2023-04-25 ([Source: Fitgirl](https://fitgirl-repacks.site/crying-pony/))
     - [1337x](https://1337x.to/torrent/5636561/Crying-Pony-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:BBC524E8A664519263B9557D82BD286D1D229B62&dn=Crying+Pony+%28MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2770%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2720%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -41912,6 +41914,9 @@
     - [megadb](https://megadb.net/4xlk8xkhmfp1)
   - Lightyear Frontier Free Download (v0.5.1770) | 2024-03-20 ([Source: SteamRIP](https://steamrip.com/lightyear-frontier-free-download/))
     - [megadb](https://megadb.net/1f0caq6s79hv)
+  - Like a Dragon: Infinite Wealth – Ultimate Edition, v1.20 + 20 DLCs + Bonus OST | 2026-04-07 ([Source: Fitgirl](https://fitgirl-repacks.site/like-a-dragon-infinite-wealth/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Lil Doll House + Windows 7 Fix | 2024-04-18 ([Source: Fitgirl](https://fitgirl-repacks.site/lil-doll-house/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?568b89e59cab0fc4#HPBCf12o47ipN2cVdTQQG4nH7VGEsvc4ftcfLqfhSc8y)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?329072216f2fe274#B5AS7nB3Z4MaKyFfwJ7ii7mNvwPLaEiGrc2mEYuhCYs7)
@@ -71477,6 +71482,9 @@
   - Super Meat Boy 3D Free Download | 2026-03-31 ([Source: SteamRIP](https://steamrip.com/super-meat-boy-3d-free-download/))
     - [gofile](https://gofile.io/d/atPhpq)
     - [megadb](https://megadb.net/lbqqe7ni2dg6)
+  - Super Meat Boy 3D – v1.2.34 | 2026-04-06 ([Source: Fitgirl](https://fitgirl-repacks.site/super-meat-boy-3d/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Super Meat Boy Forever (2020),  2.11GB | 2025-07-31 ([Source: Elamigos](https://elamigos.site/data/Super_Meat_Boy_Forever_MULTi13_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/39F882CF33.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ff8b28965a8d)
