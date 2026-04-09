@@ -1,5 +1,11 @@
 # Latest Games
 
+- Samson | 2026-04-09 ([Source: Fitgirl](https://fitgirl-repacks.site/samson/))
+  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
+- Anno 117: Pax Romana – v1.4.1.1629710 + 2 DLCs + Bonus OST | 2026-04-09 ([Source: Fitgirl](https://fitgirl-repacks.site/anno-117-pax-romana/))
+  - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+  - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
 - The Bus – v1.0.94413 + DLC | 2026-04-08 ([Source: Fitgirl](https://fitgirl-repacks.site/the-bus/))
   - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
   - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
@@ -88,8 +94,3 @@
 - Darwin’s Paradox! + Pre-Order Skin Pack DLC | 2026-04-04 ([Source: Fitgirl](https://fitgirl-repacks.site/darwins-paradox/))
   - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
   - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
-- Way of the Hunter 2 Free Download (Build 22586685) | 2026-04-04 ([Source: SteamRIP](https://steamrip.com/way-of-the-hunter-2-free-download/))
-  - [gofile](https://gofile.io/d/EC14NU)
-  - [buzzheavier](https://buzzheavier.com/e62rl94yy9ie)
-- Nova Roma Free Download (v0.7.1899) | 2026-04-04 ([Source: SteamRIP](https://steamrip.com/nova-roma-free-download/))
-  - [buzzheavier](https://buzzheavier.com/xv119vc53mvb)
