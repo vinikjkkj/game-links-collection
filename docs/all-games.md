@@ -13031,6 +13031,8 @@
     - [1337x](https://1337x.to/torrent/6464816/Church-Simulator-v1-0-5-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:0A224FE6F88FFFFD274CBC48753A2A15D61251B0&dn=Church+Simulator+%28v1.0.5%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3069539)
+  - Cinderia Free Download (v0.6.4) | 2026-04-11 ([Source: SteamRIP](https://steamrip.com/cinderia-free-download/))
+    - [megadb](https://megadb.net/xckqhqq0syck)
   - Cinemaster: Cinema Simulator – v1.6 | 2025-04-09 ([Source: Fitgirl](https://fitgirl-repacks.site/cinemaster-cinema-simulator/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3480eb9c2110571b#wPx98QDbSHqyc5Sb7p1TsmjU3GBRatVLAtEy6jhQz5o)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fab7ad7ad40d6bb3#AXq3x3vKoQfW2eBxw7TxiVqWeZjZPq5MyMr227FXa3s7)
@@ -22517,6 +22519,9 @@
     - [rutor](http://rutor.info/torrent/940526/ea-sports-fifa-23-v-1.0.82.43747-2022-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:50b8bcf39d789fb5469e1fb6b8cab629f44e7f66&dn=rutor.info_EA+SPORTS+FIFA+23+%5Bv+1.0.82.43747%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2934136)
+  - EA SPORTS Madden NFL 26 – v1.0.133.17820 | 2026-04-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ea-sports-madden-nfl-26/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Eador: Imperium | 2017-01-28 ([Source: Fitgirl](https://fitgirl-repacks.site/eador-imperium/))
     - [extratorrent](http://extratorrent.cc/torrent/5431075/)
     - <a href="magnet:?xt=urn:btih:cd13b1df8d4e51e5b44a5834e520f9fd42c8164a">Torrent</a>
@@ -52581,6 +52586,9 @@
     - [1337x](https://1337x.to/torrent/6080566/Oriental-Valley-Deluxe-Edition-2-DLCs-Windows-7-Fix-MULTi3-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:0DDDA86121A44277C7546B97B0B5BA8B014C53C7&dn=Oriental+Valley%3A+Deluxe+Edition+%28%2B+2+DLCs+%2B+Windows+7+Fix%2C+MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2977544)
+  - Origament: A Paper Adventure – v1.8.1 | 2026-04-11 ([Source: Fitgirl](https://fitgirl-repacks.site/origament-a-paper-adventure/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Orphans | 2025-04-23 ([Source: Fitgirl](https://fitgirl-repacks.site/orphans/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f3ed07fe92b4378a#9P4WRusmdfAcVgUuoi1G6s8xUEYfHjQKcY2h6Z2S7SdX)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f78e97d99630055f#8xeAsXXcWTQo9AFDLtjWqtZHhNTttWcvHJZg4jGcRws2)
@@ -59288,6 +59296,9 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?80602b07aea83471#wsyUB7zNJGtcRCMFYapBZ1yWVk9FEoGCCUyfbTDdQKz)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?9f94dcf7122ff368#7S8zAtaMRPGtdDG2Y11A5BBt7hsaFq8GRLcpXT1F8JR)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?c8ecbce34185dfd0#GrQC73seUNCtMxMThd9qiHLQZR8ixAeRwVpMKRa4EGQH)
+  - Redfall – v1.0451.8.0 + 3 DLCs/Bonuses | 2026-04-11 ([Source: Fitgirl](https://fitgirl-repacks.site/redfall/))
+    - [fitgirl-repacks](https://fitgirl-repacks.site/memecoin-in-my-name/)
+    - [fitgirl-repacks](https://fitgirl-repacks.site/hypervisor-guide/)
   - Redout | 2016-09-04 ([Source: Fitgirl](https://fitgirl-repacks.site/redout/))
     - [extratorrent](http://extratorrent.cc/torrent/5148201/)
     - <a href="magnet:?xt=urn:btih:cf34f6cbcca4068a955056d40325104858663a99">Torrent</a>
@@ -66025,6 +66036,9 @@
     - **Updates**
       - [Skul.The.Hero.Slayer.Mythology.Pack.Update.v1.8.1.3-TENOKE.rar](https://filecrypt.cc/Container/1B5BB5F67E.html)
       - [Skul.The.Hero.Slayer.Mythology.Pack.Update.v1.9.1-TENOKE.rar](https://filecrypt.cc/Container/53DF549AC8.html)
+  - Skull Horde Free Download (v1.002) | 2026-04-11 ([Source: SteamRIP](https://steamrip.com/skull-horde-free-download/))
+    - [gofile](https://gofile.io/d/ywDYiH)
+    - [megadb](https://megadb.net/mqbrf20z7g67)
   - Skull Island: Rise of Kong – Colossal Edition + DLC + Windows 7 Fix | 2023-11-23 ([Source: Fitgirl](https://fitgirl-repacks.site/skull-island-rise-of-kong/))
     - [1337x](https://1337x.to/torrent/5896113/Skull-Island-Rise-of-Kong-Colossal-Edition-DLC-Windows-7-Fix-MULTi6-FitGirl-Repack-Selective-Download-from-3-2-GB/)
     - <a href="magnet:?xt=urn:btih:E0C09E352346A88D523104FE873AA068D090A703&dn=Skull+Island%3A+Rise+of+Kong+-+Colossal+Edition+%28%2B+DLC+%2B+Windows+7+Fix%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.2+GB%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
