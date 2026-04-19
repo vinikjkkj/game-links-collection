@@ -25158,6 +25158,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd55c2361e8)
     - [filecrypt](https://www.filecrypt.cc/Container/0D03E27DB5.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd55ca1c482)
+  - Fun with Ragdolls Plus Free Download (v1.1.0) | 2026-04-19 ([Source: SteamRIP](https://steamrip.com/fun-with-ragdolls-plus-free-download/))
+    - [bzzhr](https://bzzhr.to/3s9qj39hdgst)
   - Fun with Ragdolls: The Game Free Download (v2.0.3) | 2024-03-09 ([Source: SteamRIP](https://steamrip.com/fun-with-ragdolls-the-game-free-download-m1/))
     - [megadb](https://megadb.net/d/3h)
   - Funi Raccoon Game Free Download | 2026-03-15 ([Source: SteamRIP](https://steamrip.com/funi-raccoon-game-free-download/))
@@ -31302,6 +31304,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?9585a73c033ad061#CrRJU46amRm7Sc1wu6hk8KPKk1PPBjkjc8RDgkD1k9Y9)
     - [crackhub](https://crackhub.site/idol-manager-fitgirl-repack/)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?0dffb8c86ee4e217#HLH83TcFRtTtZ2c6Vngisitt2gA9n8wp7fb9d3RExRqF)
+  - Idols of Ash Free Download (Build 22824348) | 2026-04-19 ([Source: SteamRIP](https://steamrip.com/idols-of-ash-free-download/))
+    - [bzzhr](https://bzzhr.to/7gxnj51fya24)
   - Ikai – v1.0.1 + Windows 7 Fix | 2022-03-30 ([Source: Fitgirl](https://fitgirl-repacks.site/ikai/))
     - [1337x](https://1337x.to/torrent/5200879/Ikai-v1-0-1-Windows-7-Fix-MULTi8-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:592A807429271A2968B514ED2740499FF18EF847&dn=Ikai+%28v1.0.1+%2B+Windows+7+Fix%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -43499,6 +43503,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5f53bfbeaa55f)
     - [filecrypt](https://www.filecrypt.cc/Container/881F9C14A7.html)
     - [keeplinks](https://www.keeplinks.org/p16/5f53bfb012a50)
+  - Nexomon: Extinction Free Download (v2.0.1) | 2026-04-19 ([Source: SteamRIP](https://steamrip.com/nexomon-extinction-free-download/))
+    - [bzzhr](https://bzzhr.to/03a3hsut1a47)
   - Nexomon: Extinction – Build 5478562 (08.30.2020) | 2020-08-30 ([Source: Fitgirl](https://fitgirl-repacks.site/nexomon-extinction/))
     - [1337x](https://1337x.to/torrent/4608254/Nexomon-Extinction-Build-5478562-08-30-2020-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:D8360F47DF81FACF3620729D3F00D178EC84CFB9">Torrent</a>
@@ -52142,6 +52148,9 @@
     - [goodolddownloads](https://scenegames.goodolddownloads.com/group/FitGirl/)
     - [upera](https://public.upera.co/f/b0pm2w4e)
     - [worldsrc](https://www.worldsrc.org/games/detalis?Ty=1042)
+  - Responding Free Download (v0.852.3) | 2026-04-19 ([Source: SteamRIP](https://steamrip.com/responding-free-download/))
+    - [gofile](https://gofile.io/d/5kz8if)
+    - [bzzhr](https://bzzhr.to/pbh76wwh4yvp)
   - Rest | 2023-12-04 ([Source: Fitgirl](https://fitgirl-repacks.site/rest/))
     - [1337x](https://1337x.to/torrent/5909099/Rest-ENG-NOR-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:96EE78EC5E099518A59EDFF54C9088E90CCECD38&dn=Rest+%28ENG%2FNOR%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
