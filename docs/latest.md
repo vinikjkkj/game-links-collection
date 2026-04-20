@@ -1,5 +1,18 @@
 # Latest Games
 
+- Before Fate – v1.0.135 + 2 DLCs/Bonuses | 2026-04-20 ([Source: Fitgirl](https://fitgirl-repacks.site/before-fate/))
+  - [datanodes](https://datanodes.to/xcifml3d42fi/Before_Fate_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/vb0zt9s0u4p7#Before_Fate_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/06b1dd5ee3253517387ffcf99b55f567/Before_Fate_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6630465/Before-Fate-v1-0-135-2-DLCs-Bonuses-MULTi3-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:632876426F0CC1FFE33B34F353A0F9283E5D4E6D&dn=Before+Fate+%28v1.0.135+%2B+2+DLCs%2FBonuses%2C+MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3115292)
+- ChainStaff – v1.0.4.4 + Bonus OST | 2026-04-19 ([Source: Fitgirl](https://fitgirl-repacks.site/chainstaff/))
+  - [1337x](https://1337x.to/torrent/6630006/ChainStaff-v1-0-4-4-Bonus-OST-MULTi13-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:8CBFEC4DE90502031C6E2943BDCB17912DD76B62&dn=ChainStaff+%28v1.0.4.4+%2B+Bonus+OST%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1081933/chainstaff-v-1.0.4.4-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:8cbfec4de90502031c6e2943bdcb17912dd76b62&dn=rutor.info_ChainStaff+%5Bv+1.0.4.4+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3115204)
 - Responding Free Download (v0.852.3) | 2026-04-19 ([Source: SteamRIP](https://steamrip.com/responding-free-download/))
   - [gofile](https://gofile.io/d/5kz8if)
   - [bzzhr](https://bzzhr.to/pbh76wwh4yvp)
@@ -113,17 +126,3 @@
   - [keeplinks](https://www.keeplinks.org/p16/69d53a88170ac)
   - [filecrypt](https://filecrypt.cc/Container/79A3D59D8F.html)
   - [keeplinks](https://www.keeplinks.org/p16/69d53a7eec16b)
-- Styx Blades of Greed Quartz Edition | 2026-04-16 ([Source: Elamigos](https://elamigos.site/data/Styx_Blades_of_Greed_Quartz_Edition_MULTi11_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/3C452A72F5.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6994b074f32f7)
-  - [filecrypt](https://filecrypt.cc/Container/B259951D4A.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6994b06bf149c)
-  - [filecrypt](https://filecrypt.cc/Container/3C452A72F5.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6994b074f32f7)
-  - [filecrypt](https://filecrypt.cc/Container/B259951D4A.html)
-  - [keeplinks](https://www.keeplinks.org/p16/6994b06bf149c)
-- Starship Troopers Ultimate Bug War | 2026-04-16 ([Source: Elamigos](https://elamigos.site/data/Starship_Troopers_Ultimate_Bug_War_MULTi11_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/EE405A91A0.html)
-  - [keeplinks](https://www.keeplinks.org/p16/69b86d3c89d2a)
-  - [filecrypt](https://filecrypt.cc/Container/967408ACDA.html)
-  - [keeplinks](https://www.keeplinks.org/p16/69b86d329ae10)
