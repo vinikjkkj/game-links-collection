@@ -2367,6 +2367,14 @@
   - ALL WILL FALL Free Download (v1.0.13f2) | 2026-04-14 ([Source: SteamRIP](https://steamrip.com/all-will-fall-free-download/))
     - [gofile](https://gofile.io/d/0wi2dc)
     - [megadb](https://megadb.net/yb3kf21lugum)
+  - ALL WILL FALL – v1.0.1f1 | 2026-04-21 ([Source: Fitgirl](https://fitgirl-repacks.site/all-will-fall/))
+    - [1337x](https://1337x.to/torrent/6631105/ALL-WILL-FALL-v1-0-1f1-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A081883D174E676A68BDBB9EC730766365015092&dn=ALL+WILL+FALL+%28v1.0.1f1%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1082177/all-will-fall-v1.0.1f1-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:a081883d174e676a68bdbb9ec730766365015092&dn=rutor.info_ALL+WILL+FALL+%5Bv1.0.1f1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3115407)
+    - **Updates**
+      - [All_Will_Fall_Update_v1.0.16-ElAmigos.rar](https://filecrypt.cc/Container/38EB4571A3.html)
   - All-In-One Sports VR | 2023-10-13 ([Source: Elamigos](https://elamigos.site/data/All-In-One_Sports_VR_MULTi13_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/1C7B7CC0A6.html)
     - [keeplinks](https://www.keeplinks.org/p16/65d1fa70ec589)
@@ -37254,6 +37262,9 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=2552149)
     - [paste2](https://paste2.org/2OPm8At5)
     - [upera](https://public.upera.co/f/b4IOkqk2)
+  - Lucky Tower Ultimate Free Download (v1.0.8) | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/lucky-tower-ultimate-free-download/))
+    - [gofile](https://gofile.io/d/XLcGXv)
+    - [megadb](https://megadb.net/2nuu9bmyrde1)
   - Luigi’s Mansion 2 HD, v1.0.0 + Ryujinx/Suyu Switch Emulators | 2024-07-07 ([Source: Fitgirl](https://fitgirl-repacks.site/luigis-mansion-2-hd/))
     - [1337x](https://1337x.to/torrent/6157311/Luigi-s-Mansion-2-HD-v1-0-0-Ryujinx-Suyu-Switch-Emulators-MULTi12-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:6702EAEA1F265D36FE55FBF32B0C229A4FAA3944&dn=Luigi%26%23039%3Bs+Mansion+2+HD+%28v1.0.0+%2B+Ryujinx%2FSuyu+Switch+Emulators%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -48227,6 +48238,10 @@
     - [keeplinks](https://www.keeplinks.org/p16/69c708f05cc73)
     - [filecrypt](https://filecrypt.cc/Container/1F4786EAE5.html)
     - [keeplinks](https://www.keeplinks.org/p16/69c708e75755c)
+  - Planet Coaster 2: Premium Edition – v1.8.2.736960 + 5 DLCs | 2026-04-22 ([Source: Fitgirl](https://fitgirl-repacks.site/planet-coaster-2/))
+    - [1337x](https://1337x.to/torrent/6631112/Planet-Coaster-2-Premium-Edition-v1-8-2-736960-5-DLCs-MULTi14-FitGirl-Hypervisor-Repack/)
+    - <a href="magnet:?xt=urn:btih:0C906F6F8A296AF4672A68E3210F4EEC4FB20D49&dn=Planet+Coaster+2%3A+Premium+Edition+%28v1.8.2.736960+%2B+5+DLCs%2C+MULTi14%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3115410)
   - Planet Coaster Free Download (v1.13.2) | 2025-06-17 ([Source: SteamRIP](https://steamrip.com/planet-coaster-free-download-n1/))
     - [buzzheavier](https://buzzheavier.com/orl2l8tc6zrc)
     - [megadb](https://megadb.net/d/4P)
@@ -62465,6 +62480,9 @@
     - [paste2](https://paste2.org/GZBzFOzN)
     - [pastebin](https://pastebin.com/raw/ntz6mA8P)
     - [filecrypt](https://filecrypt.cc/Container/334A413D2B.html)
+  - SUPER ROBOT WARS Y Free Download | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/super-robot-wars-y-free-download/))
+    - [bzzhr](https://bzzhr.to/vqu7vvebik0j)
+    - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha2/4121eb4c9076b2182172/SUPER-ROBOT-WARS-Y-SteamRIP.com.rar)
   - SUPER ROBOT WARS Y – v1.0.2 + 4 Switch Emulators | 2025-08-30 ([Source: Fitgirl](https://fitgirl-repacks.site/super-robot-wars-y-switch/))
     - [1337x](https://1337x.to/torrent/6474199/SUPER-ROBOT-WARS-Y-v1-0-2-4-Switch-Emulators-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:8A4996DB2C4E7C7C41CB2E32D009B0B4DAA3F859&dn=SUPER+ROBOT+WARS+Y+%28v1.0.2+%2B+4+Switch+Emulators%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -71258,6 +71276,10 @@
     - [megadb](https://megadb.net/vfoxhsiy7x7e)
   - Valley Peaks Free Download | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/valley-peaks-free-download/))
     - [megadb](https://megadb.net/cpt93soy12pz)
+  - Vampire Crawlers Free Download | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/vampire-crawlers-free-download/))
+    - [gofile](https://gofile.io/d/7fKeEW)
+    - [bzzhr](https://bzzhr.to/127evkc3ocmo)
+    - [megadb](https://megadb.net/l0eov08fs4xn)
   - Vampire Hunters Free Download (v1.2.0) | 2025-02-09 ([Source: SteamRIP](https://steamrip.com/vampire-hunters-free-download/))
     - [megadb](https://megadb.net/jw64vot71q12)
   - Vampire Survivors | 2026-02-11 ([Source: Elamigos](https://elamigos.site/data/Vampire_Survivors_MULTi12_-_ElAmigos.html))

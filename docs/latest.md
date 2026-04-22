@@ -1,5 +1,27 @@
 # Latest Games
 
+- Lucky Tower Ultimate Free Download (v1.0.8) | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/lucky-tower-ultimate-free-download/))
+  - [gofile](https://gofile.io/d/XLcGXv)
+  - [megadb](https://megadb.net/2nuu9bmyrde1)
+- SUPER ROBOT WARS Y Free Download | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/super-robot-wars-y-free-download/))
+  - [bzzhr](https://bzzhr.to/vqu7vvebik0j)
+  - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha2/4121eb4c9076b2182172/SUPER-ROBOT-WARS-Y-SteamRIP.com.rar)
+- Vampire Crawlers Free Download | 2026-04-22 ([Source: SteamRIP](https://steamrip.com/vampire-crawlers-free-download/))
+  - [gofile](https://gofile.io/d/7fKeEW)
+  - [bzzhr](https://bzzhr.to/127evkc3ocmo)
+  - [megadb](https://megadb.net/l0eov08fs4xn)
+- Planet Coaster 2: Premium Edition – v1.8.2.736960 + 5 DLCs | 2026-04-22 ([Source: Fitgirl](https://fitgirl-repacks.site/planet-coaster-2/))
+  - [1337x](https://1337x.to/torrent/6631112/Planet-Coaster-2-Premium-Edition-v1-8-2-736960-5-DLCs-MULTi14-FitGirl-Hypervisor-Repack/)
+  - <a href="magnet:?xt=urn:btih:0C906F6F8A296AF4672A68E3210F4EEC4FB20D49&dn=Planet+Coaster+2%3A+Premium+Edition+%28v1.8.2.736960+%2B+5+DLCs%2C+MULTi14%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3115410)
+- ALL WILL FALL – v1.0.1f1 | 2026-04-21 ([Source: Fitgirl](https://fitgirl-repacks.site/all-will-fall/))
+  - [1337x](https://1337x.to/torrent/6631105/ALL-WILL-FALL-v1-0-1f1-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:A081883D174E676A68BDBB9EC730766365015092&dn=ALL+WILL+FALL+%28v1.0.1f1%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1082177/all-will-fall-v1.0.1f1-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:a081883d174e676a68bdbb9ec730766365015092&dn=rutor.info_ALL+WILL+FALL+%5Bv1.0.1f1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3115407)
+  - **Updates**
+    - [All_Will_Fall_Update_v1.0.16-ElAmigos.rar](https://filecrypt.cc/Container/38EB4571A3.html)
 - SONIC SUPERSTARS: Digital Deluxe Edition – Build 20280032 + 10 DLCs | 2026-04-21 ([Source: Fitgirl](https://fitgirl-repacks.site/sonic-superstars-pc/))
   - [1337x](https://1337x.to/torrent/6631102/SONIC-SUPERSTARS-Digital-Deluxe-Edition-Build-20280032-10-DLCs-MULTi13-FitGirl-Hypervisor-Repack/)
   - <a href="magnet:?xt=urn:btih:A01C1B3FCBAB6B3512BDD41145310E6199FCB030&dn=SONIC+SUPERSTARS%3A+Digital+Deluxe+Edition+%28Build+20280032+%2B+10+DLCs%2C+MULTi13%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -102,22 +124,3 @@
   - [rutor](https://rutor.info/torrent/1081452/stellar-tactics-v-1.0-dlc-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:40286a04e694e4ae035b3f3f881416abdf5a50d1&dn=rutor.info_Stellar+Tactics+%5Bv+1.0+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3114767)
-- PGA TOUR 2K25: Pro Edition – Build 21251646 + 14 DLCs* | 2026-04-16 ([Source: Fitgirl](https://fitgirl-repacks.site/pga-tour-2k25/))
-  - [1337x](https://1337x.to/torrent/6627714/PGA-TOUR-2K25-Pro-Edition-Build-21251646-14-DLCs-MULTi9-FitGirl-Hypervisor-Repack/)
-  - <a href="magnet:?xt=urn:btih:DEBFB54FD96DE727412D80A0548BD66D70CB2D38&dn=PGA+TOUR+2K25%3A+Pro+Edition+%28Build+21251646+%2B+14+DLCs%2A%2C+MULTi9%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3114760)
-- MOUSE: P.I. For Hire Free Download | 2026-04-16 ([Source: SteamRIP](https://steamrip.com/mouse-p-i-for-hire-free-download/))
-  - [gofile](https://gofile.io/d/qIqKiA)
-  - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha1/16b53952113e117a7008/MOUSE-PI-FH-SteamRIP.com.rar)
-- Age of History 2: Definitive Edition Free Download | 2026-04-16 ([Source: SteamRIP](https://steamrip.com/age-of-history-2-definitive-edition-free-download/))
-  - [megadb](https://megadb.net/1wpxnqfwchyq)
-- Wicked Seed | 2026-04-16 ([Source: Elamigos](https://elamigos.site/data/Wicked_Seed_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/4EAACBAF37.html)
-  - [keeplinks](https://www.keeplinks.org/p16/699f5ee390d09)
-  - [filecrypt](https://filecrypt.cc/Container/7BE01B2C5F.html)
-  - [keeplinks](https://www.keeplinks.org/p16/699f5edaa7c95)
-- Warhammer 40000 Chaos Gate Daemonhunters Grand Master Edition *Hypervisor* | 2026-04-16 ([Source: Elamigos](https://elamigos.site/data/Warhammer_40000_Chaos_Gate_Daemonhunters_MULTi12_-_ElAmigos.html))
-  - [filecrypt](https://filecrypt.cc/Container/B35C1D46CE.html)
-  - [keeplinks](https://www.keeplinks.org/p16/69d00978aefff)
-  - [filecrypt](https://filecrypt.cc/Container/878BF23A10.html)
-  - [keeplinks](https://www.keeplinks.org/p16/69d0097240980)
