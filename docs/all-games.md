@@ -3210,6 +3210,12 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=2934295)
   - Apex Rush Free Download (Build 22006936) | 2026-02-22 ([Source: SteamRIP](https://steamrip.com/apex-rush-free-download/))
     - [buzzheavier](https://buzzheavier.com/v93ztej7bnv0)
+  - Aphelion: Deluxe Edition – v1.03.1628077 + Bonus Content | 2026-05-01 ([Source: Fitgirl](https://fitgirl-repacks.site/aphelion/))
+    - [1337x](https://1337x.to/torrent/6637369/Aphelion-Deluxe-Edition-v1-03-1628077-Bonus-Content-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:C4CA46BF6434C4466638ACBB9657DAD94FD8862B&dn=Aphelion%3A+Deluxe+Edition+%28v1.03.1628077+%2B+Bonus+Content%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1083615/aphelion-deluxe-edition-v-1.03.1628077-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c4ca46bf6434c4466638acbb9657dad94fd8862b&dn=rutor.info_Aphelion%3A+Deluxe+Edition+%5Bv+1.03.1628077+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117050)
   - APICO Free Download (v4.3.0) | 2024-12-19 ([Source: SteamRIP](https://steamrip.com/apico-free-download-1y/))
     - [megadb](https://megadb.net/7plabo3ohfca)
   - Apocalypse Party Free Download (Build 16145511) | 2024-11-25 ([Source: SteamRIP](https://steamrip.com/apocalypse-party-free-download/))
@@ -9172,6 +9178,10 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic1.php?t=218920)
     - [tapochek](http://tapochek.net/viewtopic.php?p=2515876)
     - [paste2](https://paste2.org/WayNZ5km)
+  - Bus Bound Free Download (Build 22926160) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/bus-bound-free-download/))
+    - [gofile](https://gofile.io/d/GZ7rUU)
+    - [gofile](https://gofile.io/d/M8blNC)
+    - [bzzhr](https://bzzhr.to/8no6k9n059ei)
   - Bus Driver Simulator 2019 | 2021-08-30 ([Source: Elamigos](https://elamigos.site/data/Bus_Driver_Simulator_2019_MULTi14__ElAmigos_-_zMR2dgp0.html))
     - [filecrypt](https://www.filecrypt.cc/Container/76AB98C249.html)
     - [keeplinks](https://www.keeplinks.org/p16/5e9b5831077b4)
@@ -12465,6 +12475,10 @@
     - [keeplinks](https://www.keeplinks.org/p16/69cbb8cedf12d)
     - [filecrypt](https://filecrypt.cc/Container/80BFA2A681.html)
     - [keeplinks](https://www.keeplinks.org/p16/69cbb8c73c9af)
+  - Construction Simulator: Titanium Edition – v1.0.0.4349.173243 + 17 DLCs | 2026-05-01 ([Source: Fitgirl](https://fitgirl-repacks.site/construction-simulator/))
+    - [1337x](https://1337x.to/torrent/6636631/Construction-Simulator-Titanium-Edition-v1-0-0-4349-173243-17-DLCs-MULTi16-FitGirl-Hypervisor-Repack/)
+    - <a href="magnet:?xt=urn:btih:E35F0C27F7AE87D1E0C9C367CFB79EFCFF111F8D&dn=Construction+Simulator%3A+Titanium+Edition+%28v1.0.0.4349.173243+%2B+17+DLCs%2C+MULTi16%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3116889)
   - Constructor HD | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Constructor_HD__ElAmigos_-_uuhudVA2.html))
     - [filecrypt](https://www.filecrypt.cc/Container/98B6DDDEC8.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd31b93c4cc)
@@ -17529,6 +17543,12 @@
     - [1337x](https://1337x.to/torrent/5983789/Don-t-Pee-v1-0-2-Windows-7-Fix-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:DD516583ACEADAC1915B09703043A613C0338D04&dn=Don%26%23039%3Bt+Pee+%28v1.0.2+%2B+Windows+7+Fix%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2962609)
+  - Don’t Play This – v1.2 | 2026-05-01 ([Source: Fitgirl](https://fitgirl-repacks.site/dont-play-this/))
+    - [1337x](https://1337x.to/torrent/6637212/Don-t-Play-This-v1-2-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:56F623DCCB2E1D2F99C3CA2E504265CC66F901D1&dn=Don%26%23039%3Bt+Play+This+%28v1.2%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1083558/dont-play-this-v-1.2-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:56f623dccb2e1d2f99c3ca2e504265cc66f901d1&dn=rutor.info_Don%27t+Play+This+%5Bv+1.2%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3116978)
   - DON’T SCREAM Free Download (v1.0) | 2024-12-30 ([Source: SteamRIP](https://steamrip.com/dont-scream-free-download-s1/))
     - [gofile](https://gofile.io/d/Mz4pgS)
     - [megadb](https://megadb.net/mk4en5hfpphi)
@@ -29447,6 +29467,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5f9385b35)
     - [filecrypt](https://www.filecrypt.cc/Container/BC3C824D71.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5f999ac06)
+  - Heroes of Might and Magic: Olden Era Free Download (v0.80.07 + Multiplayer) | 2026-04-30 ([Source: SteamRIP](https://steamrip.com/heroes-of-might-and-magic-olden-era-free-download/))
+    - [gofile](https://gofile.io/d/8tU0Ds)
+    - [megadb](https://megadb.net/rtmu9n68rkfn)
   - Heroes of Mount Dragon | 2025-07-01 ([Source: Fitgirl](https://fitgirl-repacks.site/heroes-of-mount-dragon/))
     - [1337x](https://1337x.to/torrent/6433878/Heroes-of-Mount-Dragon-MULTi9-FitGirl-Repack-Selective-Download-from-2-1-GB/)
     - <a href="magnet:?xt=urn:btih:7243973145D9F6C23E34FE319C4BA853CD20F16C&dn=Heroes+of+Mount+Dragon+%28MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.1+GB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -31839,6 +31862,12 @@
   - INDUSTRIA 2 Free Download (v1.0.8) | 2026-04-29 ([Source: SteamRIP](https://steamrip.com/industria-2-free-download/))
     - [bzzhr](https://bzzhr.to/to79luk6vl26)
     - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha3/884912bff604b1c8112d/INDUSTRIA-2-SteamRIP.com.rar)
+  - INDUSTRIA 2 – v1.0.8 | 2026-04-30 ([Source: Fitgirl](https://fitgirl-repacks.site/industria-2/))
+    - [1337x](https://1337x.to/torrent/6636405/INDUSTRIA-2-v1-0-8-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:1CDC90595E477BBB7AFB0E7714C7B0E3FF5D7513&dn=INDUSTRIA+2+%28v1.0.8%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1083427/industria-2-v-1.0.8-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:1cdc90595e477bbb7afb0e7714c7b0e3ff5d7513&dn=rutor.info_INDUSTRIA+2+%5Bv+1.0.8%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3116848)
   - INDUSTRIA – v1.3.2 | 2024-06-02 ([Source: Fitgirl](https://fitgirl-repacks.site/industria/))
     - [1337x](https://1337x.to/torrent/6119824/INDUSTRIA-v1-3-2-MULTi10-FitGirl-Repack-Selective-Download-from-5-7-GB/)
     - <a href="magnet:?xt=urn:btih:F44089D1EA49A4C78E4685B81D087419AC22805A&dn=INDUSTRIA+%28v1.3.2%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+5.7+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -32379,6 +32408,10 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=212541)
     - [rutor](http://rutor.info/torrent/508510/investigator-2016-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:0723cd459df823c038de7547a0cc7f53a92bc334&dn=rutor.info_Investigator+%282016%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
+  - Invincible VS Free Download | 2026-04-30 ([Source: SteamRIP](https://steamrip.com/invincible-vs-free-download/))
+    - [gofile](https://gofile.io/d/xPaGZI)
+    - [bzzhr](https://bzzhr.to/f1troafaqz11)
+    - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha3/ca0fb5d7516dbf65943f/Invincible-VS-SteamRIP.com.rar)
   - Invisible Fear + Windows 7 Fix | 2024-02-25 ([Source: Fitgirl](https://fitgirl-repacks.site/invisible-fear/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?542ad7d350611527#CyTHURXDcM6vNtCbAm9nsSmdLPBjtx5wwu1bnfQuCKvR)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a8632f78b34c0d98#6EBDqe4MQYBB13r5UHsNDCrZB9bkYR2vZr2T7dnHVfMQ)
@@ -36581,6 +36614,9 @@
   - Little Nightmares III Free Download (v1.0.0 + Co-op) | 2026-04-09 ([Source: SteamRIP](https://steamrip.com/little-nightmares-iii-free-download/))
     - [filecrypt](https://www.filecrypt.cc/Container/7FC82813A0)
     - [buzzheavier](https://buzzheavier.com/lii80tzxhhqi)
+  - Little Nightmares VR: Altered Echoes Free Download | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/little-nightmares-vr-altered-echoes-free-download/))
+    - [gofile](https://gofile.io/d/jrFxXc)
+    - [bzzhr](https://bzzhr.to/05l44jwnpoe9)
   - Little Nightmares: Complete Edition + OST + Wallpapers | 2018-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/little-nightmares/))
     - [1337x](http://1337x.to/torrent/2820403/Little-Nightmares-Complete-Edition-OST-Wallpapers-MULTi12-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:2FCD7F7427F4EDDF34063FCD17F2D35D8E79456D">Torrent</a>
@@ -41574,6 +41610,10 @@
     - [gofile](https://gofile.io/d/y2CXF8)
     - [gofile](https://gofile.io/d/QvTMuH)
     - [buzzheavier](https://buzzheavier.com/5ad66ootcrxi)
+  - MotoGP 26 + 2 DLCs | 2026-04-30 ([Source: Fitgirl](https://fitgirl-repacks.site/motogp-26/))
+    - [1337x](https://1337x.to/torrent/6636629/MotoGP-26-2-DLCs-MULTi7-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:F06A7B33405EB9F4686A55E4E55F1E7D0C908686&dn=MotoGP+26+%28%2B+2+DLCs%2C+MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3116885)
   - Motor Town: Behind The Wheel Free Download (Build 18502709 + Online) | 2025-06-06 ([Source: SteamRIP](https://steamrip.com/motor-town-behind-the-wheel-free-download-1v/))
     - [buzzheavier](https://buzzheavier.com/jneih65hyolq)
     - [megadb](https://megadb.net/l6dfig5ci0mo)
@@ -43867,6 +43907,9 @@
       - [Night.of.the.Dead.Update.v1.1.1.13-RUNE.rar](https://filecrypt.cc/Container/A30D660F74.html)
       - [Night.of.the.Dead.Update.v1.1.2.0-RUNE.rar](https://filecrypt.cc/Container/39A2542C64.html)
       - [Night.of.the.Dead.Update.v1.2.0.0-RUNE.rar](https://filecrypt.cc/Container/7A1E75826F.html)
+  - Night Shippers Free Download (v1.08 + Online) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/night-shippers-free-download/))
+    - [steamrip](https://steamrip.com/sbox-free-download/)
+    - [bzzhr](https://bzzhr.to/mhv4wt2sm5du)
   - Night Slashers: Remake Free Download (v1.0.4) | 2025-02-21 ([Source: SteamRIP](https://steamrip.com/night-slashers-remake-free-download/))
     - [megadb](https://megadb.net/5ex72no2k7z9)
   - Night Slashers: Remake – v1.0.4 | 2025-02-10 ([Source: Fitgirl](https://fitgirl-repacks.site/night-slashers-remake/))
@@ -45975,6 +46018,8 @@
       - [Out.Of.Hands.Update.v1.0.0.181-TENOKE.rar](https://filecrypt.cc/Container/7A7E67F88E.html)
       - [Out.Of.Hands.Update.v1.0.0.182-TENOKE.rar](https://filecrypt.cc/Container/EAAE2E89BB.html)
       - [Out.Of.Hands.Update.v1.0.0.202-TENOKE.rar](https://filecrypt.cc/Container/7E9C74E5E6.html)
+  - Out of Ore Free Download (Build 22520546) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/out-of-ore-free-download/))
+    - [bzzhr](https://bzzhr.to/vxjk2382k7qg)
   - Out of Sight | 2026-02-24 ([Source: Elamigos](https://elamigos.site/data/Out_of_Sight_MULTi12_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/3112258A3C.html)
     - [keeplinks](https://www.keeplinks.org/p16/68bdb91f1f983)
@@ -48416,6 +48461,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd917f32157)
     - [filecrypt](https://www.filecrypt.cc/Container/211E5CFFFD.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd91861c6f0)
+  - Planetbase Free Download (v1.4.2) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/planetbase-free-download/))
+    - [bzzhr](https://bzzhr.to/xhl4n6e36n8q)
   - Plank Builders | 2024-09-27 ([Source: Fitgirl](https://fitgirl-repacks.site/plank-builders/))
     - [1337x](https://1337x.to/torrent/6225340/Plank-Builders-MULTi21-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:C1727C2F7D788B1C681310739A1221C753F8D10B&dn=Plank+Builders+%28MULTi21%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -49308,6 +49355,10 @@
     - [qiwi](https://qiwi.gg/file/bu398687-Prince-of-Persia-TLC-SteamRIP)
     - [1fichier](https://1fichier.com/?zzxbpurwqc9okrovtjqa)
     - [megadb](https://megadb.net/as9aav37l8vh)
+  - Prince of Persia: The Lost Crown – Complete Edition, Build 17528300 + 5 DLCs + 2 OSTs | 2026-05-01 ([Source: Fitgirl](https://fitgirl-repacks.site/prince-of-persia-the-lost-crown/))
+    - [1337x](https://1337x.to/torrent/6637347/Prince-of-Persia-The-Lost-Crown-Complete-Edition-Build-17528300-5-DLCs-2-OSTs-MULTi14-FitGirl-Hypervisor-Repack-Selective-Download-from-16-6-GB/)
+    - <a href="magnet:?xt=urn:btih:8A1272888A9BB91EEDA6A796ACC70D38ECD50E0D&dn=Prince+of+Persia%3A+The+Lost+Crown+-+Complete+Edition+%28Build+17528300+%2B+5+DLCs+%2B+2+OSTs%2C+MULTi14%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+16.6+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117046)
   - Prince of Persia: The Lost Crown – v1.0.2 + 3 DLCs + Bonus Soundtrack + Ryujinx Switch Emulator | 2024-01-16 ([Source: Fitgirl](https://fitgirl-repacks.site/prince-of-persia-the-lost-crown-switch/))
     - [1337x](https://1337x.to/torrent/5959257/Prince-of-Persia-The-Lost-Crown-v1-0-2-3-DLCs-Bonus-Soundtrack-Ryujinx-Switch-Emulator-MULTi14-FitGirl-Repack-Selective-Download-from-3-6-GB/)
     - <a href="magnet:?xt=urn:btih:4424F2823FD658185CE606E9473159B719B19623&dn=Prince+of+Persia%3A+The+Lost+Crown+%28v1.0.2+%2B+3+DLCs+%2B+Bonus+Soundtrack+%2B+Ryujinx+Switch+Emulator%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.6+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -54361,6 +54412,9 @@
     - [gamesdrive](https://gamesdrive.co/index.php?/topic/487-r%C3%B6ki/)
 
 - Initial: S
+  - s&box Free Download (Build 23018202 + Online) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/sbox-free-download/))
+    - [gofile](https://gofile.io/d/my7kZW)
+    - [bzzhr](https://bzzhr.to/co9ftvb8w2oi)
   - S.E.C.U. – v1.0 (Release) | 2023-12-29 ([Source: Fitgirl](https://fitgirl-repacks.site/s-e-c-u/))
     - [1337x](https://1337x.to/torrent/5939483/S-E-C-U-v1-0-Release-ENG-RUS-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:0A4BE01AE2AF351709AD846D9C4231EF5EB66A51&dn=S.E.C.U.+%28v1.0+Release%2C+ENG%2FRUS%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -56822,6 +56876,10 @@
     - [keeplinks](https://www.keeplinks.org/p16/69d155ec695bf)
     - [filecrypt](https://filecrypt.cc/Container/1584026A32.html)
     - [keeplinks](https://www.keeplinks.org/p16/69d155e403d34)
+  - SHINOBI: Art of Vengeance – Digital Deluxe Edition, Build 22016198 + 6 DLCs/Bonuses | 2026-04-30 ([Source: Fitgirl](https://fitgirl-repacks.site/shinobi-art-of-vengeance-pc/))
+    - [1337x](https://1337x.to/torrent/6636555/SHINOBI-Art-of-Vengeance-Digital-Deluxe-Edition-Build-22016198-6-DLCs-Bonuses-MULTi12-FitGirl-Hypervisor-Repack-Selective-Download-from-2-8-GB/)
+    - <a href="magnet:?xt=urn:btih:494D3EDA86F0E55E43E9A206E6F123EA004A891B&dn=SHINOBI%3A+Art+of+Vengeance+-+Digital+Deluxe+Edition+%28Build+22016198+%2B+6+DLCs%2FBonuses%2C+MULTi12%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+2.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3116863)
   - SHINOBI: Art of Vengeance – v1.01 + 3 DLCs + 4 Switch Emulators | 2025-09-01 ([Source: Fitgirl](https://fitgirl-repacks.site/shinobi-art-of-vengeance/))
     - [1337x](https://1337x.to/torrent/6475150/SHINOBI-Art-of-Vengeance-v1-01-3-DLCs-4-Switch-Emulators-MULTi12-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:67167FDB3683932C9F280E6A0E0E618FCBEF25B1&dn=SHINOBI%3A+Art+of+Vengeance+%28v1.01+%2B+3+DLCs+%2B+4+Switch+Emulators%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -57386,6 +57444,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddda04fc468e)
     - [filecrypt](https://www.filecrypt.cc/Container/09101C9C7A.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddda054b637f)
+  - SimplePlanes 2 Free Download (v0.7.0.0) | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/simpleplanes-2-free-download/))
+    - [bzzhr](https://bzzhr.to/rxi42cgwv7zp)
   - Simpler Times | 2024-06-12 ([Source: Fitgirl](https://fitgirl-repacks.site/simpler-times/))
     - [1337x](https://1337x.to/torrent/6131685/Simpler-Times-MULTi9-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:9C2903D9551FD02D8469CABB5343A0809C51F804&dn=Simpler+Times+%28MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -64854,6 +64914,9 @@
   - TerraTech Free Download (v1.6.7.1) | 2026-02-13 ([Source: SteamRIP](https://steamrip.com/terratech-free-download-t2/))
     - [megadb](https://megadb.net/d0u10t0e24e0)
     - [buzzheavier](https://buzzheavier.com/eoiovf6wy5wy)
+  - TerraTech Legion Free Download | 2026-05-01 ([Source: SteamRIP](https://steamrip.com/terratech-legion-free-download/))
+    - [gofile](https://gofile.io/d/cHI1Wo)
+    - [megadb](https://megadb.net/9xnhptioft9n)
   - Terror Mansion + Windows 7 Fix | 2024-02-12 ([Source: Fitgirl](https://fitgirl-repacks.site/terror-mansion/))
     - [1337x](https://1337x.to/torrent/5988489/Terror-Mansion-Windows-7-Fix-FitGirl-Repack-Selective-Download-from-4-3-GB/)
     - <a href="magnet:?xt=urn:btih:DC705E672B0DA4EEEC81A4D812EE3F2C0E604333&dn=Terror+Mansion+%28%2B+Windows+7+Fix%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.3+GB%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -69005,6 +69068,8 @@
     - [paste2](https://paste2.org/gYX4Wpj8)
     - [goodolddownloads](https://scenegames.goodolddownloads.com/release/The.Spectrum.Retreat-FitGirl/)
     - [upera](https://public.upera.co/f/aIMxq2cm)
+  - The Spell Brigade Free Download (v1.0.1.16617) | 2026-04-30 ([Source: SteamRIP](https://steamrip.com/the-spell-brigade-free-download/))
+    - [megadb](https://megadb.net/keuc0gw0oem2)
   - The Spirit of the Samurai | 2025-10-17 ([Source: Elamigos](https://elamigos.site/data/The_Spirit_of_the_Samurai_MULTi10_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/8CDBF2A63A.html)
     - [keeplinks](https://www.keeplinks.org/p16/69681cf78bf4f)
