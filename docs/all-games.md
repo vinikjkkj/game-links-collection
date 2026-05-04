@@ -16020,6 +16020,8 @@
     - [1337x](https://1337x.to/torrent/6221668/Demolish-Build-3-MULTi8-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:EF69FBBB0FF820A4F04E024DA713608A384E777C&dn=Demolish+%26amp%3B+Build+3+%28MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2999475)
+  - Demon Lord: Just a Block Free Download (v2605022) | 2026-05-04 ([Source: SteamRIP](https://steamrip.com/demon-lord-just-a-block-free-download/))
+    - [megadb](https://megadb.net/d63hnmsjutd5)
   - Demon Skin – v1.1005 | 2021-06-27 ([Source: Fitgirl](https://fitgirl-repacks.site/demon-skin/))
     - [1337x](https://1337x.to/torrent/4903600/Demon-Skin-v1-1005-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:C49D4574D94D7074C3008D3B5ED91A6B6C234905&dn=Demon+Skin+%28v1.1005%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -25502,6 +25504,9 @@
     - [1337x](https://1337x.to/torrent/6170007/Galaia-Windows-7-Fix-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:3C4D3CA87D69771E9707A7952DBF46D3494348EB&dn=Galaia+%28%2B+Windows+7+Fix%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2987743)
+  - Gamble With Your Friends Free Download (v1.0.4 + Co-op) | 2026-05-04 ([Source: SteamRIP](https://steamrip.com/gamble-with-your-friends-free-download/))
+    - [gofile](https://gofile.io/d/XPJcFW)
+    - [megadb](https://megadb.net/gxstlto2pmse)
   - Gamblers Table Free Download | 2026-01-13 ([Source: SteamRIP](https://steamrip.com/gamblers-table-free-download/))
     - [megadb](https://megadb.net/vfr0k0q2u1a1)
     - [vikingfile](https://vikingfile.com/f/0eKw18dCgE)
@@ -26523,6 +26528,8 @@
       - [Goblin.Stone.Update.v1.3.2-TENOKE.rar](https://filecrypt.cc/Container/9D52A997FB.html)
   - Goblin Stone Free Download (v1.0) | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/goblin-stone-free-download/))
     - [megadb](https://megadb.net/nhdkgoy0wzi0)
+  - Goblin Vyke: The Thief Tycoon Free Download (v1.0.11) | 2026-05-04 ([Source: SteamRIP](https://steamrip.com/goblin-vyke-the-thief-tycoon-free-download/))
+    - [megadb](https://megadb.net/3nuegsjx4efi)
   - God Eater 2 Rage Burst | 2017-01-22 ([Source: Elamigos](https://elamigos.site/data/God_Eater_2_Rage_Burst__ElAmigos_-_gvtZefPx.html))
     - [filecrypt](https://www.filecrypt.cc/Container/836B742BCF.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5997d9b80)
@@ -32444,6 +32451,13 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=212541)
     - [rutor](http://rutor.info/torrent/508510/investigator-2016-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:0723cd459df823c038de7547a0cc7f53a92bc334&dn=rutor.info_Investigator+%282016%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
+  - Invincible VS + HotFix + 9 DLCs | 2026-05-04 ([Source: Fitgirl](https://fitgirl-repacks.site/invincible-vs/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0146b6a7543dddee#36yoAwaJkyriPyGV3s4eXnUJVvpCjYfgVJoJMFeC1RGi)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?467c0c5755e21d7f#5Pbb4DxWPqJicU9bsu9KCq7tf2nphxpKocEFkTLnS3FQ)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?149076de9322f171#J6xKb3C1cLXPWZEADpcVkXhmvY9UKEf5Bc5d1tjxht8a)
+    - [1337x](https://1337x.to/torrent/6638720/Invincible-VS-HotFix-9-DLCs-MULTi6-FitGirl-Repack-Selective-Download-from-6-9-GB/)
+    - <a href="magnet:?xt=urn:btih:D8079C5082E9D862B21A2D26F03C9AF2659080B5&dn=Invincible+VS+%28%2B+HotFix+%2B+9+DLCs%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+6.9+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117321)
   - Invincible VS Free Download | 2026-04-30 ([Source: SteamRIP](https://steamrip.com/invincible-vs-free-download/))
     - [gofile](https://gofile.io/d/xPaGZI)
     - [bzzhr](https://bzzhr.to/f1troafaqz11)
@@ -66931,6 +66945,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?306a98ba030d95f8#8YLvTyh5DGVVArBvkVhjKxV1MXr1rHKCnm6Jd4LX7Byw)
   - The House of Da Vinci 3 Free Download (v1.0.5) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/the-house-of-da-vinci-3-free-download-u1/))
     - [megadb](https://megadb.net/qzwn4i9p3gy5)
+  - The House of Hikmah | 2026-05-04 ([Source: Fitgirl](https://fitgirl-repacks.site/the-house-of-hikmah/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?55d6d8fe7f42e506#FXMdbmXAdjRY8owJTFYotYhqyjxWvuVnfxkX6Bzfp9oD)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f2e9b3d3a34d85be#2WffcV4mxRKEqBa3NzQDhHDDVmNYMMkqcbQmrMVDTDVs)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a4123ba3e9dab694#8mbCLE6fWkBxonoPDiZqjhXFKgANxX65m8D3XBSyD1Cp)
+    - [1337x](https://1337x.to/torrent/6639498/The-House-of-Hikmah-ENG-ARA-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:8F79F66E633D165F3782BC3028714541F8027B03&dn=The+House+of+Hikmah+%28ENG%2FARA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117436)
   - The House of Tesla Free Download (v109) | 2026-03-12 ([Source: SteamRIP](https://steamrip.com/the-house-of-tesla-free-download/))
     - [gofile](https://gofile.io/d/GLSdaP)
     - [buzzheavier](https://buzzheavier.com/wesublutowrt)
