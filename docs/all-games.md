@@ -19509,6 +19509,12 @@
     - [rutor](http://rutor.info/torrent/940526/ea-sports-fifa-23-v-1.0.82.43747-2022-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:50b8bcf39d789fb5469e1fb6b8cab629f44e7f66&dn=rutor.info_EA+SPORTS+FIFA+23+%5Bv+1.0.82.43747%5D+%282022%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2934136)
+  - EA SPORTS Madden NFL 25 – v1.0.126.45281 | 2026-05-08 ([Source: Fitgirl](https://fitgirl-repacks.site/ea-sports-madden-nfl-25/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9d09bd33e2269690#GbS8hYJwea6LiYdwtFt9K5T1f12eUYAB34rHMojreDFz)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8a918e323a56d2d4#8Zv4mnJ4ZUH8re5qRs3QjQaLYX9ZxMpHrsAc8mq6TjaX)
+    - [1337x](https://1337x.to/torrent/6641831/EA-SPORTS-Madden-NFL-25-v1-0-126-45281-FitGirl-Hypervisor-Repack/)
+    - <a href="magnet:?xt=urn:btih:FB39E4BEB852A44332C5D6344099D7038E16D7C9&dn=EA+SPORTS+Madden+NFL+25+%28v1.0.126.45281%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3118058)
   - EA Sports Madden NFL 26 *Hypervisor* | 2026-03-18 ([Source: Elamigos](https://elamigos.site/data/EA_Sports_Madden_NFL_26_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/D41C8916F6.html)
     - [keeplinks](https://www.keeplinks.org/p16/69d515bf739c5)
@@ -33208,6 +33214,13 @@
     - [buzzheavier](https://buzzheavier.com/xke0r2ytgrea)
     - [1fichier](https://1fichier.com/?r5eqb0wfzsjg10nis1je)
     - [megadb](https://megadb.net/fl4fqs3a4iu3)
+  - Judgment – v1.12 + Bonus Soundtracks | 2026-05-08 ([Source: Fitgirl](https://fitgirl-repacks.site/judgment/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9c3c28c910a0dec0#8R1nJ4Yobu9swV48uNRwFUsaUT4MarAbbPKZKmE3dqLU)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?45750960768754d5#Bdi8xevjwrMwthPYhoBS7Vt2bJBY96MvHcjusQeZowtR)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a609ff8235af3658#87dk5KDcF24JVYTbPVwJaW5Cf2D7FJA6Sccv4HbTHfsL)
+    - [1337x](https://1337x.to/torrent/6641352/Judgment-v1-12-Bonus-Soundtracks-MULTi10-FitGirl-Hypervisor-Repack-Selective-Download-from-19-2-GB/)
+    - <a href="magnet:?xt=urn:btih:283FCEF7310A40648A8E57523B9C78B99AF31731&dn=Judgment+%28v1.12+%2B+Bonus+Soundtracks%2C+MULTi10%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+19.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117946)
   - Judgment: Apocalypse Survival Simulation | 2023-07-25 ([Source: Elamigos](https://elamigos.site/data/Judgment_Apocalypse_Survival_Simulation_MULTi7__ElAmigos_-_3XttvjYG.html))
     - [filecrypt](https://www.filecrypt.cc/Container/DD97626BE7.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd64bb60ad5)
@@ -35311,6 +35324,15 @@
     - [rutor](http://rutor.info/torrent/1052644/lawn-mowing-simulator-complete-edition-v-1.0.15.0-dlcs-2021-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:b021375979300708380bd34476333be9f8d916b8&dn=rutor.info_Lawn+Mowing+Simulator%3A+Complete+Edition+%5Bv+1.0.15.0+%2B+DLCs%5D+%282021%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3075461)
+  - Lay of the Land | 2026-05-08 ([Source: Fitgirl](https://fitgirl-repacks.site/lay-of-the-land/))
+    - [datanodes](https://datanodes.to/cedo7x7jqqng/Lay_of_the_Land_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/guot9ubc06b0#Lay_of_the_Land_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/0e4f19609b91fdf78dea7f408584e2e9/Lay_of_the_Land_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6641796/Lay-of-the-Land-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:C80BE2B5C711D863B76E29E68D0121BF65FB937F&dn=Lay+of+the+Land+%28MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1084494/lay-of-the-land-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c80be2b5c711d863b76e29e68d0121bf65fb937f&dn=rutor.info_Lay+of+the+Land+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3118033)
   - Lay of the Land Free Download | 2026-04-13 ([Source: SteamRIP](https://steamrip.com/lay-of-the-land-free-download/))
     - [gofile](https://gofile.io/d/Gpn44C)
     - [megadb](https://megadb.net/wb25zy0spm9b)
@@ -65924,6 +65946,15 @@
     - [paste2](https://paste2.org/IeOkXvKd)
     - [pastebin](https://pastebin.com/raw/x9evNF7M)
     - [filecrypt](https://filecrypt.cc/Container/3C6601500F.html)
+  - The Coma 3: Bloodlines – v1.1.1 + 9 DLCs/Bonuses | 2026-05-08 ([Source: Fitgirl](https://fitgirl-repacks.site/the-coma-3-bloodlines/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?aff0e8d797905271#EWkspHzNeywAoVpZEt9ji4C19JPDtjT9wb9Bn2pkNPm)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?901806679f3fa621#7HwujQ5e2CGajdvPXUE1YiXkBgeXZDpBjV7j7kc68pKk)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?23035edf2820a7f2#GWr8m69qaSYN4yjh6T31iYin1okVAAgJs2BKxy3i1RVz)
+    - [1337x](https://1337x.to/torrent/6641364/The-Coma-3-Bloodlines-v1-1-1-9-DLCs-Bonuses-MULTi11-FitGirl-Repack-Selective-Download-from-2-8-GB/)
+    - <a href="magnet:?xt=urn:btih:E3CDD02896849A17B03ADEBAA7F2B14C82157C83&dn=The+Coma+3%3A+Bloodlines+%28v1.1.1+%2B+9+DLCs%2FBonuses%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1084379/the-coma-3-bloodlines-v-1.1.1-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:e3cdd02896849a17b03adebaa7f2b14c82157c83&dn=rutor.info_The+Coma+3%3A+Bloodlines+%5Bv+1.1.1+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3117950)
   - The Companion – v1.22 + Bonus Soundtrack | 2022-12-27 ([Source: Fitgirl](https://fitgirl-repacks.site/the-companion/))
     - [1337x](https://1337x.to/torrent/5499827/The-Companion-v1-22-Bonus-Soundtrack-MULTi11-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:075E060767EAC4C93AA498BDF8C3817F7E7D34F0&dn=The+Companion+%28v1.22+%2B+Bonus+Soundtrack%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -72512,6 +72543,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde48d174e4c)
   - Will You Snail? Free Download | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/will-you-snail-free-download-1z/))
     - [megadb](https://megadb.net/n1x7v0shnkaw)
+  - WILL: Follow the Light Free Download | 2026-05-08 ([Source: SteamRIP](https://steamrip.com/will-follow-the-light-free-download/))
+    - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha4/64d66689ede056518fa2/WILL-FtL-SteamRIP.com.rar)
+    - [bzzhr](https://bzzhr.to/7jda10114cv0)
   - Willy’s Wonderland – The Game Free Download | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/willys-wonderland-the-game-free-download/))
     - [megadb](https://megadb.net/xu3jk7gxd26k)
   - Windbound | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Windbound_MULTi10__ElAmigos_-_DrMbqbNQ.html))
