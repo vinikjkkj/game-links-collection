@@ -27795,6 +27795,14 @@
     - [gofile](https://gofile.io/d/BFemNl)
     - [datanodes](https://datanodes.to/eofyok30u282)
     - [buzzheavier](https://buzzheavier.com/a1akgibamub3)
+  - Ground Zero – Patch 1 | 2026-05-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ground-zero/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d437129a169f6cf2#6sEP3hriRG5yqcYnhpur4AC1RTMXhtFW2vmXB791RfaV)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1411759b604bb6b5#AC6xQhPP37i9ZDKCUrqR831vTDh2sa1UXp4XyGuurr5E)
+    - [1337x](https://1337x.to/torrent/6643805/Ground-Zero-Patch-1-MULTi10-FitGirl-Repack-Selective-Download-from-15-8-GB/)
+    - <a href="magnet:?xt=urn:btih:B3EADDE6B671CE308D97B9E0A45AA1964D9E0ABD&dn=Ground+Zero+%28Patch+1%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+15.8+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1085000/ground-zero-patch-1-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:b3eadde6b671ce308d97b9e0a45aa1964d9e0abd&dn=rutor.info_Ground+Zero+%5BPatch+1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3118765)
   - Grounded | 2025-05-12 ([Source: Elamigos](https://elamigos.site/data/Grounded_MULTi16_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/5C0B479EB5.html)
     - [keeplinks](https://www.keeplinks.org/p16/633333046a800)
@@ -29350,6 +29358,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3024414)
     - **Updates**
       - [Hellbreach.Vegas.Update.v1.0.5-RUNE.rar](https://filecrypt.cc/Container/4EA44BF010.html)
+  - HELLBREAK – v1.0 (Release) + Bonus OST | 2026-05-11 ([Source: Fitgirl](https://fitgirl-repacks.site/hellbreak/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0740005c1ce2c5bf#BhZytwSiW72HLLTAfYmjZdwvGzGYnwGgCSN4MVzFNVuf)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9eb6104af5f593b7#C2CRRg4MDwDs2wqcsR2JnH9JzBr4W1HJa64cBTCMrmw1)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5da65dcc3c66be22#Ew5bj3PhdqzakgmA1FwzZt3r7CB4kNM5Z8g5ZppiqgQ4)
+    - [1337x](https://1337x.to/torrent/6643749/HELLBREAK-v1-0-Release-Bonus-OST-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:401090D2E977FA6F6C49C0E0B78ADDEDFDE63F62&dn=HELLBREAK+%28v1.0%2FRelease+%2B+Bonus+OST%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1084994/hellbreak-v-1.0-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:401090d2e977fa6f6c49c0e0b78addedfde63f62&dn=rutor.info_HELLBREAK+%5Bv+1.0+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3118736)
   - HELLCARD & DLC Bundle – v1.1.250731 + 4 DLCs/Bonuses | 2025-08-04 ([Source: Fitgirl](https://fitgirl-repacks.site/hellcard/))
     - [1337x](https://1337x.to/torrent/6456415/HELLCARD-DLC-Bundle-v1-1-250731-4-DLCs-Bonuses-MULTi14-FitGirl-Repack-Selective-Download-from-832-MB/)
     - <a href="magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE&dn=HELLCARD+%26amp%3B+DLC+Bundle+%28v1.1.250731+%2B+4+DLCs%2FBonuses%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+832+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -36563,6 +36580,13 @@
     - [keeplinks](https://www.keeplinks.org/p16/69dab63172cc6)
     - [filecrypt](https://filecrypt.cc/Container/EB507B97A1.html)
     - [keeplinks](https://www.keeplinks.org/p16/69dab62891d2b)
+  - Like a Dragon Gaiden: The Man Who Erased His Name – Digital Deluxe Edition, v1.22 + DLC + Bonus OST | 2026-05-11 ([Source: Fitgirl](https://fitgirl-repacks.site/like-a-dragon-gaiden-the-man-who-erased-his-name/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b95d828f5285e2b0#9S6SUQnAR6c2iM2GjYS3ivCzZXXMbChhBWxKvmmmhvXr)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7c8f5ea05ec928b9#4iHmMfESHer6ypZtfd1VnStfqvY8pvqrczViipmB6gvG)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8eda657e0959459f#771AGo6DUS27CDFMCYHRw8GuUoJpMEpuoRnMW63fNgte)
+    - [1337x](https://1337x.to/torrent/6643217/Like-a-Dragon-Gaiden-The-Man-Who-Erased-His-Name-Digital-Deluxe-Edition-v1-22-DLC-Bonus-OST-MULTi11-FitGirl-Hypervisor-Repack-Selective-Download-from-36-9-GB/)
+    - <a href="magnet:?xt=urn:btih:9EDEC83578C242AFEFD8E7DE62FB1B39D4324CB6&dn=Like+a+Dragon+Gaiden%3A+The+Man+Who+Erased+His+Name+-+Digital+Deluxe+Edition+%28v1.22+%2B+DLC+%2B+Bonus+OST%2C+MULTi11%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+36.9+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3118441)
   - Like a Dragon Infinite Wealth Ultimate Edition *Hypervisor* | 2025-03-24 ([Source: Elamigos](https://elamigos.site/data/Like_a_Dragon_Infinite_Wealth_Ultimate_Edition_MULTi11_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/3EA3967D39.html)
     - [keeplinks](https://www.keeplinks.org/p16/69c1b0315812a)
@@ -46263,6 +46287,9 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?ca9f50e09528a596#GzGLXK2eBbxzA4WrUrQyY6VQNc3VFycBaj5gjx85gieY)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?253ff5d8642edb00#D5HENhh8VRyhKngHkNie9jSLm3Uhuh5svyYN3ttaz4Yr)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?5f734e30c2b692ad#8MmNTBsS6fP1h1jA7Z3YZMUGBGMPHfPVgE5BWsqRici6)
+  - Outbound Free Download | 2026-05-11 ([Source: SteamRIP](https://steamrip.com/outbound-free-download/))
+    - [gofile](https://gofile.io/d/zCnxPk)
+    - [megadb](https://megadb.net/pwm60jeoojbr)
   - Outbreak 2030 – v0.6 | 2023-06-30 ([Source: Fitgirl](https://fitgirl-repacks.site/outbreak-2030/))
     - [1337x](https://1337x.to/torrent/5709147/Outbreak-2030-v0-6-FitGirl-Repack-Selective-Download-from-12-5-GB/)
     - <a href="magnet:?xt=urn:btih:D1BDC223EB8D59C26ACACFCF629E77F68532E466&dn=Outbreak+2030+%28v0.6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+12.5+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2770%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2720%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -58147,6 +58174,8 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3081549)
     - **Updates**
       - [Sledders.Update.v1.1.4-RUNE (3 parts)](https://filecrypt.cc/Container/DC360F305C.html)
+  - Sledding Game Free Download (Build 30042026 + Co-op) | 2026-05-11 ([Source: SteamRIP](https://steamrip.com/sledding-game-free-download/))
+    - [megadb](https://megadb.net/sb1kq1xzaxey)
   - SLEEP AWAKE Free Download | 2025-12-03 ([Source: SteamRIP](https://steamrip.com/sleep-awake-free-download/))
     - [buzzheavier](https://buzzheavier.com/y4kre5k21ql6)
   - SLEEP AWAKE – v1.0-43669 | 2025-12-05 ([Source: Fitgirl](https://fitgirl-repacks.site/sleep-awake/))
