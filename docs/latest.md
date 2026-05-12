@@ -1,5 +1,21 @@
 # Latest Games
 
+- Directive 8020: Deluxe Edition + DLC | 2026-05-12 ([Source: Fitgirl](https://fitgirl-repacks.site/directive-8020/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?122db73e8434d250#3ZYQZJrDGjtLMCGPYL6Kwr7yFDTNvP6iWb6u7QkEVzsZ)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?585b4383aa8105c0#4nfJd6rJCTp2yXmJVMtf3NntoSYPwMbu9qAHwAf5zz94)
+  - [1337x](https://1337x.to/torrent/6644714/Directive-8020-Deluxe-Edition-DLC-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:518A2BB39DF08BB00B8C1C354FBB227C4B6F3A50&dn=Directive+8020%3A+Deluxe+Edition+%28%2B+DLC%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1085159/directive-8020-deluxe-edition-v-23196603-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:518a2bb39df08bb00b8c1c354fbb227c4b6f3a50&dn=rutor.info_Directive+8020%3A+Deluxe+Edition+%5Bv+23196603%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3118956)
+- The Awakener: Battle Tendency | 2026-05-12 ([Source: Fitgirl](https://fitgirl-repacks.site/the-awakener-battle-tendency/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e20fc34240b1a24d#HFzFqhqKpWRGJZ3WUEvbUW7PussMruqcC3ijAdZjaCK2)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4a19f526eb7eaf81#BzvMs3MGAzJ62VyYyBQpuAa7Pzd6nfA75t6Rz8vi1RYX)
+  - [1337x](https://1337x.to/torrent/6644528/The-Awakener-Battle-Tendency-MULTi11-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:8BE97EEEFC44A461C3904C45175531D583860D06&dn=The+Awakener%3A+Battle+Tendency+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1085129/the-awakener-battle-tendency-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:8be97eeefc44a461c3904c45175531d583860d06&dn=rutor.info_The+Awakener%3A+Battle+Tendency+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3118940)
 - Ground Zero – Patch 1 | 2026-05-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ground-zero/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d437129a169f6cf2#6sEP3hriRG5yqcYnhpur4AC1RTMXhtFW2vmXB791RfaV)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1411759b604bb6b5#AC6xQhPP37i9ZDKCUrqR831vTDh2sa1UXp4XyGuurr5E)
@@ -168,13 +184,3 @@
 - Farever Free Download (v0.1.0.25356) | 2026-05-06 ([Source: SteamRIP](https://steamrip.com/farever-free-download/))
   - [gofile](https://gofile.io/d/DbMBtK)
   - [megadb](https://megadb.net/peecrqlttrkg)
-- MUSYNX:RETURN | 2026-05-06 ([Source: Fitgirl](https://fitgirl-repacks.site/musynx-return/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3d249ac275fdc569#AxAaW5PFPAVxoybzdH6nYhS57J1ZettT8hauMCEiTtsC)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e0fec3e6484bc82e#F8BXnvdCDQL1Qyavcu6YuvJf2Q37Ct3UjMP5VDntJZBu)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0b595234f455d6c8#3X17iN52jhDHebm6owrsK9NkzcthqW9vjLiLMipNr7mT)
-  - [1337x](https://1337x.to/torrent/6640762/MUSYNX-RETURN-MULTi5-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:461A924E682999692E1D62A11EDF43B52FBCADC8&dn=MUSYNX%3ARETURN+%28MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3117759)
-- Gambonanza Free Download (Build 23029088) | 2026-05-06 ([Source: SteamRIP](https://steamrip.com/gambonanza-free-download/))
-  - [megadb](https://megadb.net/atvj81j93y87)
-  - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha3/14d833ac29b147962e5b/Gambonanza-SteamRIP.com.rar)
