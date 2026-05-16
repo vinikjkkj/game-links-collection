@@ -1,5 +1,25 @@
 # Latest Games
 
+- BRUTUS MAXIMUS – v1.0.24.2 | 2026-05-16 ([Source: Fitgirl](https://fitgirl-repacks.site/brutus-maximus/))
+  - [datanodes](https://datanodes.to/qg3uysqqtutm/BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/9oqivc0uln2n#BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/5664b5d64b84b7e660a201438725eb44/BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6647145/BRUTUS-MAXIMUS-v1-0-24-2-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:FE657E98F145E61F513E7AA8064418B92AB34D59&dn=BRUTUS+MAXIMUS+%28v1.0.24.2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3119926)
+- Directive 8020 Free Download | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/directive-8020-free-download/))
+  - [bzzhr](https://bzzhr.to/07z3cu2oh8mw)
+- Hotel Architect Free Download (v1.0) | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/hotel-architect-free-download/))
+  - [megadb](https://megadb.net/gskx5blfsmhs)
+- Call of the Elder Gods – v0.0.0.279 | 2026-05-15 ([Source: Fitgirl](https://fitgirl-repacks.site/call-of-the-elder-gods/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e8f5adab1ee0a449#5bThgTjhjr3tMhQBicz3MBccVXgMqWrBUbWtZ6N1dSVi)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?370a7ab3eba6052b#F8g4MXsXatdW19uKCF2EPiVZGZdQmnYaQnGymUaBHB5y)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?23a96d414b0eb996#BBpoxWgJFX4HnzSduPDZHvSy6tmBRwMgqLy1N6jwrwTv)
+  - [1337x](https://1337x.to/torrent/6646755/Call-of-the-Elder-Gods-v0-0-0-279-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:ACB6DF92B72398F0066B1A1F258EB3C48E4A8DD7&dn=Call+of+the+Elder+Gods+%28v0.0.0.279%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1085575/call-of-the-elder-gods-v-0.0.0.279-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:acb6df92b72398f0066b1a1f258eb3c48e4a8dd7&dn=rutor.info_Call+of+the+Elder+Gods+%5Bv+0.0.0.279%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3119760)
 - Demon Slayer ~Kimetsu no Yaiba~ Sweep the Board! – v1.21 + 2 DLCs | 2026-05-15 ([Source: Fitgirl](https://fitgirl-repacks.site/demon-slayer-kimetsu-no-yaiba-sweep-the-board/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8dd74a165e403293#9UReVo9w9sq7QhkT4wYE2YoDeELC4P9TEPG98BE6GLwW)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a750665e02700f00#CoZjkYLm9RghWSMa6V5ExZXrEbjADYqAjKmGxmTcgMh9)
@@ -157,26 +177,3 @@
   - [rutor](https://rutor.info/torrent/1084805/shooting-range-simulator-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:9e11bcf7596212104f7b811e52b2550ca602728b&dn=rutor.info_Shooting+Range+Simulator+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3118376)
-- DarkSwitch – vR26.0408.9102 | 2026-05-10 ([Source: Fitgirl](https://fitgirl-repacks.site/darkswitch/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c38fc16eb671ab62#FbLRPdQbY4bEpDzU9UmtWmVjtgPCserpDpiD1eiVacs2)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1a52c2418a7ea7e9#4iapaR7x69n2A1P96pHbpshN1BUCf49e1PfihVmVaSPy)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0cd4ca7878b52611#7mFzLmKAn1zXtF8YR2yLpJkrDqTjMwGr4DSf1kFi7SBg)
-  - [1337x](https://1337x.to/torrent/6642583/DarkSwitch-vR26-0408-9102-MULTi6-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:655ABE984BCBD8D31AEA1270A03D11F3937A37B3&dn=DarkSwitch+%28vR26.0408.9102%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1084673/darkswitch-v-r26.0408.9102-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:655abe984bcbd8d31aea1270a03d11f3937a37b3&dn=rutor.info_DarkSwitch+%5Bv+R26.0408.9102%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3118280)
-- CarX Drift Racing Online 2 Free Download (Build 23132110 + Online) | 2026-05-09 ([Source: SteamRIP](https://steamrip.com/carx-drift-racing-online-2-free-download/))
-  - [gofile](https://gofile.io/d/QOnVF5)
-  - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha4/7d775338d7726cecf08f/CarX-Drift-Racing-Online2-SteamRIP.com.rar)
-  - [bzzhr](https://bzzhr.to/52nr93bzsp34)
-- Everything is Crab: The Animal Evolution Roguelite Free Download | 2026-05-09 ([Source: SteamRIP](https://steamrip.com/everything-is-crab-the-animal-evolution-roguelite-free-download/))
-  - [gofile](https://gofile.io/d/nCqyj5)
-  - [megadb](https://megadb.net/4k8ex4xlwerd)
-- Persona 5 Tactica: Digital Deluxe Edition, Build 20538850 + 4 DLCs + Bonus Soundtrack | 2026-05-09 ([Source: Fitgirl](https://fitgirl-repacks.site/persona-5-tactica-pc/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?540ef0fad79cfa9b#8eBaYa89sNRS1XGcwAUwHZ8kdsmxCaA63tU71JthpMxs)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?240cd6ae2e666cf7#FDJn7QwZGoJpcfBPPox97qxnK1Zn7K8o4AaEYqUf3J66)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?738e066921b7f154#FVuvATmG3r9DncDDuVbmYyPv2bsh6LKHLxVRuUXpd8Ag)
-  - [1337x](https://1337x.to/torrent/6641900/Persona-5-Tactica-Digital-Deluxe-Edition-Build-20538850-4-DLCs-Bonus-Soundtrack-MULTi13-FitGirl-Hypervisor-Repack-Selective-Download-from-11-2-GB/)
-  - <a href="magnet:?xt=urn:btih:35C4366C9155F0E976AD86942A164DE1E35A1BBF&dn=Persona+5+Tactica%3A+Digital+Deluxe+Edition+%28Build+20538850+%2B+4+DLCs+%2B+Bonus+Soundtrack%2C+MULTi13%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+11.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3118101)

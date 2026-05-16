@@ -8909,6 +8909,13 @@
   - BRUTALISTICK VR Free Download | 2025-06-25 ([Source: SteamRIP](https://steamrip.com/brutalistick-vr-free-download/))
     - [megadb](https://megadb.net/1mg97dwbsm67)
     - [buzzheavier](https://buzzheavier.com/n4g2p8rbaisp)
+  - BRUTUS MAXIMUS – v1.0.24.2 | 2026-05-16 ([Source: Fitgirl](https://fitgirl-repacks.site/brutus-maximus/))
+    - [datanodes](https://datanodes.to/qg3uysqqtutm/BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/9oqivc0uln2n#BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/5664b5d64b84b7e660a201438725eb44/BRUTUS_MAXIMUS_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6647145/BRUTUS-MAXIMUS-v1-0-24-2-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:FE657E98F145E61F513E7AA8064418B92AB34D59&dn=BRUTUS+MAXIMUS+%28v1.0.24.2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3119926)
   - Bubsy in: The Purrfect Collection | 2025-09-15 ([Source: Fitgirl](https://fitgirl-repacks.site/bubsy-in-the-purrfect-collection/))
     - [1337x](https://1337x.to/torrent/6483671/Bubsy-in-The-Purrfect-Collection-FitGirl-Repack-Selective-Download-from-544-MB/)
     - <a href="magnet:?xt=urn:btih:F2518DDF51FF06C3F76D1750BC58AFD46953ACEE&dn=Bubsy+in%3A+The+Purrfect+Collection+%5BFitGirl+Repack%2C+Selective+Download+-+from+544+MB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -9809,6 +9816,15 @@
   - Call of the Elder Gods Free Download | 2026-05-13 ([Source: SteamRIP](https://steamrip.com/call-of-the-elder-gods-free-download/))
     - [bzzhr](https://bzzhr.to/azezj0o5aq0k)
     - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha4/3fa18559ae4ced69a3d5/Call-of-the-Elder-Gods-SteamRIP.com.rar)
+  - Call of the Elder Gods – v0.0.0.279 | 2026-05-15 ([Source: Fitgirl](https://fitgirl-repacks.site/call-of-the-elder-gods/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e8f5adab1ee0a449#5bThgTjhjr3tMhQBicz3MBccVXgMqWrBUbWtZ6N1dSVi)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?370a7ab3eba6052b#F8g4MXsXatdW19uKCF2EPiVZGZdQmnYaQnGymUaBHB5y)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?23a96d414b0eb996#BBpoxWgJFX4HnzSduPDZHvSy6tmBRwMgqLy1N6jwrwTv)
+    - [1337x](https://1337x.to/torrent/6646755/Call-of-the-Elder-Gods-v0-0-0-279-MULTi14-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:ACB6DF92B72398F0066B1A1F258EB3C48E4A8DD7&dn=Call+of+the+Elder+Gods+%28v0.0.0.279%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1085575/call-of-the-elder-gods-v-0.0.0.279-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:acb6df92b72398f0066b1a1f258eb3c48e4a8dd7&dn=rutor.info_Call+of+the+Elder+Gods+%5Bv+0.0.0.279%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3119760)
   - Call of the Sea | 2021-07-19 ([Source: Elamigos](https://elamigos.site/data/Call_of_the_Sea_MULTi14__ElAmigos_-_9vbVkFMP.html))
     - [filecrypt](https://www.filecrypt.cc/Container/425CD83F68.html)
     - [keeplinks](https://www.keeplinks.org/p16/5fcfdf62c534b)
@@ -16919,6 +16935,8 @@
     - **Updates**
       - [Diplomacy.is.Not.an.Option.Update.v1.0.119-TENOKE.rar](https://filecrypt.cc/Container/C557D5EDFC.html)
       - [Diplomacy.is.Not.an.Option.Update.v1.0.134-TENOKE.rar](https://filecrypt.cc/Container/160FD2E8B9.html)
+  - Directive 8020 Free Download | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/directive-8020-free-download/))
+    - [bzzhr](https://bzzhr.to/07z3cu2oh8mw)
   - Directive 8020: Deluxe Edition + DLC | 2026-05-12 ([Source: Fitgirl](https://fitgirl-repacks.site/directive-8020/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?122db73e8434d250#3ZYQZJrDGjtLMCGPYL6Kwr7yFDTNvP6iWb6u7QkEVzsZ)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?585b4383aa8105c0#4nfJd6rJCTp2yXmJVMtf3NntoSYPwMbu9qAHwAf5zz94)
@@ -30656,6 +30674,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?c04c7c8f123ba2a1#ALtfR1gZtQyYnWzaeBz96sf3ASgoyi6ZK9NbvYs7DWvV)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?85bd693378d99cdc#8toyAjjDTiuFbEgbkLGWnqGU9AFkEUFwtLqVUcSRGxXc)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?03bb1f0582b0b19b#3NffAwYSq8VA78zXcaGvyiJt954QeCeuwVzW6DSQgeQt)
+  - Hotel Architect Free Download (v1.0) | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/hotel-architect-free-download/))
+    - [megadb](https://megadb.net/gskx5blfsmhs)
   - HOTEL BARCELONA – v1.0.1 | 2025-09-27 ([Source: Fitgirl](https://fitgirl-repacks.site/hotel-barcelona/))
     - [1337x](https://1337x.to/torrent/6491837/HOTEL-BARCELONA-v1-0-1-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:B111325AD7620D2869063ED383BD31E81008E1AA&dn=HOTEL+BARCELONA+%28v1.0.1%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
