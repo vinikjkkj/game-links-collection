@@ -1152,6 +1152,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?46a28cc408c09b96#3Ai69W9dSbENG83qWDjX4BJ8dfNiY3mcNYpK8CsA3haX)
     - [crackhub](https://crackhub.site/adeptus-titanicus-dominus-fitgirl-repack/)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?ab9a07f7324d4d98#38VRD4czfRAW5ozET9cfsoAY2QTV8cijSHSZwpid4qLn)
+  - Adorable Adventures – v1.0.3.8312 | 2026-05-18 ([Source: Fitgirl](https://fitgirl-repacks.site/adorable-adventures/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8f9c82b39fd3376c#Ej29Ep5jerLqTeYZYXQ5gCDzPftPPR2GDsRxCm6wDRYW)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fe5f02d5a1014778#BTHoeeUxnb6VwCeTRZmuUY32xWSZthWyQqWqAYkZKU58)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?85359e0ce81a2fae#3n9fSxaFxxUw4vNYmjFimSvqrZd2DoMThDXfPByozzZd)
+    - [1337x](https://1337x.to/torrent/6648764/Adorable-Adventures-v1-0-3-8312-MULTi25-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:36EF7B121BCC17E9503CB6EFF7B51E1DE45B5620&dn=Adorable+Adventures+%28v1.0.3.8312%2C+MULTi25%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1085962/adorable-adventures-v-1.0.3.8312-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:36ef7b121bcc17e9503cb6eff7b51e1de45b5620&dn=rutor.info_Adorable+Adventures+%5Bv+1.0.3.8312%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3120360)
   - Adore Free Download (v1.0) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/adore-free-download-1k/))
     - [megadb](https://megadb.net/a6mk8q53qvv5)
   - Adore – v1.0 (Release) | 2023-08-04 ([Source: Fitgirl](https://fitgirl-repacks.site/adore/))
@@ -12584,6 +12593,13 @@
   - Content King Free Download (Build 22546393) | 2026-04-11 ([Source: SteamRIP](https://steamrip.com/content-king-free-download/))
     - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha1/6638e0ebf3a636666f38/Content.King-SteamRIP.com.rar)
     - [buzzheavier](https://buzzheavier.com/xjxa9oecvxyy)
+  - Content King – Build 22660620 + Bonus OST | 2026-05-18 ([Source: Fitgirl](https://fitgirl-repacks.site/content-king/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2b9a4a9548e773b9#EfqYvCHLyLN1ntQCciyUMKGysnSAj5hpSJncbRSF5NCm)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f64a25cb35a9bcea#7mE8uoeXmuBPnVznxiXdd2jALAYWXS1uA1kqPkpBfcf6)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1ece63ae752e27e3#D6oZ4bUVaa8MWGzSSGzCUMum3PS5ArFusRd5Fmg5xUDN)
+    - [1337x](https://1337x.to/torrent/6648608/Content-King-Build-22660620-Bonus-OST-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:AA7E144414B2E415A36496F306D599C48F9C95ED&dn=Content+King+%28Build+22660620+%2B+Bonus+OST%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3120280)
   - Content Warning Free Download (v1.21.0) | 2026-02-22 ([Source: SteamRIP](https://steamrip.com/content-warning-free-download/))
     - [gofile](https://gofile.io/d/DPRF2d)
     - [buzzheavier](https://buzzheavier.com/5zbgfk4kbzs9)
@@ -65073,6 +65089,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3053676)
     - **Updates**
       - [Tennis.Manager.25.v5.0.850.Update-SKIDROW.rar](https://filecrypt.cc/Container/6C392BB31B.html)
+  - Tennis Manager 26 – v6.0.376 | 2026-05-18 ([Source: Fitgirl](https://fitgirl-repacks.site/tennis-manager-26/))
+    - [datanodes](https://datanodes.to/wpk2oed2x11c/Tennis_Manager_26_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/7kmhxx6p0gy6#Tennis_Manager_26_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/ab090c140411c3f528d62468afe79879/Tennis_Manager_26_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6648781/Tennis-Manager-26-v6-0-376-MULTi8-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:0BEFA8B1730BF1D6465B61403A04594C3A4473E7&dn=Tennis+Manager+26+%28v6.0.376%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1085964/tennis-manager-26-v-6.0.376-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:0befa8b1730bf1d6465b61403a04594c3a4473e7&dn=rutor.info_Tennis+Manager+26+%5Bv+6.0.376%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3120366)
   - Tennis World Tour 2 Ace Edition | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Tennis_World_Tour_2_Ace_Edition_MULTi12__ElAmigos_-_62xA9SrD.html))
     - [filecrypt](https://www.filecrypt.cc/Container/844429D3B0.html)
     - [keeplinks](https://www.keeplinks.org/p16/5f6e143853fa0)
