@@ -1,5 +1,21 @@
 # Latest Games
 
+- Bubsy 4D | 2026-05-23 ([Source: Fitgirl](https://fitgirl-repacks.site/bubsy-4d/))
+  - [datanodes](https://datanodes.to/bimvl8zbrjto/Bubsy_4D_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/n9gdha8o7z9f#Bubsy_4D_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/ed7a3aabd0d3882e0610dbadd75fdc63/Whisper_of_the_House_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6652187/Bubsy-4D-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:0B65139C0D57047021D98EC448D480C1ECE07DBB&dn=Bubsy+4D+%28MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3121418)
+- Lucky Tower Ultimate: Ultimate Edition – v1.0.6 + Bonus OST | 2026-05-23 ([Source: Fitgirl](https://fitgirl-repacks.site/lucky-tower-ultimate/))
+  - [datanodes](https://datanodes.to/7qpv1w1hdgsf/Lucky_Tower_Ultimate_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/9jm4csa8xmer#Lucky_Tower_Ultimate_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/765967ee88e0324115f86c10792c59d4/Lucky_Tower_Ultimate_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6652044/Lucky-Tower-Ultimate-Ultimate-Edition-v1-0-6-Bonus-OST-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:9043CA365EBB53B637B37318D9B9A1C7033E6DFE&dn=Lucky+Tower+Ultimate%3A+Ultimate+Edition+%28v1.0.6+%2B+Bonus+OST%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1086516/lucky-tower-ultimate-ultimate-edition-v-1.0.6-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:9043ca365ebb53b637b37318d9b9a1c7033e6dfe&dn=rutor.info_Lucky+Tower+Ultimate%3A+Ultimate+Edition+%5Bv+1.0.6+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3121391)
 - Luna Abyss: Deluxe Edition – Build 1295 (Steam) / Build 1292 (MS Store) + Bonus OST | 2026-05-22 ([Source: Fitgirl](https://fitgirl-repacks.site/luna-abyss/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a9ec11ebdb02e301#ECDNqQAfF6wayR7gezuW4hAzwKCcCCQ9DBRnth1RzLLT)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?78c982005bea2257#eA867zf2VWduHdNUgENN15YpksRHnf3EgzqX6zdFiKz)
@@ -211,14 +227,3 @@
   - [tapochek](https://tapochek.net/viewtopic.php?p=3119926)
 - Directive 8020 Free Download | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/directive-8020-free-download/))
   - [bzzhr](https://bzzhr.to/07z3cu2oh8mw)
-- Hotel Architect Free Download (v1.0) | 2026-05-16 ([Source: SteamRIP](https://steamrip.com/hotel-architect-free-download/))
-  - [megadb](https://megadb.net/gskx5blfsmhs)
-- Call of the Elder Gods – v0.0.0.279 | 2026-05-15 ([Source: Fitgirl](https://fitgirl-repacks.site/call-of-the-elder-gods/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e8f5adab1ee0a449#5bThgTjhjr3tMhQBicz3MBccVXgMqWrBUbWtZ6N1dSVi)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?370a7ab3eba6052b#F8g4MXsXatdW19uKCF2EPiVZGZdQmnYaQnGymUaBHB5y)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?23a96d414b0eb996#BBpoxWgJFX4HnzSduPDZHvSy6tmBRwMgqLy1N6jwrwTv)
-  - [1337x](https://1337x.to/torrent/6646755/Call-of-the-Elder-Gods-v0-0-0-279-MULTi14-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:ACB6DF92B72398F0066B1A1F258EB3C48E4A8DD7&dn=Call+of+the+Elder+Gods+%28v0.0.0.279%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1085575/call-of-the-elder-gods-v-0.0.0.279-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:acb6df92b72398f0066b1a1f258eb3c48e4a8dd7&dn=rutor.info_Call+of+the+Elder+Gods+%5Bv+0.0.0.279%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3119760)
