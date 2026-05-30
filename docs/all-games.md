@@ -7856,6 +7856,13 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd200e31135)
     - [filecrypt](https://www.filecrypt.cc/Container/1F811AAE68.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd2013a08cb)
+  - Blood High! | 2026-05-30 ([Source: Fitgirl](https://fitgirl-repacks.site/blood-high/))
+    - [datanodes](https://datanodes.to/h4d4c010477b/Blood_High_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/rwsr5jczlrx5#Blood_High_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/f29164d2665215efc017fdac3ebed2b7/Blood_High_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6656651/Blood-High-MULTi4-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:C7CD402877C70204406AEB9FAE83E2FFACEE0FB1&dn=Blood+High%21+%28MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122507)
   - Blood Knights | 2016-07-15 ([Source: Fitgirl](https://fitgirl-repacks.site/blood-knights/))
     - <a href="magnet:?xt=urn:btih:0E7B74A19EB5F556D3346C15B1E95779CCAF838A">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?t=167166)
@@ -19957,6 +19964,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?227fe7a79d1536f4#B6jyv9C2crDNJzHwiWBAwD9jEUqYWC2CtSYpg758eZNU)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?3fcd252e1feed765#Cxfg9yTtyj4J6tWBpvr5g59sypeZowVWgVDwf5JM7MtF)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?fa5477bfe807f2fb#BZ3cJCWteMgGKNNjdffUq8gw2c5yZ7DprU455xMuRfwz)
+  - Echo Generation 2 – v1.0.38 | 2026-05-30 ([Source: Fitgirl](https://fitgirl-repacks.site/echo-generation-2-v1-0-38/))
+    - [datanodes](https://datanodes.to/hpplo1mm16qc/Echo_Generation_2_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/10bhspvdy4y0#Echo_Generation_2_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/bcf3821d74b148309aec5e56d6d32620/Echo_Generation_2_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6656663/Echo-Generation-2-v1-0-38-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:D5B0D472B9E4887E92E109CBC702C433D6A10D66&dn=Echo+Generation+2+%28v1.0.38%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122515)
   - Echo Point Nova: Digital Deluxe Edition, v2.1 + Bonus OST | 2025-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/echo-point-nova/))
     - [1337x](https://1337x.to/torrent/6472565/Echo-Point-Nova-Digital-Deluxe-Edition-v2-1-Bonus-OST-MULTi7-FitGirl-Repack-Selective-Download-from-2-3-GB/)
     - <a href="magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16&dn=Echo+Point+Nova%3A+Digital+Deluxe+Edition+%28v2.1+%2B+Bonus+OST%2C+MULTi7%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -33084,6 +33098,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3083739)
     - **Updates**
       - [Isopod.A.Webbed.Spin-off.Update.v20251120-TENOKE.rar](https://filecrypt.cc/Container/65AA0758CD.html)
+  - It Reaches: Collectors Bundle + 2 DLCs | 2026-05-30 ([Source: Fitgirl](https://fitgirl-repacks.site/it-reaches/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?86e755c1c91895ef#EsogngquP9NDvXWKeheNNMzQRGfHVcwMaRg1wQs9gRye)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5a0965bf87a2f1b7#8z1NmsdFbitDvWu8Smmm7GmpwN7w357aYBkXuDfG42mF)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e87219e7b31a31c9#Ah8si9iobL79qsPDccxRquefRNNB9RUyDwVUeUQeD8NG)
+    - [1337x](https://1337x.to/torrent/6656798/It-Reaches-Collectors-Bundle-2-DLCs-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:57004AB827BAEFC698EBDED28F5A5F363A5241E0&dn=It+Reaches%3A+Collectors+Bundle+%28%2B+2+DLCs%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087417/it-reaches-collectors-bundle-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:57004ab827baefc698ebded28f5a5f363a5241e0&dn=rutor.info_It+Reaches%3A+Collectors+Bundle+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122542)
   - IT Specialist Simulator Free Download (Build 22420836) | 2026-03-22 ([Source: SteamRIP](https://steamrip.com/it-specialist-simulator-free-download/))
     - [buzzheavier](https://buzzheavier.com/ee5s28165j9b)
   - It Steals Free Download (Build 9138183) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/it-steals-free-download-i1/))
@@ -44382,6 +44405,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?05eee46d946eb5b0#3kdiHPzBqQ5a7hroQfLxChz2PaKiFJ5FkzcMvkqjyCuW)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?a891d9a102d23ea5#979TDXL8KtfSYtqcLkg9bDiuMYoJfhM2kMGHQdV72LQK)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?e3bd6e5b0f41c7e0#rU3outq1wFJfz6Jq3SU7fvPrDrHcFvT5EiSkpzS4uV9)
+  - Nickelodeon Extreme Tennis: Next! | 2026-05-30 ([Source: Fitgirl](https://fitgirl-repacks.site/nickelodeon-extreme-tennis-next/))
+    - [datanodes](https://datanodes.to/rjti6wzjmz2v/Nickelodeon_Extreme_Tennis_Next_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/xsrthil9ete5#Nickelodeon_Extreme_Tennis_Next_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/80d6e9651b1a06760ea038ee0132c419/Nickelodeon_Extreme_Tennis_Next_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6656784/Nickelodeon-Extreme-Tennis-Next-MULTi16-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:58924E138239A3CFDF3531B8F067F2F80F6F9F7C&dn=Nickelodeon+Extreme+Tennis%3A+Next%21+%28MULTi16%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087414/nickelodeon-extreme-tennis-next!-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:58924e138239a3cfdf3531b8f067f2f80f6f9f7c&dn=rutor.info_Nickelodeon+Extreme+Tennis%3A+Next%21+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122533)
   - Nickelodeon Kart Racers 2: Grand Prix | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Nickelodeon_Kart_Racers_2_Grand_Prix_MULTi6__ElAmigos_-_EBPgFQS6.html))
     - [filecrypt](https://www.filecrypt.cc/Container/515CE064B7.html)
     - [keeplinks](https://www.keeplinks.org/p16/5fc6b10a06ccb)
@@ -62023,6 +62055,13 @@
     - [keeplinks](https://www.keeplinks.org/p16/6532de1d08f11)
     - [filecrypt](https://www.filecrypt.cc/Container/A211D6E37B.html)
     - [keeplinks](https://www.keeplinks.org/p16/6532de158190d)
+  - Stonemachia | 2026-05-29 ([Source: Fitgirl](https://fitgirl-repacks.site/stonemachia/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2fd47fcbdc6911ce#4QUBxbbNWJqkwmSzhbuxYFzqRxpJG5tjXbYaE3AESi5o)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b23a1f0a80fbd955#ASZPNtu2bo7HaVtytzb9aJJ5zdb9wt5BqL9x6GfUpZeC)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bab4bc211ea8056b#3rG5uMyN4XT9Pk9zBp6YKPiBp1wgSfKq93Z8YMoJFmVy)
+    - [1337x](https://1337x.to/torrent/6655985/Stonemachia-ENG-ITA-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:E9DEFE282AFB2F29A31C185E800DEFE37FA702FB&dn=Stonemachia+%28ENG%2FITA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122417)
   - Stoneshard Free Download (v0.9.4.13) | 2026-04-09 ([Source: SteamRIP](https://steamrip.com/stoneshard-free-download-s2/))
     - [megadb](https://megadb.net/ui39v2aafqtf)
   - Stop the Blight: Deluxe Edition – v1.0.0 + Bonus Soundtrack | 2025-04-11 ([Source: Fitgirl](https://fitgirl-repacks.site/stop-the-blight/))
