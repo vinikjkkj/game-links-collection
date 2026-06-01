@@ -1,5 +1,14 @@
 # Latest Games
 
+- TerraTech Legion | 2026-06-01 ([Source: Fitgirl](https://fitgirl-repacks.site/terratech-legion/))
+  - [datanodes](https://datanodes.to/7b0pvxrl5n2r/TerraTech_Legion_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/gte6ujyl0lb0#TerraTech_Legion_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/aa0ca64a796e04516475946acc43d165/TerraTech_Legion_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6658014/TerraTech-Legion-MULTi8-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:4DDA5957074C73239CBEDF90C23126E99ECDA0CB&dn=TerraTech+Legion+%28MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1087671/terratech-legion-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:4dda5957074c73239cbedf90c23126e99ecda0cb&dn=rutor.info_TerraTech+Legion+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3122793)
 - F1 Manager 2023: Deluxe Edition – v1.10.0.199864 + 2 DLCs | 2026-05-31 ([Source: Fitgirl](https://fitgirl-repacks.site/f1-manager-2023/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?110722e47510cd1a#DACGnuaCYUoY4aYaRfReusuZdnzTu9DEMkZ5eTPfGKDe)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d24e1b87ffc11611#Fcf1cgtbmZ11q7LWuCao3CsizRrWEEngMozDTAUxqnMD)
@@ -165,10 +174,3 @@
   - [rutor](https://rutor.info/torrent/1087084/castle-craft-v-1.0.02671-dlc-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:fdc9f7ee763dbd970c7f940df04d0e6b297afd44&dn=rutor.info_Castle+Craft+%5Bv+1.0.0%232671+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3122234)
-- Librarian: Tidy Up the Arcane Library! – v1.0.2 | 2026-05-27 ([Source: Fitgirl](https://fitgirl-repacks.site/librarian-tidy-up-the-arcane-library/))
-  - [datanodes](https://datanodes.to/m24r7m0n15wh/Librarian_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/thauhfka5px5#Librarian_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/5b186bb4d5431a4a5bdc3422d560d296/Librarian_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6654630/Librarian-Tidy-Up-the-Arcane-Library-v1-0-2-MULTi4-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:F846431329A4A10B86FEA6B70124CA6563669B7A&dn=Librarian%3A+Tidy+Up+the+Arcane+Library%21+%28v1.0.2%2C+MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3122109)
