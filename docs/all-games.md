@@ -14582,6 +14582,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3096695)
   - Dark Pals: The 1st Floor Free Download (v1.1.67) | 2026-05-21 ([Source: SteamRIP](https://steamrip.com/dark-pals-the-1st-floor-free-download/))
     - [bzzhr](https://bzzhr.to/zqm1y33wbc7b)
+  - Dark Pals: The 1st Floor – v1.0.67 | 2026-06-02 ([Source: Fitgirl](https://fitgirl-repacks.site/dark-pals-the-1st-floor/))
+    - [datanodes](https://datanodes.to/oawgm1ozfqse/Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/ba74dy4x6n6u#Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/5bab6cac22b6b2915ebbfc360fba7b06/Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6658735/Dark-Pals-The-1st-Floor-v1-0-67-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:BEF4E2C4089CD4C0621C75E6725E03E76C52BFB6&dn=Dark+Pals%3A+The+1st+Floor+%28v1.0.67%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087712/dark-pals-the-1st-floor-v-1.0.67-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:bef4e2c4089cd4c0621c75e6725e03e76c52bfb6&dn=rutor.info_Dark+Pals%3A+The+1st+Floor+%5Bv+1.0.67%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3122861)
   - Dark PGT | 2025-02-23 ([Source: Fitgirl](https://fitgirl-repacks.site/dark-pgt/))
     - [1337x](https://1337x.to/torrent/6347575/Dark-PGT-ENG-RUS-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:4F31ACF71C9138CAB910786076E38805167953C1&dn=Dark+PGT+%28ENG%2FRUS%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -23144,6 +23153,9 @@
     - [1337x](https://1337x.to/torrent/6360484/FATE-Reawakened-v1-0-0-94fe67e9-MULTi7-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:A3A5AD84E3404B5413D462A29650A350AF9D308B&dn=FATE%3A+Reawakened+%28v1.0.0-94fe67e9%2C+MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3041121)
+  - Fatekeeper Free Download | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/fatekeeper-free-download/))
+    - [bzzhr](https://bzzhr.to/bcyw3ro0qw3k)
+    - [gofile](https://gofile.io/d/HTprSR)
   - Father’s Day – v1.6.1 | 2023-11-22 ([Source: Fitgirl](https://fitgirl-repacks.site/fathers-day/))
     - [1337x](https://1337x.to/torrent/5894971/Father-s-Day-v1-6-1-ENG-RUS-FitGirl-Repack-Selective-Download-from-11-9-GB/)
     - <a href="magnet:?xt=urn:btih:B248A67D381E34E04310FA9D886F83A75B9B97C9&dn=Father%26%23039%3Bs+Day+%28v1.6.1%2C+ENG%2FRUS%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+11.9+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -25023,6 +25035,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/6245d5d72e59d)
   - Forts Free Download (v1.35.0) | 2026-04-09 ([Source: SteamRIP](https://steamrip.com/forts-free-download-1l/))
     - [megadb](https://megadb.net/wkwznvecqsk8)
+  - Fortune Mill Free Download | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/fortune-mill-free-download/))
+    - [megadb](https://megadb.net/uli722o6k9lr)
   - FORWARD: Escape the Fold – Ultimate Edition Free Download (v1.2.0) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/forward-escape-the-fold-ultimate-edition-free-download-o1/))
     - [megadb](https://megadb.net/1btrwyybp1r7)
   - Forza Horizon 2 Free Download (XBOX 360 Classics) | 2024-11-15 ([Source: SteamRIP](https://steamrip.com/forza-horizon-2-free-download-1v/))
@@ -61579,6 +61593,9 @@
     - [rutor](http://rutor.info/torrent/1045219/starmetal-crusaders-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:99f71ca449ab2170e14e66b9b3ca20159408666b&dn=rutor.info_Starmetal+Crusaders+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3064152)
+  - Starminer Free Download (v0.33.3.1) | 2026-06-01 ([Source: SteamRIP](https://steamrip.com/starminer-free-download/))
+    - [gofile](https://gofile.io/d/lSeDig)
+    - [megadb](https://megadb.net/o0truwlb3u8f)
   - Starpoint Gemini 2: Collector’s Edition – v1.9901 + 4 DLCs | 2020-02-16 ([Source: Fitgirl](https://fitgirl-repacks.site/starpoint-gemini-2-ce/))
     - [1337x](https://1337x.to/torrent/4303162/Starpoint-Gemini-2-Collector-s-Edition-v1-9901-4-DLCs-MULTi5-FitGirl-Repack-Selective-Download-from-2-7-GB/)
     - [rutor](http://rutor.info/torrent/744228/starpoint-gemini-2-collectors-edition-v-1.9901-4-dlc-2014-pc-repack-ot-fitgirl)
@@ -71888,6 +71905,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/6568ae9c28bc9)
   - Truck and Logistics Simulator Free Download (v1.0) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/truck-and-logistics-simulator-free-download-t1/))
     - [megadb](https://megadb.net/8qs3vzvc7dek)
+  - Truck Driver: The American Dream Free Download (v0.9.9.1) | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/truck-driver-the-american-dream-free-download/))
+    - [bzzhr](https://bzzhr.to/px9r1p42zr58)
+    - [gofile](https://gofile.io/d/WEsF91)
   - Truck Mechanic: Dangerous Paths Free Download | 2026-03-31 ([Source: SteamRIP](https://steamrip.com/truck-mechanic-dangerous-paths-free-download/))
     - [gofile](https://gofile.io/d/6n4aMa)
     - [vikingfile](https://vikingfile.com/f/jMzSsEC76i)

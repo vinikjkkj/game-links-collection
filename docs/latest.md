@@ -1,5 +1,25 @@
 # Latest Games
 
+- Truck Driver: The American Dream Free Download (v0.9.9.1) | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/truck-driver-the-american-dream-free-download/))
+  - [bzzhr](https://bzzhr.to/px9r1p42zr58)
+  - [gofile](https://gofile.io/d/WEsF91)
+- Fatekeeper Free Download | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/fatekeeper-free-download/))
+  - [bzzhr](https://bzzhr.to/bcyw3ro0qw3k)
+  - [gofile](https://gofile.io/d/HTprSR)
+- Fortune Mill Free Download | 2026-06-02 ([Source: SteamRIP](https://steamrip.com/fortune-mill-free-download/))
+  - [megadb](https://megadb.net/uli722o6k9lr)
+- Dark Pals: The 1st Floor – v1.0.67 | 2026-06-02 ([Source: Fitgirl](https://fitgirl-repacks.site/dark-pals-the-1st-floor/))
+  - [datanodes](https://datanodes.to/oawgm1ozfqse/Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/ba74dy4x6n6u#Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/5bab6cac22b6b2915ebbfc360fba7b06/Dark_Pals_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6658735/Dark-Pals-The-1st-Floor-v1-0-67-MULTi10-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:BEF4E2C4089CD4C0621C75E6725E03E76C52BFB6&dn=Dark+Pals%3A+The+1st+Floor+%28v1.0.67%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1087712/dark-pals-the-1st-floor-v-1.0.67-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:bef4e2c4089cd4c0621c75e6725e03e76c52bfb6&dn=rutor.info_Dark+Pals%3A+The+1st+Floor+%5Bv+1.0.67%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3122861)
+- Starminer Free Download (v0.33.3.1) | 2026-06-01 ([Source: SteamRIP](https://steamrip.com/starminer-free-download/))
+  - [gofile](https://gofile.io/d/lSeDig)
+  - [megadb](https://megadb.net/o0truwlb3u8f)
 - TerraTech Legion | 2026-06-01 ([Source: Fitgirl](https://fitgirl-repacks.site/terratech-legion/))
   - [datanodes](https://datanodes.to/7b0pvxrl5n2r/TerraTech_Legion_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/gte6ujyl0lb0#TerraTech_Legion_--_fitgirl-repacks.site_--_.rar)
@@ -143,34 +163,3 @@
   - [bzzhr](https://bzzhr.to/hdhp19q3kpld)
 - Teamfight Manager 2 Free Download (v0.4.5) | 2026-05-28 ([Source: SteamRIP](https://steamrip.com/teamfight-manager-2-free-download/))
   - [megadb](https://megadb.net/xupdp2wj93z1)
-- Birdwatching Notebook Free Download (v1.1) | 2026-05-28 ([Source: SteamRIP](https://steamrip.com/birdwatching-notebook-free-download/))
-  - [megadb](https://megadb.net/7mn73inqm9rs)
-- Virtual Driving School Free Download (Build 23368223) | 2026-05-28 ([Source: SteamRIP](https://steamrip.com/virtual-driving-school-free-download/))
-  - [bzzhr](https://bzzhr.to/n53kxqqz89ve)
-- Dreamcore: Rabbit Hole -v1.0.3 | 2026-05-28 ([Source: Fitgirl](https://fitgirl-repacks.site/dreamcore-rabbit-hole/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3b16fc6b0fe47428#5Yt1ynwh5zio6B9eDydzLRtoKSgyFcZjnQVyZQdLeAkS)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?76f6c1c55b47c493#HG6yiJg6j2zWhD3rCRG5KYSujpNv6yqmJnBFwhi2jRX7)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f9f3c3e7181131da#963QMQ5jFwerhKCfvr67yEWJwPSrYq1g8v9CYksB14bm)
-  - [1337x](https://1337x.to/torrent/6655096/Dreamcore-Rabbit-Hole-v1-0-3-MULTi11-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:33B5D5B5109D2DFF77E2ACDFA2EB2928A0B30142&dn=Dreamcore%3A+Rabbit+Hole+%28v1.0.3%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1087101/dreamcore-rabbit-hole-v-1.0.3-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:33b5d5b5109d2dff77e2acdfa2eb2928a0b30142&dn=rutor.info_Dreamcore%3A+Rabbit+Hole+%5Bv+1.0.3%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3122265)
-- Medieval Crafter: Blacksmith – v1.0.0 | 2026-05-28 ([Source: Fitgirl](https://fitgirl-repacks.site/medieval-crafter-blacksmith/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?981c3c4a36d8b119#6NAkRHmpKn85tPWD3oj1Si1Eqvof9iJQc91pkKSPbbZo)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2b69a9a0b8b1b8b2#ErmeREiatNP543XdvfVKddr4GNzS9BxNFgiBzA7sE3H3)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a87781889efb587d#DnJN94eJkYFVPyrKw4Jmq3LHBp19Zzm5LtLtH9EdELnA)
-  - [1337x](https://1337x.to/torrent/6655040/Medieval-Crafter-Blacksmith-v1-0-0-MULTi13-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:04874327219C6E9DF05CFEA93B297731D1EB3B40&dn=Medieval+Crafter%3A+Blacksmith+%28v1.0.0%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1087096/medieval-crafter-blacksmith-v-1.0.0-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:04874327219c6e9df05cfea93b297731d1eb3b40&dn=rutor.info_Medieval+Crafter%3A+Blacksmith+%5Bv+1.0.0%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3122240)
-- Castle Craft – v1.0.0#2671 + Bonus OST | 2026-05-28 ([Source: Fitgirl](https://fitgirl-repacks.site/castle-craft/))
-  - [datanodes](https://datanodes.to/3f3v5ce9c296/Castle_Craft_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/zqt9o3yaqpb7#Castle_Craft_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/46005b2439a3d6b1101b0a2bff273b2b/Castle_Craft_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6654985/Castle-Craft-v1-0-0-2671-Bonus-OST-MULTi13-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:FDC9F7EE763DBD970C7F940DF04D0E6B297AFD44&dn=Castle+Craft+%28v1.0.0%232671+%2B+Bonus+OST%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1087084/castle-craft-v-1.0.02671-dlc-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:fdc9f7ee763dbd970c7f940df04d0e6b297afd44&dn=rutor.info_Castle+Craft+%5Bv+1.0.0%232671+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3122234)
