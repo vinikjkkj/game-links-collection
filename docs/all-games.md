@@ -447,6 +447,13 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=210326)
     - [rutor](http://rutor.info/torrent/482510/a-boy-and-his-blob-2016-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:ade7c5638ab37f141c6a44031a5b8805f6e7a3a2&dn=rutor.info_A+Boy+and+His+Blob+%282016%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://bt.rutor.org:2710&tr=http://retracker.local/announce">Torrent</a>
+  - A Bumpy Ride – v1.0.5 | 2026-06-04 ([Source: Fitgirl](https://fitgirl-repacks.site/a-bumpy-ride/))
+    - [datanodes](https://datanodes.to/cakv6f42ewae/A_Bumpy_Ride_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/3y3cknftb9pm#A_Bumpy_Ride_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/7af8ea7cdc4cd4fd499e070180e96b45/A_Bumpy_Ride_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6659762/A-Bumpy-Ride-v1-0-5-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:14DFB590FF13D195472F9BA3216D6D89F63C3702&dn=A+Bumpy+Ride+%28v1.0.5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3123164)
   - A Dance of Fire and Ice Free Download (Build 8983561) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/a-dance-of-fire-and-ice-free-download-1w/))
     - [megadb](https://megadb.net/dpibku9ndat7)
   - A Day Out Free Download (v1.4) | 2025-07-08 ([Source: SteamRIP](https://steamrip.com/a-day-out-free-download/))
@@ -18643,6 +18650,14 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3064650)
     - **Updates**
       - [Dread.Flats.Update.v2.10.1-TENOKE.rar](https://filecrypt.cc/Container/300CFEBB80.html)
+  - Dread Neighbor | 2026-06-04 ([Source: Fitgirl](https://fitgirl-repacks.site/dread-neighbor/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7f5b3b5bcf4740d1#ACqu8CW9Fe6toNn8JLnTUBSgf8Lbs36oTz51573GLih7)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?94ea828e3d73abb1#GZoeG9dGTwdN9yTJJeoGbpBhMc99qy2h93SV3p8rXzT2)
+    - [1337x](https://1337x.to/torrent/6660004/Dread-Neighbor-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:354AE9830BC0ED27314B1C334A641D388B6A953A&dn=Dread+Neighbor+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087965/dread-neighbor-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:354ae9830bc0ed27314b1c334a641d388b6a953a&dn=rutor.info_Dread+Neighbor+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3123241)
   - Dread Templar Free Download (v1.0.2b) | 2024-03-09 ([Source: SteamRIP](https://steamrip.com/dread-templar-free-download-l3/))
     - [megadb](https://megadb.net/x6sqg2fdm56n)
   - Dread Templar – v1.0.1n5 (Release) | 2023-01-28 ([Source: Fitgirl](https://fitgirl-repacks.site/dread-templar/))
@@ -50799,6 +50814,15 @@
     - [rutor](http://rutor.info/torrent/752845/prototype-build-252009-2009-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:c975d0e030414bcd5c06c94c5e6ef1fe939254a6&dn=rutor.info_Prototype+%5BBuild+252009%5D+%282009%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2673235)
+  - Psalm 2 | 2026-06-03 ([Source: Fitgirl](https://fitgirl-repacks.site/psalm-2/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b13ffb33356f82db#DgeoxTAC6a6zka7Uh6h3Ty5aeLWwAzXiUyBetxhQ2hz6)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fa8de2a45286aafd#6qYwNETAkp9k32yC2pjhbeghNtbcrQ8beDjRpyRtcGQY)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c7a3e4c8f38d9d62#2rVH8xQhCUhqfGFf4qUan8GeZ5KXdPFH6ihZ9CK9KQfM)
+    - [1337x](https://1337x.to/torrent/6659483/Psalm-2-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:C754FD0E6BCDD0CF9E744B85A23F16B38E359EF6&dn=Psalm+2+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087877/psalm-2-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c754fd0e6bcdd0cf9e744b85a23f16b38e359ef6&dn=rutor.info_Psalm+2+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3123087)
   - Psychic Kung Fu Master – v1.01 + Supporter Pack DLC | 2026-05-20 ([Source: Fitgirl](https://fitgirl-repacks.site/psychic-kung-fu-master/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a28bbffa3fbda2d8#8QtGdKbAuaf38SnfaFimyUJtkyJTPPGRrNqeyMMaYbmQ)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7a8091cde5acf40a#nmk67ePb1SEQsF9EnHZBkGDfttaazuvJckxWCVnyava)
@@ -52059,6 +52083,15 @@
   - Realm of Dread + Windows 7 Fix | 2024-02-01 ([Source: Fitgirl](https://fitgirl-repacks.site/realm-of-dread/))
     - [1337x](https://1337x.to/torrent/5977317/Realm-of-Dread-Windows-7-Fix-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:46F9326AB35F91164DB96208FF18CD40F7A4C08B&dn=Realm+of+Dread+%28%2B+Windows+7+Fix%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - Realm of Ink – v0.18.04 | 2026-06-04 ([Source: Fitgirl](https://fitgirl-repacks.site/realm-of-ink/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b9bde4c170c3921e#6TT86wb7jc72XFhjoDbn9QAoDqCddAgJUzeJWnCYhVbS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?64604a99c4f7b75d#HcG71VgLrF2PpZ8cHqRarhM77PR9ACnsKNReLouMdsKY)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?43abdf74e36b2006#EiLCMgsacnLDuFnQKbeGXoNmXTXJv2CXmM83tY4AFVbs)
+    - [1337x](https://1337x.to/torrent/6659861/Realm-of-Ink-v0-18-04-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:DF136D47B26C3E77FA042226A2288F31AB854498&dn=Realm+of+Ink+%28v0.18.04%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1087956/realm-of-ink-v-0.18.04-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:df136d47b26c3e77fa042226a2288f31ab854498&dn=rutor.info_Realm+of+Ink+%5Bv+0.18.04%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3123206)
   - Realms of Arkania: Blade of Destiny HD | 2015-10-31 ([Source: Elamigos](https://elamigos.site/data/Realms_of_Arkania_Blade_of_Destiny_HD__ElAmigos_-_1fh1itFp.html))
     - [rapidgator](https://rapidgator.net/file/1feb73d96abcf04c460f5a2f9e66345a/RoABl66adeoDes4tinyHD1.36-elamigos.part1.rar.html)
     - [rapidgator](https://rapidgator.net/file/c0eb5b624e267a7992b01244936e11bb/RoABl66adeoDes4tinyHD1.36-elamigos.part2.rar.html)
@@ -66077,6 +66110,12 @@
     - [buzzheavier](https://buzzheavier.com/4ipe0nc5l6xr)
   - That’s not your Neighbor Free Download | 2025-01-08 ([Source: SteamRIP](https://steamrip.com/thats-not-your-neighbor-free-download/))
     - [megadb](https://megadb.net/w9i8bcvyu7iq)
+  - The 7th Guest Remake – v1.2.14011.0 | 2026-06-04 ([Source: Fitgirl](https://fitgirl-repacks.site/the-7th-guest-remake/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?917f93a474cf5781#HUCxi5zdRKC5yStuEBHjHiNRqL1g64UNhgWWVjidmMaz)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1f9c78e353fe8e74#93iudN5rNdD1hwYsfVoKLsjsPLhFtokFGMBUZTLTrwD5)
+    - [1337x](https://1337x.to/torrent/6659957/The-7th-Guest-Remake-v1-2-14011-0-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:2574B53815FC5651F630C5A9F88947C09B01BB68&dn=The+7th+Guest+Remake+%28v1.2.14011.0%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3123221)
   - The 7th Guest VR | 2023-11-15 ([Source: Elamigos](https://elamigos.site/data/The_7th_Guest_VR_MULTi7_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/91899DFB9A.html)
     - [keeplinks](https://www.keeplinks.org/p16/65d1f8e5e59dd)
