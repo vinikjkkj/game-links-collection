@@ -1,5 +1,31 @@
 # Latest Games
 
+- F1 Manager 2022 – v1.13.0.105950 | 2026-06-09 ([Source: Fitgirl](https://fitgirl-repacks.site/f1-manager-2022/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fe0dfc297a4d4155#GuoUsCtVGR9PbVAx8Rdr5s1HRJghHr1fv1zsHNtXbshv)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?96cba092bd58b2fc#4q6FgkKshggazhRDmCJk8QYCNGTtay7FPRxPxQ6V8DYY)
+  - [1337x](https://1337x.to/torrent/6663207/F1-Manager-2022-v1-13-0-105950-MULTi13-FitGirl-Hypervisor-Repack/)
+  - <a href="magnet:?xt=urn:btih:F7B2EAB34FDD0FA79DC4F9FAB8AF725189DA345B&dn=F1+Manager+2022+%28v1.13.0.105950%2C+MULTi13%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124123)
+- Call to Arms – Gates of Hell: Ostfront Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/call-to-arms-gates-of-hell-ostfront-free-download/))
+  - [gofile](https://gofile.io/d/kpT2m0)
+  - [bzzhr](https://bzzhr.to/4pvs8s134zyq)
+- Airport Security Sucks! Free Download (Build 23625618 + Online) | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/airport-security-sucks-free-download/))
+  - [bzzhr](https://bzzhr.to/ux6tjug106p7)
+- Arcane Merchant | 2026-06-09 ([Source: Fitgirl](https://fitgirl-repacks.site/arcane-merchant/))
+  - [datanodes](https://datanodes.to/on7qp3bqv8oy/Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/x89tyd17kfbv#Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/523978d9ed33032c747ed2a90c723a96/Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6663026/Arcane-Merchant-MULTi7-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:6B488FCAACB3F684FA551371E7ECFEDDB9515D4E&dn=Arcane+Merchant+%28MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1088520/arcane-merchant-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:6b488fcaacb3f684fa551371e7ecfeddb9515d4e&dn=rutor.info_Arcane+Merchant+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124034)
+- Headquarters: World War II Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/headquarters-world-war-ii-free-download/))
+  - [gofile](https://gofile.io/d/xX7EnU)
+  - [bzzhr](https://bzzhr.to/bpltv4nng6pw)
+- Solarpunk Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/solarpunk-free-download/))
+  - [gofile](https://gofile.io/d/IQQiOo)
+  - [megadb](https://megadb.net/733ggdvx1egf)
 - Killer Bean Free Download | 2026-06-08 ([Source: SteamRIP](https://steamrip.com/killer-bean-free-download/))
   - [gofile](https://gofile.io/d/dHBIUS)
   - [bzzhr](https://bzzhr.to/nx7unkb66kp8)
@@ -137,30 +163,3 @@
   - [rutor](https://rutor.info/torrent/1088064/prohibeast-v-0.9.075-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:ed677af75a70e66238061cb5cb8c2a99004532fa&dn=rutor.info_PROHIBEAST+%5Bv+0.9.075%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3123415)
-- Assassin’s Creed Freedom Cry Free Download | 2026-06-05 ([Source: SteamRIP](https://steamrip.com/assassins-creed-freedom-cry-free-download/))
-  - [bzzhr](https://bzzhr.to/ed772lu79mur)
-- Magin: The Rat Project Stories – Essence Edition, v1.2.6c305-6c305 + Supporter Pack DLC | 2026-06-05 ([Source: Fitgirl](https://fitgirl-repacks.site/magin-the-rat-project-stories/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2ada603ab6d006e4#EYbtc6Vxganp3KhrEMh6uGcwcefu7rX5rHY6x4idz8UK)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f7bed23d1c55d0ad#J72HBkGdUFoaf9ccerbW8ymwY8ejBinuD9Uc6ukkraDo)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9a7605d60021be75#HaBV97BGniuKhxXFpJsDie3BuPTEx5fK4MiB6Ud1TdFW)
-  - [1337x](https://1337x.to/torrent/6660335/Magin-The-Rat-Project-Stories-Essence-Edition-v1-2-6c305-6c305-Supporter-Pack-DLC-MULTi9-FitGirl-Repack-Selective-Download-from-1-1-GB/)
-  - <a href="magnet:?xt=urn:btih:10FECED025B684F33F5B4BD5D93C5EFEB5784819&dn=Magin%3A+The+Rat+Project+Stories+-+Essence+Edition+%28v1.2.6c305-6c305+%2B+Supporter+Pack+DLC%2C+MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.1+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1088038/magin-the-rat-project-stories-essence-edition-v-1.2.6c305-6c305-dlc-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:10feced025b684f33f5b4bd5d93c5efeb5784819&dn=rutor.info_Magin%3A+The+Rat+Project+Stories+-+Essence+Edition+%5Bv+1.2.6c305-6c305+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123295)
-- Slots & Diapers Free Download (v1.0.1) | 2026-06-05 ([Source: SteamRIP](https://steamrip.com/slots-diapers-free-download/))
-  - [megadb](https://megadb.net/ztkkozwgzlkw)
-- House Flipper Remastered Collection Free Download (v1.26155) | 2026-06-05 ([Source: SteamRIP](https://steamrip.com/house-flipper-remastered-collection-free-download/))
-  - [bzzhr](https://bzzhr.to/m8soxn0gxu8b)
-  - [gofile](https://gofile.io/d/lmSRMg)
-  - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha6/a58f0a2fc11abeeb434f/House-Flipper-Remastered-Collection-SteamRIP.com.rar)
-- Papa’s Mocharia Deluxe Free Download | 2026-06-05 ([Source: SteamRIP](https://steamrip.com/papas-mocharia-deluxe-free-download/))
-  - [megadb](https://megadb.net/lhltnp7crai1)
-- Dread Neighbor | 2026-06-04 ([Source: Fitgirl](https://fitgirl-repacks.site/dread-neighbor/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7f5b3b5bcf4740d1#ACqu8CW9Fe6toNn8JLnTUBSgf8Lbs36oTz51573GLih7)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?94ea828e3d73abb1#GZoeG9dGTwdN9yTJJeoGbpBhMc99qy2h93SV3p8rXzT2)
-  - [1337x](https://1337x.to/torrent/6660004/Dread-Neighbor-MULTi12-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:354AE9830BC0ED27314B1C334A641D388B6A953A&dn=Dread+Neighbor+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1087965/dread-neighbor-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:354ae9830bc0ed27314b1c334a641d388b6a953a&dn=rutor.info_Dread+Neighbor+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123241)

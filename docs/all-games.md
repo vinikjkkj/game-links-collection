@@ -1996,6 +1996,8 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=206707)
     - [rutor](http://www.rutor.info/torrent/432041/airport-firefighters-the-simulation-2015-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:831e1efb5229597715734f26a770bdfed2343401&dn=rutor.info_Airport+Firefighters%3A+The+Simulation+%282015%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://bt.rutor.info:2710&tr=http://retracker.local/announce">Torrent</a>
+  - Airport Security Sucks! Free Download (Build 23625618 + Online) | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/airport-security-sucks-free-download/))
+    - [bzzhr](https://bzzhr.to/ux6tjug106p7)
   - AirportSim | 2025-06-06 ([Source: Elamigos](https://elamigos.site/data/AirportSim_MULTi8_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/76BDCF34AE.html)
     - [keeplinks](https://www.keeplinks.org/p16/655e8d0263604)
@@ -3553,6 +3555,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?44d899667ee42bbb#8LbP1uZmaB3Whhhg7mu8Nu73gWP92PvLiZU5QnRCtf6T)
     - [crackhub](https://crackhub.site/arcana-heart-3-lovemax-sixstars-xtend-2-dlcs-fitgirl-repack/)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?b7afa414f8185375#BA4iF9iC5gj1nZ7xiAKEEXbNziMtsq9Q2uWa8mdRfmo4)
+  - Arcane Merchant | 2026-06-09 ([Source: Fitgirl](https://fitgirl-repacks.site/arcane-merchant/))
+    - [datanodes](https://datanodes.to/on7qp3bqv8oy/Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/x89tyd17kfbv#Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/523978d9ed33032c747ed2a90c723a96/Arcane_Merchant_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6663026/Arcane-Merchant-MULTi7-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6B488FCAACB3F684FA551371E7ECFEDDB9515D4E&dn=Arcane+Merchant+%28MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1088520/arcane-merchant-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:6b488fcaacb3f684fa551371e7ecfeddb9515d4e&dn=rutor.info_Arcane+Merchant+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3124034)
   - Arcane Path | 2025-10-13 ([Source: Fitgirl](https://fitgirl-repacks.site/arcane-path/))
     - [datanodes](https://datanodes.to/qekhtuy2t4bk/Arcane_Path_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/hi03xg4dse03#Arcane_Path_--_fitgirl-repacks.site_--_.rar)
@@ -9986,6 +9997,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd235a655b2)
     - [filecrypt](https://www.filecrypt.cc/Container/E912879888.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd2361190c5)
+  - Call to Arms – Gates of Hell: Ostfront Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/call-to-arms-gates-of-hell-ostfront-free-download/))
+    - [gofile](https://gofile.io/d/kpT2m0)
+    - [bzzhr](https://bzzhr.to/4pvs8s134zyq)
   - Call to Arms: Gates of Hell – Ostfront: Ultimate Edition, v1.057.0 + 7 DLCs | 2025-12-06 ([Source: Fitgirl](https://fitgirl-repacks.site/call-to-arms-gates-of-hell-ostfront/))
     - [1337x](https://1337x.to/torrent/6540638/Call-to-Arms-Gates-of-Hell-Ostfront-Ultimate-Edition-v1-057-0-7-DLCs-MULTi10-FitGirl-Repack-Selective-Download-from-30-4-GB/)
     - <a href="magnet:?xt=urn:btih:4BBD0FE8B2FB417BB1A99EA25D46476756CBF215&dn=Call+to+Arms%3A+Gates+of+Hell+-+Ostfront%3A+Ultimate+Edition+%28v1.057.0+%2B+7+DLCs%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+30.4+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -22197,6 +22211,12 @@
     - [1337x](https://1337x.to/torrent/6621249/F1-25-Iconic-Edition-v1-18-1329442-8-DLCs-MULTi11-FitGirl-Hypervisor-Repack-Selective-Download-from-50-3-GB/)
     - <a href="magnet:?xt=urn:btih:5B201F317692E0A32AD11D0DFC804CD6367DF215&dn=F1+25%3A+Iconic+Edition+%28v1.18.1329442+%2B+8+DLCs%2A%2C+MULTi11%29+%5BFitGirl+Hypervisor+Repack%2C+Selective+Download+-+from+50.3+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3112857)
+  - F1 Manager 2022 – v1.13.0.105950 | 2026-06-09 ([Source: Fitgirl](https://fitgirl-repacks.site/f1-manager-2022/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fe0dfc297a4d4155#GuoUsCtVGR9PbVAx8Rdr5s1HRJghHr1fv1zsHNtXbshv)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?96cba092bd58b2fc#4q6FgkKshggazhRDmCJk8QYCNGTtay7FPRxPxQ6V8DYY)
+    - [1337x](https://1337x.to/torrent/6663207/F1-Manager-2022-v1-13-0-105950-MULTi13-FitGirl-Hypervisor-Repack/)
+    - <a href="magnet:?xt=urn:btih:F7B2EAB34FDD0FA79DC4F9FAB8AF725189DA345B&dn=F1+Manager+2022+%28v1.13.0.105950%2C+MULTi13%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3124123)
   - F1 Manager 2023: Deluxe Edition – v1.10.0.199864 + 2 DLCs | 2026-05-31 ([Source: Fitgirl](https://fitgirl-repacks.site/f1-manager-2023/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?110722e47510cd1a#DACGnuaCYUoY4aYaRfReusuZdnzTu9DEMkZ5eTPfGKDe)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d24e1b87ffc11611#Fcf1cgtbmZ11q7LWuCao3CsizRrWEEngMozDTAUxqnMD)
@@ -29445,6 +29465,9 @@
     - [rutor](https://rutor.info/torrent/1080025/headquarters-cold-war-v-1.01.04-2026-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:ef86d27b0ab40bc867deac8802b314bd34013aad&dn=rutor.info_Headquarters%3A+Cold+War+%5Bv+1.01.04%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3112607)
+  - Headquarters: World War II Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/headquarters-world-war-ii-free-download/))
+    - [gofile](https://gofile.io/d/xX7EnU)
+    - [bzzhr](https://bzzhr.to/bpltv4nng6pw)
   - Headquarters: World War II – Complete, v1.02.01 + 3 DLCs/Bonuses | 2025-02-19 ([Source: Fitgirl](https://fitgirl-repacks.site/headquarters-world-war-2/))
     - [1337x](https://1337x.to/torrent/6341490/Headquarters-World-War-II-Complete-v1-02-01-3-DLCs-Bonuses-MULTi8-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:5797494F1C69A63F63E29E2CB890ABAFD362A6CD&dn=Headquarters%3A+World+War+II+-+Complete+%28v1.02.01+%2B+3+DLCs%2FBonuses%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -59547,6 +59570,9 @@
   - Solarix | 2016-07-15 ([Source: Fitgirl](https://fitgirl-repacks.site/solarix/))
     - [tapochek](http://tapochek.net/viewtopic.php?t=167080)
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=206548)
+  - Solarpunk Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/solarpunk-free-download/))
+    - [gofile](https://gofile.io/d/IQQiOo)
+    - [megadb](https://megadb.net/733ggdvx1egf)
   - Solasta II Free Download (v0.3.5.84223) | 2026-03-24 ([Source: SteamRIP](https://steamrip.com/solasta-ii-free-download/))
     - [buzzheavier](https://buzzheavier.com/yoigy0u9j9gi)
     - [vikingfile](https://vikingfile.com/f/gW1f7Q359d)
