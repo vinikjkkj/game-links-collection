@@ -7334,6 +7334,15 @@
   - Black Jacket Free Download (v0.1.0.209) | 2026-05-13 ([Source: SteamRIP](https://steamrip.com/black-jacket-free-download/))
     - [gofile](https://gofile.io/d/CeFSlo)
     - [megadb](https://megadb.net/84svwwsn1mm6)
+  - Black Jacket – v0.1.0.214 + DLC | 2026-06-11 ([Source: Fitgirl](https://fitgirl-repacks.site/black-jacket/))
+    - [datanodes](https://datanodes.to/q3z2whmwi8jp/Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/b3ufc0kkpl00#Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/1c293718dfd5cb7c6aab1a71a171fb83/Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6664362/Black-Jacket-v0-1-0-214-DLC-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A91812B8387242666B8F0B0C674CDC8A6DC72074&dn=Black+Jacket+%28v0.1.0.214+%2B+DLC%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1088864/black-jacket-v-0.1.0.214-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:a91812b8387242666b8f0b0c674cdc8a6dc72074&dn=rutor.info_Black+Jacket+%5Bv+0.1.0.214+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3124500)
   - Black Legend – v0.1.753 | 2021-03-26 ([Source: Fitgirl](https://fitgirl-repacks.site/black-legend/))
     - [1337x](https://1337x.to/torrent/4819553/Black-Legend-v0-1-753-MULTi9-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:95FE1D33485D0EF2FE0BBE035856D24A9E009E53&dn=Black+Legend+%28v0.1.753%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -23335,6 +23344,8 @@
     - [megadb](https://megadb.net/0aumvpc3pnmc)
   - Fears to Fathom – Norwood Hitchhike Free Download (Build 11738415) | 2025-12-08 ([Source: SteamRIP](https://steamrip.com/fears-to-fathom-norwood-hitchhike-free-download/))
     - [buzzheavier](https://buzzheavier.com/yh3te4j26dop)
+  - Fears to Fathom – Scratch Creek Free Download (Build 23672048 + Online) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/fears-to-fathom-scratch-creek-free-download/))
+    - [bzzhr](https://bzzhr.to/tarai76sva5q)
   - Fears to Fathom – Woodbury Getaway Free Download (v1.13) | 2024-11-05 ([Source: SteamRIP](https://steamrip.com/fears-to-fathom-woodbury-getaway-free-download/))
     - [megadb](https://megadb.net/p8hjrycwq5f9)
   - Fears To Fathom: Carson House | 2023-01-11 ([Source: Fitgirl](https://fitgirl-repacks.site/fears-to-fathom-carson-house/))
@@ -45566,6 +45577,8 @@
     - <a href="magnet:?xt=urn:btih:1CC37EC752CB1326FFA6AD2D2A146711C9DF152D&dn=Nour%3A+Play+with+Your+Food+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [rutor](http://rutor.info/torrent/945086/nour-play-with-your-food-2023-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:1cc37ec752cb1326ffa6ad2d2a146711c9df152d&dn=rutor.info_Nour%3A+Play+with+Your+Food+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - Nova Antarctica Free Download | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/nova-antarctica-free-download/))
+    - [bzzhr](https://bzzhr.to/2g4gixoola7c)
   - Nova Antarctica: Premiere Collection + Official Visual Book DLC | 2026-01-31 ([Source: Fitgirl](https://fitgirl-repacks.site/nova-antarctica/))
     - [1337x](https://1337x.to/torrent/6576793/Nova-Antarctica-Premiere-Collection-Official-Visual-Book-DLC-MULTi10-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:A7973F3489264BDC14A74820547CF36DE389CA10&dn=Nova+Antarctica%3A+Premiere+Collection+%28%2B+Official+Visual+Book+DLC%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -65170,6 +65183,9 @@
     - [rutor](https://rutor.info/torrent/1059939/tales-of-old-dominus-v-1.0.261025-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:6e90d9f985b05022e04dd3de22bdfe4ea4772c31&dn=rutor.info_Tales+of+Old%3A+Dominus+%5Bv+1.0.261025%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3086030)
+  - Tales of Seikyu Free Download (v1.0) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/tales-of-seikyu-free-download/))
+    - [bzzhr](https://bzzhr.to/64428enm8fvb)
+    - [fileditchfiles](https://fileditchfiles.me/alpha7/4d91f967bd19cf3ad1ce/Tales-of-Seikyu-SteamRIP.com.rar)
   - Tales of Symphonia | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Tales_of_Symphonia__ElAmigos_-_f55yhWy9.html))
     - [filecrypt](https://www.filecrypt.cc/Container/8AA6A17046.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde33c7b81d8)
@@ -73010,6 +73026,9 @@
     - [buzzheavier](https://buzzheavier.com/v1cyp4xd508c)
   - Voidigo Free Download (v1.1.0) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/voidigo-free-download-n1/))
     - [megadb](https://megadb.net/be3bwgieaz8z)
+  - Voidling Bound Free Download (v76030) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/voidling-bound-free-download/))
+    - [bzzhr](https://bzzhr.to/nxtdvfjxz2c1)
+    - [gofile](https://gofile.io/d/wUisbe)
   - Voidtrain Deluxe Edition | 2025-11-07 ([Source: Elamigos](https://elamigos.site/data/Voidtrain_Deluxe_Edition_MULTi11_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/9107B75807.html)
     - [keeplinks](https://www.keeplinks.org/p16/690e462718754)
@@ -73710,6 +73729,8 @@
     - [megadb](https://megadb.net/6poov7ct2yew)
   - WitchSpring3 Re:Fine – The Story of Eirudy Free Download | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/witchspring3-refine-the-story-of-eirudy-free-download-0s/))
     - [megadb](https://megadb.net/d/5U)
+  - Witch’s Apocalyptic Journey Free Download | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/witchs-apocalyptic-journey-free-download/))
+    - [bzzhr](https://bzzhr.to/i4s8g644y5ci)
   - Withering Rooms Free Download (v1.25) | 2024-09-03 ([Source: SteamRIP](https://steamrip.com/withering-rooms-free-download/))
     - [megadb](https://megadb.net/nwecd8yvyvrx)
   - Wizard of Legend | 2022-03-08 ([Source: Elamigos](https://elamigos.site/data/Wizard_of_Legend_MULTi5__ElAmigos_-_0Yzcuws0.html))

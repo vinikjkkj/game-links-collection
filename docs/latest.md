@@ -1,5 +1,26 @@
 # Latest Games
 
+- Voidling Bound Free Download (v76030) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/voidling-bound-free-download/))
+  - [bzzhr](https://bzzhr.to/nxtdvfjxz2c1)
+  - [gofile](https://gofile.io/d/wUisbe)
+- Black Jacket – v0.1.0.214 + DLC | 2026-06-11 ([Source: Fitgirl](https://fitgirl-repacks.site/black-jacket/))
+  - [datanodes](https://datanodes.to/q3z2whmwi8jp/Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/b3ufc0kkpl00#Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/1c293718dfd5cb7c6aab1a71a171fb83/Black_Jacket_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6664362/Black-Jacket-v0-1-0-214-DLC-MULTi11-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:A91812B8387242666B8F0B0C674CDC8A6DC72074&dn=Black+Jacket+%28v0.1.0.214+%2B+DLC%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1088864/black-jacket-v-0.1.0.214-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:a91812b8387242666b8f0b0c674cdc8a6dc72074&dn=rutor.info_Black+Jacket+%5Bv+0.1.0.214+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124500)
+- Witch’s Apocalyptic Journey Free Download | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/witchs-apocalyptic-journey-free-download/))
+  - [bzzhr](https://bzzhr.to/i4s8g644y5ci)
+- Nova Antarctica Free Download | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/nova-antarctica-free-download/))
+  - [bzzhr](https://bzzhr.to/2g4gixoola7c)
+- Tales of Seikyu Free Download (v1.0) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/tales-of-seikyu-free-download/))
+  - [bzzhr](https://bzzhr.to/64428enm8fvb)
+  - [fileditchfiles](https://fileditchfiles.me/alpha7/4d91f967bd19cf3ad1ce/Tales-of-Seikyu-SteamRIP.com.rar)
+- Fears to Fathom – Scratch Creek Free Download (Build 23672048 + Online) | 2026-06-11 ([Source: SteamRIP](https://steamrip.com/fears-to-fathom-scratch-creek-free-download/))
+  - [bzzhr](https://bzzhr.to/tarai76sva5q)
 - Burglin’ Gnomes Free Download (Build 10062026 + Co-op) | 2026-06-10 ([Source: SteamRIP](https://steamrip.com/burglin-gnomes-free-download/))
   - [bzzhr](https://bzzhr.to/4jtyxmb38801)
 - MECCHA CHAMELEON Free Download (v1.0.2 + Multiplayer) | 2026-06-10 ([Source: SteamRIP](https://steamrip.com/meccha-chameleon-free-download/))
@@ -113,48 +134,3 @@
   - [rutor](https://rutor.info/torrent/1088345/peak-v-1.61.b-2025-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:f94498887161f45f8cca7ed2f2f32793ae034b6d&dn=rutor.info_PEAK+%5Bv+1.61.b%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3123783)
-- STAR WARS Battlefront II Free Download (Build 5433720) | 2026-06-07 ([Source: SteamRIP](https://steamrip.com/star-wars-battlefront-ii-free-download/))
-  - [gofile](https://gofile.io/d/J7lIIf)
-  - [bzzhr](https://bzzhr.to/y54pdzcmsh09)
-- Gold Gold Adventure Gold | 2026-06-07 ([Source: Fitgirl](https://fitgirl-repacks.site/gold-gold-adventure-gold/))
-  - [datanodes](https://datanodes.to/xtryp6ittuiu/Gold_Gold_Adventure_Gold_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/6gxy42mjjv48#Gold_Gold_Adventure_Gold_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/7be923f0038a66790f9a7f762e3aa102/Gold_Gold_Adventure_Gold_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6661734/Gold-Gold-Adventure-Gold-MULTi11-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:70084D0FB9208A62D0E1C8C552B51520A8DCD390&dn=Gold+Gold+Adventure+Gold+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1088327/gold-gold-adventure-gold-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:70084d0fb9208a62d0e1c8c552b51520a8dcd390&dn=rutor.info_Gold+Gold+Adventure+Gold+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123750)
-- BrokenLore: FOLLOW | 2026-06-06 ([Source: Fitgirl](https://fitgirl-repacks.site/brokenlore-follow/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9a3fc69504801aa3#HRL7G8wcQRQWHSr7SnwuVeBtAF6XdwTxanUxPzA1zNyj)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9fbfea3ba958a930#4TABZ527p2kN4p8SDM9eHq2RfizZ5pXohdUzVwzANXSg)
-  - [1337x](https://1337x.to/torrent/6661179/BrokenLore-FOLLOW-MULTi15-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:3CBBCA8AC0C6162F00AA31D6DF5FB40B63B258BA&dn=BrokenLore%3A+FOLLOW+%28MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1088233/brokenlore-follow-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:3cbbca8ac0c6162f00aa31d6df5fb40b63b258ba&dn=rutor.info_BrokenLore%3A+FOLLOW+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123639)
-- My Garage | 2026-06-06 ([Source: Fitgirl](https://fitgirl-repacks.site/my-garage/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0bc17a6f90631c73#CcGpaYRppw3M4qbSN8gFPkHafvsozKSk5yKHLwfm9K7D)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?35167b8457ae8b5a#89jQ1aDPme6cydx6nLDAM2A8YYs3H4jDajqJ1iBtQGhp)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fdd155865785ed04#GQxGzxbY76QzFJkTS5wqyurybDZDNjzY2KVRB12WikjE)
-  - [1337x](https://1337x.to/torrent/6661161/My-Garage-MULTi11-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:20AD25CA3A30D4816E2469544F490A7AB4FC77DA&dn=My+Garage+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1088229/my-garage-v-1.0-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:20ad25ca3a30d4816e2469544f490a7ab4fc77da&dn=rutor.info_My+Garage+%5Bv+1.0%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123628)
-- Floppy-Ear Chaos | 2026-06-06 ([Source: Fitgirl](https://fitgirl-repacks.site/floppy-ear-chaos/))
-  - [datanodes](https://datanodes.to/76ha4akmynht/Floppy-Ear_Chaos_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/uumw25c4f1vr#Floppy-Ear_Chaos_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/a8fbab452d57335ea90b3a75bf055442/Floppy-Ear_Chaos_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6661133/Floppy-Ear-Chaos-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:971E46FF68263496C6DDF00C46B951E5660AEA97&dn=Floppy-Ear+Chaos+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123624)
-- Rainbow Legends – v1.00 (Release) | 2026-06-06 ([Source: Fitgirl](https://fitgirl-repacks.site/rainbow-legends/))
-  - [datanodes](https://datanodes.to/ey2tgqgbho76/Rainbow_Legends_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/0cv5ob8bamp4#Rainbow_Legends_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/9315165e3ad97e5953cda6b30e5893c1/Rainbow_Legends_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6661003/Rainbow-Legends-v1-00-Release-MULTi6-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:1B610645FA3B8C1D6EB699B5BD056F2B9AA6D54E&dn=Rainbow+Legends+%28v1.00%2FRelease%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1088208/rainbow-legends-v-1.00-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:1b610645fa3b8c1d6eb699b5bd056f2b9aa6d54e&dn=rutor.info_Rainbow+Legends+%5Bv+1.00%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3123593)
