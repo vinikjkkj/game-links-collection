@@ -1,5 +1,28 @@
 # Latest Games
 
+- Football Manager 2022 – v22.4.1 + DLC | 2026-06-13 ([Source: Fitgirl](https://fitgirl-repacks.site/football-manager-2022/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?14cc0d77dee0d76c#D1EdswNahxA9NSRSC1fttShnGidbHV41puTw9gQ6KUiG)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f5374157e5a400dc#7vbf9vPxz5VQqdyy9jXv1rZzH4wAJZJYvqLiXqNTSigf)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c50eed2953ab8f04#EJagzR7qy4b1UWmeyWtfNjLLsEsRXYZKimZEWf1esMqj)
+  - [1337x](https://1337x.to/torrent/6665514/Football-Manager-2022-v22-4-1-DLC-MULTi17-FitGirl-Hypervisor-Repack/)
+  - <a href="magnet:?xt=urn:btih:0AAEC99D66C0DFD4DBECFB5BDEB01E82CB437FB4&dn=Football+Manager+2022+%28v22.4.1+%2B+DLC%2C+MULTi17%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124822)
+- Artificial Extinction 2 | 2026-06-13 ([Source: Fitgirl](https://fitgirl-repacks.site/artificial-extinction-2/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?be959c4cd282a0c3#Bg1A1SJNXfMsBBRbVDauKgbYrnhPsuk7uNios5xya2Nw)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f5ad224190dc0c29#5RZuR5Ht5DdrsUibvKuFzA6TfMS4vVq1kY7rtMKcSaei)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9a10414b501d0587#3Mje3ZLhHB6JuA3xY45yocDjX1kNr94CETyjPK8sZUB3)
+  - [1337x](https://1337x.to/torrent/6665483/Artificial-Extinction-2-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:49C72B0F988C468F4D91C20E9EB576C052712011&dn=Artificial+Extinction+2+%28MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1089092/artificial-extinction-2-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:49c72b0f988c468f4d91c20e9eb576c052712011&dn=rutor.info_Artificial+Extinction+2+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124795)
+- The Caribou Trail – v1.0.334 | 2026-06-13 ([Source: Fitgirl](https://fitgirl-repacks.site/the-caribou-trail/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?16d29693a835bdc1#8Y72PdctW4EuwZwVY9VxpQKcaFV7kp6qsKdPUuxqcYQc)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f807889bf7b1728b#7bzuqeRk7Hh3TrWB5QSwncnHJjkSGRgfNAWkAdH78xhD)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8b1f3917e020eb6a#6vzknHpyR8WLq1pHwP2zmwuciakecZdb2fxMPLNVD2Bn)
+  - [1337x](https://1337x.to/torrent/6665351/The-Caribou-Trail-v1-0-334-ENG-FRA-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:13477CE96593C3C19F3EA6EC0263A162F2312529&dn=The+Caribou+Trail+%28v1.0.334%2C+ENG%2FFRA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3124766)
 - Persona 3 Portable – v1.01 | 2026-06-12 ([Source: Fitgirl](https://fitgirl-repacks.site/persona-3-portable-pc/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?643ef0bbe681e338#BB2QDmNgANYV8TB8ZoNYSYBZ3y6iQSTdmxmUbxorx11e)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?04c69df74f138217#4mezcr1S52e8sUBYR8Jwk1mrNbUESV2wV8F1d6PPoxDP)
@@ -124,12 +147,3 @@
   - [rutor](https://rutor.info/torrent/1088520/arcane-merchant-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:6b488fcaacb3f684fa551371e7ecfeddb9515d4e&dn=rutor.info_Arcane+Merchant+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3124034)
-- Headquarters: World War II Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/headquarters-world-war-ii-free-download/))
-  - [gofile](https://gofile.io/d/xX7EnU)
-  - [bzzhr](https://bzzhr.to/bpltv4nng6pw)
-- Solarpunk Free Download | 2026-06-09 ([Source: SteamRIP](https://steamrip.com/solarpunk-free-download/))
-  - [gofile](https://gofile.io/d/IQQiOo)
-  - [megadb](https://megadb.net/733ggdvx1egf)
-- Killer Bean Free Download | 2026-06-08 ([Source: SteamRIP](https://steamrip.com/killer-bean-free-download/))
-  - [gofile](https://gofile.io/d/dHBIUS)
-  - [bzzhr](https://bzzhr.to/nx7unkb66kp8)
