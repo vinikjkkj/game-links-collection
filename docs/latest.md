@@ -1,5 +1,38 @@
 # Latest Games
 
+- Maseylia: Echoes of the Past | 2026-06-20 ([Source: Fitgirl](https://fitgirl-repacks.site/maseylia-echoes-of-the-past/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?de17c8668d9af908#U6HtSj2jLctUoSoRyd8KsLvzzQdfT1hAi4CAzqZVRwF)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?007b7657fef3aa53#6p35bAWGyhioYZKmHb7URgns1rpeqfToW54kiPRhS54G)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ddc35f6f1b821ace#Ex1KVPjhvjAGtm1JGf4ag4zSu4wfq5nLkqrrDa5YfjHw)
+  - [1337x](https://1337x.to/torrent/6669622/Maseylia-Echoes-of-the-Past-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:AAE9343B427EF01A2C6DDDAE3F4CD04E0FC838DC&dn=Maseylia%3A+Echoes+of+the+Past+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1090084/maseylia-echoes-of-the-past-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:aae9343b427ef01a2c6dddae3f4cd04e0fc838dc&dn=rutor.info_Maseylia%3A+Echoes+of+the+Past+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3125777)
+- PBA Pro Bowling 2026 Free Download | 2026-06-20 ([Source: SteamRIP](https://steamrip.com/pba-pro-bowling-2026-free-download/))
+  - [gofile](https://gofile.io/d/WOhoSv)
+  - [bzzhr](https://bzzhr.to/zpii0wsppe3b)
+- Space Hulk: Ultimate Pack – v1.5.1a + 6 DLCs | 2026-06-20 ([Source: Fitgirl](https://fitgirl-repacks.site/space-hulk/))
+  - [datanodes](https://datanodes.to/if8opaklvict/Space_Hulk_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/s1ygwn28232g#Space_Hulk_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/b8216b93f4c83f567093e6393ffc5fd1/Space_Hulk_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6669589/Space-Hulk-Ultimate-Pack-v1-5-1a-6-DLCs-MULTi7-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:B8A4B8D70C1EDAD31033BCE8A6056B3E6E88C71D&dn=Space+Hulk%3A+Ultimate+Pack+%28v1.5.1a+%2B+6+DLCs%2C+MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1090072/space-hulk-ultimate-pack-v-1.5.1a-dlcs-2013-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:b8a4b8d70c1edad31033bce8a6056b3e6e88c71d&dn=rutor.info_Space+Hulk%3A+Ultimate+Pack+%5Bv+1.5.1a+%2B+DLC%27s%5D+%282013%29+PC+%7C+Repack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3125754)
+- Witchspire Free Download (Build 23809611 + Online) | 2026-06-20 ([Source: SteamRIP](https://steamrip.com/witchspire-free-download/))
+  - [gofile](https://gofile.io/d/QvRj2R)
+  - [bzzhr](https://bzzhr.to/feiwjdsq5qd2)
+- Solo Leveling: ARISE OVERDRIVE, v1.1.89 | 2026-06-20 ([Source: Fitgirl](https://fitgirl-repacks.site/solo-leveling-arise-overdrive/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3f808bc67783c6ef#BwakHjZNqEHC9HfbHvNdBxnJtYdnaXFs7uVRRqoEayei)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?681ca4e57cf30dfa#UgHsqKcXtdKesq5AU4PkZSNtCbDD8BhvJJSSQecRr1B)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?850a1500a2ae7e5c#8JAdGCniBZWQVRW8Sk46WU7ntNkPZUvJq7VzfghcsKec)
+  - [1337x](https://1337x.to/torrent/6669267/Solo-Leveling-ARISE-OVERDRIVE-Deluxe-Edition-v1-1-89-3-DLCs-MULTi22-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:F2E41EAEE2DA00ED6602E323D78224C61B9DDC07&dn=Solo+Leveling%3A+ARISE+OVERDRIVE+-+Deluxe+Edition+%28v1.1.89+%2B+3+DLCs%2C+MULTi22%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1089958/solo-leveling-arise-overdrive-deluxe-edition-v-1.1.89-dlcs-2025-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:f2e41eaee2da00ed6602e323d78224c61b9ddc07&dn=rutor.info_Solo+Leveling%3A+ARISE+OVERDRIVE+-+Deluxe+Edition+%5Bv+1.1.89+%2B+DLCs%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3125684)
 - LumenTale: Memories of Trey – Deluxe Edition, v1.0.0.2.1285 + 3 DLCs/Bonuses | 2026-06-19 ([Source: Fitgirl](https://fitgirl-repacks.site/lumentale-memories-of-trey/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?53f857b8999a409b#2NrQjdNZbbKpi42bXf9NL5XPDLQEPMRgiWou8hLNjydf)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6dba29b1c040a5ff#C2FHSCX4XerLKYYxMCa7jboBqaa8fwxGaCxRDskZpoCK)
@@ -86,29 +119,3 @@
   - [rutor](https://rutor.info/torrent/1089811/log-away-v-1.5-dlcs-2025-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:7b1912d63feaa02dd299dcedf2b31ccd6edccfbb&dn=rutor.info_Log+Away+%5Bv+1.5+%2B+DLC%27s%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3125508)
-- COPA CITY Free Download | 2026-06-18 ([Source: SteamRIP](https://steamrip.com/copa-city-free-download/))
-  - [gofile](https://gofile.io/d/0xToJk)
-  - [bzzhr](https://bzzhr.to/jqoatkr9q2b7)
-- Junkster | 2026-06-17 ([Source: Fitgirl](https://fitgirl-repacks.site/junkster/))
-  - [datanodes](https://datanodes.to/8ah39zzh2lut/Junkster_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/dt5neavrlg3j#Junkster_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/f6cb92582d84baff56d9a10dd56355b8/Junkster_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6667979/Junkster-MULTi13-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:4346B9F2F99A41F436A5A8394717EE8215C429F7&dn=Junkster+%28MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1089690/junkster-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:4346b9f2f99a41f436a5a8394717ee8215c429f7&dn=rutor.info_Junkster+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3125413)
-- Gastova: The Witches of Arkana Free Download | 2026-06-17 ([Source: SteamRIP](https://steamrip.com/gastova-the-witches-of-arkana-free-download/))
-  - [bzzhr](https://bzzhr.to/171k7dxmegub)
-- RAIDBORN: Ultimate Edition – v2026.06.02 (v1.0 Release) + 2 DLCs | 2026-06-17 ([Source: Fitgirl](https://fitgirl-repacks.site/raidborn/))
-  - [datanodes](https://datanodes.to/ptt9kxvqzn19/RAIDBORN_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/n934klmuj4mj#RAIDBORN_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/3c86a27b4b2d31c6b91eac6ec126937b/RAIDBORN_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6667966/RAIDBORN-Ultimate-Edition-v2026-06-02-v1-0-Release-2-DLCs-MULTi6-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:D94858B39D41C6E90B2D8C6BCAEC6CB58E06D506&dn=RAIDBORN%3A+Ultimate+Edition+%28v2026.06.02%2Fv1.0+Release+%2B+2+DLCs%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1089683/raidborn-ultimate-edition-v-1.0-dlcs-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:d94858b39d41c6e90b2d8c6bcaec6cb58e06d506&dn=rutor.info_RAIDBORN%3A+Ultimate+Edition+%5Bv+1.0+%2B+DLCs%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3125407)
-- The Scroll of Taiwu : Beyond The Dome Free Download | 2026-06-17 ([Source: SteamRIP](https://steamrip.com/the-scroll-of-taiwu-beyond-the-dome-free-download/))
-  - [gofile](https://gofile.io/d/mbbu7D)
-  - [bzzhr](https://bzzhr.to/h776lrewrknp)
