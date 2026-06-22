@@ -9099,6 +9099,8 @@
     - [1337x](https://1337x.to/torrent/6652187/Bubsy-4D-MULTi9-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:0B65139C0D57047021D98EC448D480C1ECE07DBB&dn=Bubsy+4D+%28MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3121418)
+  - Bubsy 4D Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/bubsy-4d-free-download/))
+    - [bzzhr](https://bzzhr.to/u2easdx0u3we)
   - Bubsy in: The Purrfect Collection | 2025-09-15 ([Source: Fitgirl](https://fitgirl-repacks.site/bubsy-in-the-purrfect-collection/))
     - [1337x](https://1337x.to/torrent/6483671/Bubsy-in-The-Purrfect-Collection-FitGirl-Repack-Selective-Download-from-544-MB/)
     - <a href="magnet:?xt=urn:btih:F2518DDF51FF06C3F76D1750BC58AFD46953ACEE&dn=Bubsy+in%3A+The+Purrfect+Collection+%5BFitGirl+Repack%2C+Selective+Download+-+from+544+MB%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -25366,6 +25368,9 @@
     - [rutor](http://rutor.info/torrent/866966/forza-motorsport-7-ultimate-edition-v-1.174.4791.2-dlcs-multiplayer-2017-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:31cc910a2626a9182b52bfca6c87952c11d64b25&dn=rutor.info_Forza+Motorsport+7%3A+Ultimate+Edition+%5Bv+1.174.4791.2+%2B+DLCs+%2B+Multiplayer%5D+%282017%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2840773)
+  - Forza Motorsport Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/forza-motorsport-free-download/))
+    - [gofile](https://gofile.io/d/8t0SqS)
+    - [bzzhr](https://bzzhr.to/ck75rsr43pz6)
   - Forza Motorsport Premium Edition | 2025-03-10 ([Source: Elamigos](https://elamigos.site/data/Forza_Motorsport_2023_MULTi21_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/C947D9A433.html)
     - [keeplinks](https://www.keeplinks.org/p16/651e9ecb80af3)
@@ -66695,6 +66700,9 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=2996576)
     - **Updates**
       - [Thank.Goodness.Youre.Here.Update.v1.6.1-TENOKE.rar](https://filecrypt.cc/Container/791FA3C8A9.html)
+  - Thank You For Your Application Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/thank-you-for-your-application-free-download/))
+    - [megadb](https://megadb.net/rfpm8h5b9907)
+    - [bzzhr](https://bzzhr.to/iv30nuxe9ae9)
   - Tharsis | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Tharsis__ElAmigos_-_4hKvMCQ5.html))
     - [filecrypt](https://www.filecrypt.cc/Container/C0E7091C62.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde37601a7a4)

@@ -1,5 +1,13 @@
 # Latest Games
 
+- Forza Motorsport Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/forza-motorsport-free-download/))
+  - [gofile](https://gofile.io/d/8t0SqS)
+  - [bzzhr](https://bzzhr.to/ck75rsr43pz6)
+- Thank You For Your Application Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/thank-you-for-your-application-free-download/))
+  - [megadb](https://megadb.net/rfpm8h5b9907)
+  - [bzzhr](https://bzzhr.to/iv30nuxe9ae9)
+- Bubsy 4D Free Download | 2026-06-22 ([Source: SteamRIP](https://steamrip.com/bubsy-4d-free-download/))
+  - [bzzhr](https://bzzhr.to/u2easdx0u3we)
 - Finnish Cottage Simulator Free Download | 2026-06-21 ([Source: SteamRIP](https://steamrip.com/finnish-cottage-simulator-free-download/))
   - [bzzhr](https://bzzhr.to/kmb78yhgeh67)
 - Arma Reforger: Deluxe Edition – v1.7.0.49 + 3 Bonus DLCs | 2026-06-21 ([Source: Fitgirl](https://fitgirl-repacks.site/arma-reforger/))
@@ -111,9 +119,3 @@
 - R-Type Tactics I • II Cosmos Free Download | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/r-type-tactics-i-ii-cosmos-free-download/))
   - [gofile](https://gofile.io/d/Q7lweg)
   - [bzzhr](https://bzzhr.to/l0jdmyptpqk6)
-- Fallout 4 VR Free Download | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/fallout-4-vr-free-download/))
-  - [bzzhr](https://bzzhr.to/5sdda9w24p4c)
-- Psycho Patrol R Free Download | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/psycho-patrol-r-free-download/))
-  - [bzzhr](https://bzzhr.to/txdgmzaw9zz1)
-- Tattoo Removal Simulator Free Download | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/tattoo-removal-simulator-free-download/))
-  - [bzzhr](https://bzzhr.to/vcqluox2v759)
