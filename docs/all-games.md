@@ -13300,6 +13300,8 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3097449)
     - **Updates**
       - [Cozy.Caravan.Update.v1.2.0-TENOKE.rar](https://filecrypt.cc/Container/0451D83EB7.html)
+  - Cozy Cleaner Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/cozy-cleaner-free-download/))
+    - [bzzhr](https://bzzhr.to/amyauomyseft)
   - Crab Champions Free Download (v1830 + Co-op) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/crab-champions-free-download-x1/))
     - [megadb](https://megadb.net/chgr4d025p30)
   - Crab God Free Download | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/crab-god-free-download/))
@@ -16242,6 +16244,8 @@
     - [1337x](https://1337x.to/torrent/6234550/Deepest-Chamber-Resurrection-v1-0-835-MULTi3-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:4FC210C0D3AC7B14A8D90E66A7674DE883E0E2D6&dn=Deepest+Chamber%3A+Resurrection+%28v1.0.835%2C+MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3002561)
+  - Deer & Boy Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/deer-boy-free-download/))
+    - [bzzhr](https://bzzhr.to/yyhl3v8bsreu)
   - Defend the Rook Free Download (v1.12) | 2024-03-09 ([Source: SteamRIP](https://steamrip.com/defend-the-rook-free-download-1r/))
     - [megadb](https://megadb.net/yeeeav6dowcp)
   - Defend the Rook – v1.02 | 2021-10-30 ([Source: Fitgirl](https://fitgirl-repacks.site/defend-the-rook/))
@@ -19700,6 +19704,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?99a97857a3e22451#4FFdmXEDSStfmFKkUx1HkZ8wwup9yyoEnfsXw1PpMj19)
     - [crackhub](https://crackhub.site/dustwind-v7955-fitgirl-repack/)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?478e8af9109778cb#GoSsYWw3w9Y6yGwuGxvonWao9htkq2MdmFB1DYVijjAe)
+  - Dustwind: Resistance Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/dustwind-resistance-free-download/))
+    - [bzzhr](https://bzzhr.to/id2dh32sol0n)
   - Dustwind: Resistance – Revision 12101 + Canyon Cross DLC | 2025-11-29 ([Source: Fitgirl](https://fitgirl-repacks.site/dustwind-resistance/))
     - [1337x](https://1337x.to/torrent/6537756/Dustwind-Resistance-Revision-12101-Canyon-Cross-DLC-MULTi10-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:49A22E36C87A069093EB4368E3F1658D2B7ACD66&dn=Dustwind%3A+Resistance+%28Revision+12101+%2B+Canyon+Cross+DLC%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -49735,6 +49741,8 @@
     - [rutor](http://rutor.info/torrent/1003894/plank-builders-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:c1727c2f7d788b1c681310739a1221c753f8d10b&dn=rutor.info_Plank+Builders+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3000318)
+  - Plant Nursery Simulator Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/plant-nursery-simulator-free-download/))
+    - [bzzhr](https://bzzhr.to/ijwxvp8dap9p)
   - Planternauts + Windows 7 Fix | 2024-09-29 ([Source: Fitgirl](https://fitgirl-repacks.site/planternauts/))
     - [1337x](https://1337x.to/torrent/6227171/Planternauts-Windows-7-Fix-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:8A3864D1B22D1F134F15B26A52E75CD69F79448A&dn=Planternauts+%28%2B+Windows+7+Fix%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -58920,6 +58928,8 @@
     - <a href="magnet:?xt=urn:btih:852f9117096f5b83efc1a7f53b482e4f509c5e2a&dn=Sine+Mora+EX+%5BFitGirl+Repack%5D+TAP&tr=retracker.local/announce">Torrent</a>
     - [paste2](https://paste2.org/CJD8xsdw)
     - [paste2](https://paste2.org/vyUjwmIK)
+  - Sineus Arena Survivors Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/sineus-arena-survivors-free-download/))
+    - [bzzhr](https://bzzhr.to/nuwfwbddrdu8)
   - Single Espresso – v1.0.0.1111.0425 | 2025-04-13 ([Source: Fitgirl](https://fitgirl-repacks.site/single-espresso/))
     - [1337x](https://1337x.to/torrent/6379438/Single-Espresso-v1-0-0-1111-0425-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:88F08222F371E418FEFB6B2495187998E51B1EAA&dn=Single+Espresso+%28v1.0.0.1111.0425%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.files.fm%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -64713,6 +64723,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?43c06fe9f63f6fb5#5aQVzK9gcNveqzsZDbetsETQLrzctiYEAuFBKvv9YyFQ)
   - SWAPMEAT Free Download (v0.10 + Co-op) | 2025-10-31 ([Source: SteamRIP](https://steamrip.com/swapmeat-free-download/))
     - [megadb](https://megadb.net/d1m2drkg6lbn)
+  - SWAPMEAT – Build 911 + 5 DLCs/Bonuses | 2026-06-23 ([Source: Fitgirl](https://fitgirl-repacks.site/swapmeat/))
+    - [datanodes](https://datanodes.to/d93fe0onuymi/SWAPMEAT_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/y33rtagvfl4u#SWAPMEAT_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/9027925ba43dc19acae45b4a352ce060/SWAPMEAT_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6670881/SWAPMEAT-Build-911-5-DLCs-Bonuses-MULTi6-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:2B58DB52F1891BC83FDEFB3D0D99568B53952071&dn=SWAPMEAT+%28Build+911+%2B+5+DLCs%2FBonuses%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3126038)
   - SWAT 4 Gold Edition | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/SWAT_4_Gold_Edition__ElAmigos_-_EZthScYr.html))
     - [filecrypt](https://www.filecrypt.cc/Container/8D9106840B.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddda98eb9ad7)
@@ -68588,6 +68605,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?306a98ba030d95f8#8YLvTyh5DGVVArBvkVhjKxV1MXr1rHKCnm6Jd4LX7Byw)
   - The House of Da Vinci 3 Free Download (v1.0.5) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/the-house-of-da-vinci-3-free-download-u1/))
     - [megadb](https://megadb.net/qzwn4i9p3gy5)
+  - The House of Da Vinci Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/the-house-of-da-vinci-free-download/))
+    - [bzzhr](https://bzzhr.to/3g8i6creow6l)
   - The House of Hikmah | 2026-05-04 ([Source: Fitgirl](https://fitgirl-repacks.site/the-house-of-hikmah/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?55d6d8fe7f42e506#FXMdbmXAdjRY8owJTFYotYhqyjxWvuVnfxkX6Bzfp9oD)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f2e9b3d3a34d85be#2WffcV4mxRKEqBa3NzQDhHDDVmNYMMkqcbQmrMVDTDVs)
@@ -74186,6 +74205,8 @@
     - [megadb](https://megadb.net/dyclhhp3qqc0)
   - Wizard with a Gun Free Download (v1.4.6 + Co-op) | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/wizard-with-a-gun-free-download-1x/))
     - [megadb](https://megadb.net/igt15xnsh7pw)
+  - Wizzerd Quest 2 Free Download | 2026-06-23 ([Source: SteamRIP](https://steamrip.com/wizzerd-quest-2-free-download/))
+    - [bzzhr](https://bzzhr.to/r19tgqjqexz4)
   - Wo Long Fallen Dynasty Deluxe Edition | 2023-12-12 ([Source: Elamigos](https://elamigos.site/data/Wo_Long_Fallen_Dynasty_Deluxe_Edition_MULTi11_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/742F86389B.html)
     - [keeplinks](https://www.keeplinks.org/p16/6400f4ba66aa9)
