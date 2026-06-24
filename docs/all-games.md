@@ -31443,6 +31443,8 @@
     - [rutor](https://rutor.info/torrent/1071658/hoverflow-v-1.0-2026-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:6a9b30f9112b116f479a4669babbd6a38b07ac33&dn=rutor.info_Hoverflow+%5Bv+1.0%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3101523)
+  - How to Make an Atomic Bomb in Your Garden Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/how-to-make-an-atomic-bomb-in-your-garden-free-download/))
+    - [bzzhr](https://bzzhr.to/rbvht1zkk9yg)
   - How to Survive | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/How_to_Survive__ElAmigos_-_J8NTRFDR.html))
     - [filecrypt](https://www.filecrypt.cc/Container/2C49A156B0.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5d8f0af0d)
@@ -33351,6 +33353,9 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3102710)
     - **Updates**
       - [Iron.Saga.VS.Update.v1.4.6-RUNE.rar](https://filecrypt.cc/Container/5B32227D01.html)
+  - Iron Sky: Invasion Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/iron-sky-invasion-free-download/))
+    - [gofile](https://gofile.io/d/HSJmYF)
+    - [bzzhr](https://bzzhr.to/35ee7hxe58rp)
   - Ironsmith Medieval Simulator | 2022-03-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ironsmith-medieval-simulator/))
     - [1337x](https://1337x.to/torrent/5178716/Ironsmith-Medieval-Simulator-MULTi7-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:D94D8C4A98AC6BE434C68D35E02FE3BD12041BB4&dn=Ironsmith+Medieval+Simulator+%28MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -36983,6 +36988,8 @@
     - [1337x](https://1337x.to/torrent/5806021/Let-s-Revolution-Game-Soundtrack-Bundle-v1-2-23-Gold-Bonus-OST-MULTi10-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:3811DAFB370DC8663CCC088F4C6B090E833A4067&dn=Let%26%23039%3Bs%21+Revolution%21+Game+%26amp%3B+Soundtrack+Bundle+%28v1.2.23+Gold+%2B+Bonus+OST%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2937519)
+  - Level Devil Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/level-devil-free-download/))
+    - [bzzhr](https://bzzhr.to/o8mpfthod2o9)
   - Lex Mortis | 2016-07-09 ([Source: Fitgirl](https://fitgirl-repacks.site/lex-mortis/))
     - [tapochek](http://tapochek.net/viewtopic.php?t=163135)
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=205366)
@@ -65180,6 +65187,15 @@
     - [megadb](https://megadb.net/fr4jftpty4i0)
   - Tabletop Tavern Free Download | 2026-06-14 ([Source: SteamRIP](https://steamrip.com/tabletop-tavern-free-download/))
     - [bzzhr](https://bzzhr.to/txyq66pem3sb)
+  - Tabletop Tavern – v0.6.11.3 | 2026-06-24 ([Source: Fitgirl](https://fitgirl-repacks.site/tabletop-tavern/))
+    - [datanodes](https://datanodes.to/ecm0gvjkki5f/Tabletop_Tavern_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/3ll6iq8vhbyg#Tabletop_Tavern_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/8f97cdf2560c219ac51263507c3b129d/Tabletop_Tavern_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6671329/Tabletop-Tavern-v0-6-11-3-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:80D4C3374C218C18D13FA4843543B055B9EC8B79&dn=Tabletop+Tavern+%28v0.6.11.3%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1090442/tabletop-tavern-v-0.6.11.3-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:80d4c3374c218c18d13fa4843543b055b9ec8b79&dn=rutor.info_Tabletop+Tavern+%5Bv+0.6.11.3%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3126135)
   - Taboo Trial – v5.0 + 4 DLCs + Bonus ArtBook + Modding Tools | 2024-06-07 ([Source: Fitgirl](https://fitgirl-repacks.site/taboo-trial/))
     - [1337x](https://1337x.to/torrent/6125654/Taboo-Trial-v5-0-4-DLCs-Bonus-ArtBook-Modding-Tools-MULTi10-FitGirl-Repack-Selective-Download-from-2-7-GB/)
     - <a href="magnet:?xt=urn:btih:A1A470FBA4E422ADF7A25FCE5325790D2F9BF79B&dn=Taboo+Trial+%28v5.0+%2B+4+DLCs+%2B+Bonus+ArtBook+%2B+Modding+Tools%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.7+GB%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -66887,6 +66903,8 @@
     - [1337x](https://1337x.to/torrent/6616633/The-Artisan-of-Glimmith-MULTi11-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:767E3CA07063FBA47AAA3D740ED2070D49B39B7A&dn=The+Artisan+of+Glimmith+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3111789)
+  - The Artisan of Glimmith Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/the-artisan-of-glimmith-free-download/))
+    - [bzzhr](https://bzzhr.to/l4mhc1w5aidl)
   - The Ascent | 2022-08-18 ([Source: Elamigos](https://elamigos.site/data/The_Ascent_MULTi10_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/86A5D09C6F.html)
     - [keeplinks](https://www.keeplinks.org/p16/6102fb9f32c0a)
