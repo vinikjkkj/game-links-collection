@@ -1,5 +1,25 @@
 # Latest Games
 
+- MOLE – v1.0.7 | 2026-06-25 ([Source: Fitgirl](https://fitgirl-repacks.site/mole/))
+  - [datanodes](https://datanodes.to/svagg1ieakeb/MOLE_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/tsk5c3jlp3qg#MOLE_--_fitgirl-repacks.site_--_.rar)
+  - [multiup](https://multiup.io/download/f7321ccf200730c16a9ab2e902545d88/MOLE_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6672264/MOLE-v1-0-7-MULTi10-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:38181948B4D72F27BDB35E29BE93BACF26D98436&dn=MOLE+%28v1.0.7%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1090631/mole-v-1.0.7-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:38181948b4d72f27bdb35e29be93bacf26d98436&dn=rutor.info_MOLE+%5Bv+1.0.7%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3126321)
+- COPA CITY – v1932 + 2 DLCs | 2026-06-25 ([Source: Fitgirl](https://fitgirl-repacks.site/copa-city/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5e5082cf3a6cd39c#5fhKTaUDuA36KTy9qiCcEN489QeenFhveXFAY4fEBYUh)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4c4e1dd5e75da11e#9Reo5nMKgS32DKhDptoptT2aRw9FkirdPV28keHUdSgm)
+  - [1337x](https://1337x.to/torrent/6672206/COPA-CITY-v1932-2-DLCs-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:7CA7CD7CED0D69C324D3FED8BD9DA077E33BC35B&dn=COPA+CITY+%28v1932+%2B+2+DLCs%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1090607/copa-city-v-1932-dlcs-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:7ca7cd7ced0d69c324d3fed8bd9da077e33bc35b&dn=rutor.info_COPA+CITY+%5Bv+1932+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3126296)
+- Orb of Creation Free Download (v1.0) | 2026-06-25 ([Source: SteamRIP](https://steamrip.com/orb-of-creation-free-download/))
+  - [gofile](https://gofile.io/d/cwE93W)
+  - [megadb](https://megadb.net/djyiwi39l5au)
 - The Artisan of Glimmith Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/the-artisan-of-glimmith-free-download/))
   - [bzzhr](https://bzzhr.to/l4mhc1w5aidl)
 - Level Devil Free Download | 2026-06-24 ([Source: SteamRIP](https://steamrip.com/level-devil-free-download/))
@@ -119,9 +139,3 @@
   - [1337x](https://1337x.to/torrent/6669239/LumenTale-Memories-of-Trey-Deluxe-Edition-v1-0-0-2-1285-3-DLCs-Bonuses-MULTi8-FitGirl-Repack-Selective-Download-from-1-6-GB/)
   - <a href="magnet:?xt=urn:btih:334B51E9246DCDDC76EAFD6687C0B8B81250DAC6&dn=LumenTale%3A+Memories+of+Trey+-+Deluxe+Edition+%28v1.0.0.2.1285+%2B+3+DLCs%2FBonuses%2C+MULTi8%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.6+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3125678)
-- Don’t Panic! It is Just Turbulence Free Download (Build 23252247 + Online) | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/dont-panic-it-is-just-turbulence-free-download/))
-  - [bzzhr](https://bzzhr.to/d1tdy8sabpzt)
-- Witchfire Free Download (Build 23806546 + Multiplayer) | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/witchfire-free-download-2/))
-  - [bzzhr](https://bzzhr.to/e6tx0zv3ae8y)
-- Undead Development Free Download | 2026-06-19 ([Source: SteamRIP](https://steamrip.com/undead-development-free-download/))
-  - [bzzhr](https://bzzhr.to/il7ga75mbfdz)
