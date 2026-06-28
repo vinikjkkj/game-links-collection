@@ -10816,6 +10816,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5ddd248fbe2b8)
     - [filecrypt](https://www.filecrypt.cc/Container/4196DD11B1.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd2496ad5fe)
+  - Castlevania: Lords of Shadow 2 Free Download | 2026-06-28 ([Source: SteamRIP](https://steamrip.com/castlevania-lords-of-shadow-2-free-download/))
+    - [bzzhr](https://bzzhr.to/jkdsr47wr7co)
   - Castlevania: Lords of Shadow 2 – v1.0.0.1/Update 1 + 4 DLCs | 2019-12-15 ([Source: Fitgirl](https://fitgirl-repacks.site/castlevania-lords-of-shadow-2/))
     - [1337x](http://1337x.to/torrent/4183953/Castlevania-Lords-of-Shadow-2-v1-0-0-1-Update-1-4-DLCs-MULTi7-FitGirl-Repack/)
     - [rutor](http://rutor.info/torrent/734909/castlevania-lords-of-shadow-2-v-1.0.0.1u1-4-dlc-2014-pc-repack-ot-fitgirl)
@@ -10832,6 +10834,9 @@
     - [multiup](https://multiup.org/download/9e73ca7e57997886105c65b0a85661c8/Castlevania_-_LoS_-_Mirror_of_Fate_HD__FitGirl_Repack_.rar)
     - [pastebin](https://pastebin.com/raw/tx43bbC8)
     - [filecrypt](https://filecrypt.cc/Container/C5362F6692.html)
+  - Castlevania: Lords of Shadow – Ultimate Edition Free Download | 2026-06-28 ([Source: SteamRIP](https://steamrip.com/castlevania-lords-of-shadow-ultimate-edition-free-download/))
+    - [gofile](https://gofile.io/d/TZn52r)
+    - [bzzhr](https://bzzhr.to/z3ouop06a6uy)
   - Castlevania: Lords of Shadow – Ultimate Edition – v1.0.2.9/Update 2 + All DLCs | 2019-12-15 ([Source: Fitgirl](https://fitgirl-repacks.site/castlevania-lords-of-shadow-ultimate-edition/))
     - [1337x](http://1337x.to/torrent/4194508/Castlevania-Lords-of-Shadow-Ultimate-Edition-v1-0-2-9-Update-2-All-DLCs-MULTi7-FitGirl-Repack/)
     - [rutor](http://rutor.info/torrent/735679/castlevania-lords-of-shadow-%E2%80%93-ultimate-edition-v-1.0.2.9u2-2013-pc-repack-ot-fitgirl)
@@ -34851,6 +34856,8 @@
     - [rutor](http://rutor.info/torrent/1005575/kill-knight-v-1.0.0.108-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:9a62e74d3021f1dd5b607e00985c3cb4bf65ea43&dn=rutor.info_KILL+KNIGHT+%5Bv+1.0.0.108%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3002433)
+  - KILL la KILL -IF Free Download | 2026-06-28 ([Source: SteamRIP](https://steamrip.com/kill-la-kill-if-free-download/))
+    - [bzzhr](https://bzzhr.to/mzb0dcetiv4b)
   - KILL la KILL: IF – v1.01 | 2019-07-27 ([Source: Fitgirl](https://fitgirl-repacks.site/kill-la-kill-if/))
     - [1337x](http://1337x.to/torrent/3907543/KILL-la-KILL-IF-v1-01-MULTi9-FitGirl-Repack-Selective-Download-from-1-7-GB/)
     - [tapochek](http://tapochek.net/viewtopic.php?p=2605012)
@@ -36114,6 +36121,15 @@
     - [megadb](https://megadb.net/p09c9ne2ccij)
   - Lawless West Free Download | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/lawless-west-free-download-1v/))
     - [megadb](https://megadb.net/xvxf9wvetm3q)
+  - Lawn Care Simulator | 2026-06-28 ([Source: Fitgirl](https://fitgirl-repacks.site/lawn-care-simulator/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?27fc0b83c09a4cd6#4eVjtBCRMqMuS1YESscNaNbqgmhtaikW8YnvakuCNF61)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?45ed879736b0b43b#EV8dWyqvyL5xXKdC16zs6b1ubKPgrU1eoXB9omefVdqo)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8d0b6c12305f2f22#6NunA4C9curs8TQp7XSvpFC6fMsiTT8zUcu4X3kPG2Tz)
+    - [1337x](https://1337x.to/torrent/6673881/Lawn-Care-Simulator-MULTi14-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:19A568A97B94435C60C4AC64B7EE574BF1FDEBFD&dn=Lawn+Care+Simulator+%28MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1095725/lawn-care-simulator-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:19a568a97b94435c60c4ac64b7ee574bf1fdebfd&dn=rutor.info_Lawn+Care+Simulator+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3126727)
   - Lawn Care Simulator Free Download | 2026-06-26 ([Source: SteamRIP](https://steamrip.com/lawn-care-simulator-free-download/))
     - [gofile](https://gofile.io/d/R2uwIw)
     - [bzzhr](https://bzzhr.to/28m3g84r8670)
@@ -52794,6 +52810,8 @@
   - REC: Beyond The Lens | 2023-07-07 ([Source: Fitgirl](https://fitgirl-repacks.site/rec-beyond-the-lens/))
     - [1337x](https://1337x.to/torrent/5718136/REC-Beyond-The-Lens-ENG-BRA-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:450A17609117B6A2CD475C5BA6B9B64BFE2430F5&dn=REC%3A+Beyond+The+Lens+%28ENG%2FBRA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2770%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2720%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - Receiver 2 Free Download | 2026-06-28 ([Source: SteamRIP](https://steamrip.com/receiver-2-free-download/))
+    - [bzzhr](https://bzzhr.to/jeo5kirddswy)
   - Recompile | 2021-08-20 ([Source: Fitgirl](https://fitgirl-repacks.site/recompile/))
     - [1337x](https://1337x.to/torrent/4958924/Recompile-MULTi6-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:040DACCC6EDE3836D44C12413F650EDCD319F88A&dn=Recompile+%28MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
