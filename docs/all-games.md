@@ -439,6 +439,8 @@
     - [worldsrc](https://worldsrc.com/games/detalis.php?Ty=201)
 
 - Initial: [
+  - [Chilla’s Art] Aka Manto | 赤マント Free Download | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/chillas-art-aka-manto-%e8%b5%a4%e3%83%9e%e3%83%b3%e3%83%88-free-download/))
+    - [bzzhr](https://bzzhr.to/zwbnksq33uk4)
   - [Chilla’s Art] The Closing Shift Free Download (v1.11) | 2025-12-27 ([Source: SteamRIP](https://steamrip.com/chillas-art-the-closing-shift-free-download/))
     - [gofile](https://gofile.io/d/L7S3Xr)
     - [buzzheavier](https://buzzheavier.com/cxt1apwz8mlf)
@@ -10772,6 +10774,8 @@
     - [1337x](https://1337x.to/torrent/6496345/Castle-of-Heart-Retold-v1-0-3-MULTi11-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:FD3A8FCEC020DFAE300CE1586646462B00C3C280&dn=Castle+of+Heart%3A+Retold+%28v1.0.3%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3079839)
+  - Castle of Illusion Free Download | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/castle-of-illusion-free-download/))
+    - [bzzhr](https://bzzhr.to/yvy7s2z6tmpp)
   - Castle of Illusion HD | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Castle_of_Illusion_HD__ElAmigos_-_mqnfC5E2.html))
     - [filecrypt](https://www.filecrypt.cc/Container/F5E61812BA.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd2450275f5)
@@ -30585,6 +30589,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/6006f79b6e735)
     - [filecrypt](https://www.filecrypt.cc/Container/65066AE094.html)
     - [keeplinks](https://www.keeplinks.org/p16/6006f78c1f46b)
+  - HITMAN World of Assassination Free Download | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/hitman-world-of-assassination-free-download/))
+    - [gofile](https://gofile.io/d/MWEKJa)
+    - [bzzhr](https://bzzhr.to/dp2p38vmqf63)
   - Hitman: Absolution Professional Edition | 2013-05-13 ([Source: Elamigos](https://elamigos.site/data/Hitman_Absolution_Professional_Edition__ElAmigos_-_00cKF4Fr.html))
     - [filecrypt](https://www.filecrypt.cc/Container/59EB2740D9.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd5fc365758)
@@ -46472,6 +46479,13 @@
     - [paste2](https://paste2.org/ffXdUMEP)
     - [upera](https://public.upera.co/f/8rluo2yk)
     - [megaup](https://megaup.net/1NF6/Omega_Quintet_[FitGirl_Repack].rar)
+  - Omen Exitio: Hunger + Bonus OST | 2026-06-30 ([Source: Fitgirl](https://fitgirl-repacks.site/omen-exitio-hunger/))
+    - [datanodes](https://datanodes.to/691q06lp762o/Omen_Exiti_Hunger_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/ib9vz7yznnfk#Omen_Exiti_Hunger_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/93ada1430d2e9fcf49fb3500c3e4fc29/Omen_Exiti_Hunger_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6675344/Omen-Exitio-Hunger-Bonus-OST-MULTi4-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:153E853A2C8AC28486EE7FF782DC081120749176&dn=Omen+Exitio%3A+Hunger+%28%2B+Bonus+OST%2C+MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3127014)
   - Omen Exitio: Hunger Free Download | 2026-06-26 ([Source: SteamRIP](https://steamrip.com/omen-exitio-hunger-free-download/))
     - [bzzhr](https://bzzhr.to/yfxa3apx2ejc)
   - Omen of Sorrow | 2019-06-23 ([Source: Fitgirl](https://fitgirl-repacks.site/omen-of-sorrow/))
@@ -53267,6 +53281,13 @@
     - [keeplinks](https://www.keeplinks.org/p16/608331305072f)
     - [filecrypt](https://www.filecrypt.cc/Container/12AD3168A1.html)
     - [keeplinks](https://www.keeplinks.org/p16/6083310f4751c)
+  - Relief – v2.66 | 2026-07-01 ([Source: Fitgirl](https://fitgirl-repacks.site/relief/))
+    - [datanodes](https://datanodes.to/6h0qtr8fgap6/Relief_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/octk0nmsgn68#Relief_--_fitgirl-repacks.site_--_.rar)
+    - [multiup](https://multiup.io/download/4a6a369b6683cfb1eedba89e1159678c/Relief_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6675885/Relief-v2-66-MULTi3-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:094A3659AA25E70FE57BAD2FF95381F2650E5F14&dn=Relief+%28v2.66%2C+MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3127128)
   - Relooted – v1.0.19.0 | 2026-02-11 ([Source: Fitgirl](https://fitgirl-repacks.site/relooted/))
     - [1337x](https://1337x.to/torrent/6584054/Relooted-v1-0-19-0-ENG-FRA-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:93734D86F8A4F9D84D65F11F164DB4CA83DA5637&dn=Relooted+%28v1.0.19.0%2C+ENG%2FFRA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -67105,6 +67126,9 @@
     - [rutor](https://rutor.info/torrent/1085129/the-awakener-battle-tendency-2026-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:8be97eeefc44a461c3904c45175531d583860d06&dn=rutor.info_The+Awakener%3A+Battle+Tendency+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3118940)
+  - The Awakener: Forgotten Oath Free Download | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/the-awakener-forgotten-oath-free-download/))
+    - [gofile](https://gofile.io/d/xObbZD)
+    - [bzzhr](https://bzzhr.to/1to0ikwaxby1)
   - The Awakener: Forgotten Oath – v2.10 | 2024-03-13 ([Source: Fitgirl](https://fitgirl-repacks.site/the-awakener-forgotten-oath/))
     - [1337x](https://1337x.to/torrent/6023529/The-Awakener-Forgotten-Oath-v2-10-ENG-CHI-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:2097EA36B2F8BCC2FF8A02CE77A42FA7F7506D39&dn=The+Awakener%3A+Forgotten+Oath+%28v2.10%2C+ENG%2FCHI%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -67911,6 +67935,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde39633c923)
     - [filecrypt](https://www.filecrypt.cc/Container/E758B4C72B.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde3968df006)
+  - The Darkness II Limited Edition Free Download (Build 11598) | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/the-darkness-ii-limited-edition-free-download/))
+    - [bzzhr](https://bzzhr.to/vc4b07buhhr4)
+    - [gofile](https://gofile.io/d/SRgXo0)
   - The Darkness II: Limited Edition | 2022-07-18 ([Source: Fitgirl](https://fitgirl-repacks.site/the-darkness-2/))
     - [1337x](https://1337x.to/torrent/5329508/The-Darkness-II-Limited-Edition-MULTi7-FitGirl-Repack-Selective-Download-from-4-4-GB/)
     - <a href="magnet:?xt=urn:btih:3BDB2FDA7326142CE542909580AF9D204A07219F&dn=The+Darkness+II%3A+Limited+Edition+%28MULTi7%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.4+GB%5D&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -72405,6 +72432,9 @@
     - [gofile](https://gofile.io/d/ca33BH)
     - [buzzheavier](https://buzzheavier.com/09eb89bu3mih)
     - [datanodes](https://datanodes.to/mry2i6dnbazf/Tour-de-Frannce-2025-SteamRIP.com.rar)
+  - Tour de France 2026 Free Download | 2026-07-01 ([Source: SteamRIP](https://steamrip.com/tour-de-france-2026-free-download/))
+    - [gofile](https://gofile.io/d/VSeyVw)
+    - [bzzhr](https://bzzhr.to/83qbqk7zsh6h)
   - Tourist Bus Simulator | 2025-03-20 ([Source: Elamigos](https://elamigos.site/data/Tourist_Bus_Simulator_MULTi17_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/46ACE5CA61.html)
     - [keeplinks](https://www.keeplinks.org/p16/68d2b2e72dbb4)
