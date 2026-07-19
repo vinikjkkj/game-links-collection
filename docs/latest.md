@@ -1,5 +1,25 @@
 # Latest Games
 
+- Craftopia Free Download | 2026-07-19 ([Source: SteamRIP](https://steamrip.com/craftopia-free-download/))
+  - [gofile](https://gofile.io/d/OiqksD)
+  - [bzzhr](https://bzzhr.to/h92glogn836c)
+- Frostrain 2: Deluxe Edition – v1.0.0-build-5 + Bonus DLC | 2026-07-19 ([Source: Fitgirl](https://fitgirl-repacks.site/frostrain-2/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9456ee7771563f8b#H44EL83MP3CshUUVBVN1KnoCV4nKDzE4H3GQNZi5uwqv)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?380e7279378c9568#6wkN62dgnXkZs7e9r8CPTVg113gT4ACNn8TqNxe1uFJ2)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c3c83256d0fa75ff#82sMaVmxasnmkuDWxkDLh7XZhyPLtY38xahPubh5UuFr)
+  - [1337x](https://1337x.to/torrent/6687530/Frostrain-2-Deluxe-Edition-v1-0-0-build-5-Bonus-DLC-MULTi13-FitGirl-Repack-Selective-Download-from-217-MB/)
+  - <a href="magnet:?xt=urn:btih:1E39DA95353AA7077C341BE1F7E59654524A4513&dn=Frostrain+2%3A+Deluxe+Edition%5B+%28v1.0.0-build-5+%2B+Bonus+DLC%2C+MULTi13%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+217+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1099561/frostrain-2-deluxe-edition-v-1.0.0-build-5-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:1e39da95353aa7077c341be1f7e59654524a4513&dn=rutor.info_Frostrain+2%3A+Deluxe+Edition+%5Bv+1.0.0-build-5+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3129361)
+- Moss: The Forgotten Relic + Bonus OST | 2026-07-19 ([Source: Fitgirl](https://fitgirl-repacks.site/moss-the-forgotten-relic/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6564e4c2707ada69#6YmzkZCbjzDJtbZu5Zt7X1jzJgnrT2PZVgVb2vx8JnPE)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3333f1a6a978ea82#9WDS941GwnAnvbBeoGGHySPhMSN2scHddy1Z8ryKTDfG)
+  - [1337x](https://1337x.to/torrent/6687520/Moss-The-Forgotten-Relic-Bonus-OST-MULTi10-FitGirl-Repack-Selective-Download-from-6-6-GB/)
+  - <a href="magnet:?xt=urn:btih:EA491F7C1AEEFD6C1C9CB9CED7C9427EFD90D689&dn=Moss%3A+The+Forgotten+Relic+%28%2B+Bonus+OST%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+6.6+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3129354)
+- We Were Here Together Free Download (Build 21783174 + Co-op) | 2026-07-19 ([Source: SteamRIP](https://steamrip.com/we-were-here-together-free-download/))
+  - [bzzhr](https://bzzhr.to/9l88npn3rxhr)
 - TYRONE SOULZ Free Download | 2026-07-19 ([Source: SteamRIP](https://steamrip.com/tyrone-soulz-free-download/))
   - [bzzhr](https://bzzhr.to/c92rtx0iylg4)
 - Donut County Free Download | 2026-07-19 ([Source: SteamRIP](https://steamrip.com/donut-county-free-download/))
@@ -79,25 +99,3 @@
   - [bzzhr](https://bzzhr.to/tfn3vuivy9tl)
 - ULTIMATE MARVEL VS. CAPCOM 3 Free Download | 2026-07-18 ([Source: SteamRIP](https://steamrip.com/ultimate-marvel-vs-capcom-3-free-download/))
   - [bzzhr](https://bzzhr.to/sl4f4ut486xi)
-- WARRIORS OROCHI 4 Free Download (Build 7194394 + LAN) | 2026-07-18 ([Source: SteamRIP](https://steamrip.com/warriors-orochi-4-free-download/))
-  - [gofile](https://gofile.io/d/FtFAA6)
-  - [bzzhr](https://bzzhr.to/pz7bczfywiuw)
-- Class of ’09: Puzzle Showdown Free Download (Build 24231786 + Online) | 2026-07-18 ([Source: SteamRIP](https://steamrip.com/class-of-09-puzzle-showdown-free-download/))
-  - [gofile](https://gofile.io/d/gvDftt)
-  - [megadb](https://megadb.net/lz8zl9aifowd)
-- A Game About Chopping Trees | 2026-07-17 ([Source: Fitgirl](https://fitgirl-repacks.site/a-game-about-chopping-trees/))
-  - [datanodes](https://datanodes.to/evzxow5w6gcs/A_Game_About_Chopping_Trees_--_fitgirl-repacks.site_--_.rar)
-  - [fuckingfast](https://fuckingfast.co/jqdxgzm46lxg#A_Game_About_Chopping_Trees_--_fitgirl-repacks.site_--_.rar)
-  - [multiup](https://multiup.io/download/eb6baa50e04ce2c18e58686a782968db/A_Game_About_Chopping_Trees_--_fitgirl-repacks.site_--_.rar)
-  - [1337x](https://1337x.to/torrent/6686126/A-Game-About-Chopping-Trees-MULTi7-FitGirl-Repack/)
-  - <a href="magnet:?xt=urn:btih:B3C910A84E468F5A6BA691D1E7A05257AB8D9B86&dn=A+Game+About+Chopping+Trees+%28MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [rutor](https://rutor.info/torrent/1099300/a-game-about-chopping-trees-2026-pc-repack-ot-fitgirl)
-  - <a href="magnet:?xt=urn:btih:b3c910a84e468f5a6ba691d1e7a05257ab8d9b86&dn=rutor.info_A+Game+About+Chopping+Trees+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3129112)
-- eBaseball: PRO SPIRIT 2026 & WORLD BASEBALL CLASSIC – Deluxe Edition, v2.1.0 + 17 DLCs | 2026-07-17 ([Source: Fitgirl](https://fitgirl-repacks.site/ebaseball-pro-spirit-2026/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b86efa6a29705aab#G4FkXUU5bBKtbQYHXraGqXTZSa3eoA68NWA67jjA2g8r)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3814fe6a295bf044#GZap8E6a26WXcNRzYDwShGf2T5ZG67b6xESTqVo4iV66)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c759207460dc56be#Ah7u29jzjminivq952QsC4nZxxqcKGayHSBC4cazsi5A)
-  - [1337x](https://1337x.to/torrent/6686056/eBaseball-PRO-SPIRIT-2026-WORLD-BASEBALL-CLASSIC-Deluxe-Edition-v2-1-0-17-DLCs-MULTi4-FitGirl-Hypervisor-Repack/)
-  - <a href="magnet:?xt=urn:btih:CE171CC787DBCD6031BFDB59C79EC53902BACE05&dn=eBaseball%3A+PRO+SPIRIT+2026+%26amp%3B+WORLD+BASEBALL+CLASSIC+-+Deluxe+Edition+%28v2.1.0+%2B+17+DLCs%2C+MULTi4%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3129103)
