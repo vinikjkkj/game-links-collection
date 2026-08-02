@@ -52974,6 +52974,14 @@
     - [1337x](https://1337x.to/torrent/6363729/Quarterstaff-v1-0-0-5db267-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:27B984BEFE38CBECB5DBEA65AC54B35B4A681AF0&dn=Quarterstaff+%28v1.0.0-5db267%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3042060)
+  - Quasimorph: Supporter Bundle – v1.0.560s.799c440 + DLC | 2026-08-02 ([Source: Fitgirl](https://fitgirl-repacks.site/quasimorph/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b5cf37aba610ad06#8LRM2bLSvKWUoKzHNvAAv4TwmP535ddaLJHJpDqYtuaL)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cc46195f1512b393#7R7V79b1bYELRbrB18xRCGpJNknNL7q3Hiq2N4RxMWon)
+    - [1337x](https://1337x.to/torrent/6695216/Quasimorph-Supporter-Bundle-v1-0-560s-799c440-DLC-MULTi11-FitGirl-Repack-Selective-Download-from-328-MB/)
+    - <a href="magnet:?xt=urn:btih:BED85784B7ACCA7EF6A99706F477F33CC4A95A42&dn=Quasimorph%3A+Supporter+Bundle+%28v1.0.560s.799c440+%2B+DLC%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+328+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1101051/quasimorph-v-1.0.560s-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:bed85784b7acca7ef6a99706f477f33cc4a95a42&dn=rutor.info_Quasimorph+%5Bv+1.0.560s+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3131410)
   - Quern - Undying Thoughts | 2018-02-27 ([Source: Elamigos](https://elamigos.site/data/Quern__Undying_Thoughts__ElAmigos_-_D19sJJ0P.html))
     - [filecrypt](https://www.filecrypt.cc/Container/FA1560ED29.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd94b6438d5)
@@ -56696,6 +56704,14 @@
     - [megadb](https://megadb.net/wahin948gedn)
   - Rubber Bandits Free Download (v1.0.1.13620) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/rubber-bandits-free-download-1u/))
     - [megadb](https://megadb.net/if6ieqhdef13)
+  - Rubinite & Soundtracks Bundle – v202607240040 + Bonus OST | 2026-08-02 ([Source: Fitgirl](https://fitgirl-repacks.site/rubinite/))
+    - [datanodes](https://datanodes.to/jxhzn8vogcqw/Rubinite_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/u47s3t1psiew#Rubinite_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6695174/Rubinite-Soundtracks-Bundle-v202607240040-Bonus-OST-MULTi8-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:3F63A219168443D65A8419BAECB338A969DBE149&dn=Rubinite+%26amp%3B+Soundtracks+Bundle+%28v202607240040+%2B+Bonus+OST%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1101042/rubinite-soundtracks-bundle-v-202607240040-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:3f63a219168443d65a8419baecb338a969dbe149&dn=rutor.info_Rubinite+%26+Soundtracks+Bundle+%5Bv+202607240040+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3131396)
   - Rubinite Free Download | 2026-07-24 ([Source: SteamRIP](https://steamrip.com/rubinite-free-download/))
     - [bzzhr](https://bzzhr.to/o6rcx437kigv)
   - Rue Valley Free Download | 2025-11-13 ([Source: SteamRIP](https://steamrip.com/rue-valley-free-download/))
@@ -62925,6 +62941,8 @@
       - [SpongeBob.SquarePants.Titans.of.the.Tide.Update.v1.2.0.1.incl.DLC-RUNE.rar](https://filecrypt.cc/Container/8699B5F727.html)
       - [SpongeBob.SquarePants.Titans.of.the.Tide.Update.v1.3.0.0.incl.DLC-RUNE.rar](https://filecrypt.cc/Container/17013BA72A.html)
       - [SpongeBob.SquarePants.Titans.of.the.Tide.Update.v1.4.0.0-RUNE.rar](https://filecrypt.cc/Container/3C905A02AB.html)
+  - Spooky’s Jump Scare Mansion: HD Renovation Free Download | 2026-08-02 ([Source: SteamRIP](https://steamrip.com/spookys-jump-scare-mansion-hd-renovation-free-download/))
+    - [bzzhr](https://bzzhr.to/aj5te1qv623n)
   - SPORE Collection – GOG DRM-free | 2016-09-24 ([Source: Fitgirl](https://fitgirl-repacks.site/spore-collection-gog-drm-free/))
     - [extratorrent](http://extratorrent.cc/torrent/5189463/)
     - <a href="magnet:?xt=urn:btih:76798bb5716c340769b3ebd03ba5b1472021378f">Torrent</a>
@@ -75496,6 +75514,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/5e4da8c62854c)
     - [filecrypt](https://www.filecrypt.cc/Container/69A69BCF51.html)
     - [keeplinks](https://www.keeplinks.org/p16/5e4da8b79f8d6)
+  - WARSHIFT 2 Free Download | 2026-08-02 ([Source: SteamRIP](https://steamrip.com/warshift-2-free-download/))
+    - [bzzhr](https://bzzhr.to/773xyqey7q2i)
   - Wartales | 2026-02-03 ([Source: Elamigos](https://elamigos.site/data/Wartales_MULTi8_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/4AD671FA34.html)
     - [keeplinks](https://www.keeplinks.org/p16/6436cf6b0eacf)

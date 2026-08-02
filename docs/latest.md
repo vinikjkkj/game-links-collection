@@ -1,5 +1,25 @@
 # Latest Games
 
+- Spooky’s Jump Scare Mansion: HD Renovation Free Download | 2026-08-02 ([Source: SteamRIP](https://steamrip.com/spookys-jump-scare-mansion-hd-renovation-free-download/))
+  - [bzzhr](https://bzzhr.to/aj5te1qv623n)
+- WARSHIFT 2 Free Download | 2026-08-02 ([Source: SteamRIP](https://steamrip.com/warshift-2-free-download/))
+  - [bzzhr](https://bzzhr.to/773xyqey7q2i)
+- Quasimorph: Supporter Bundle – v1.0.560s.799c440 + DLC | 2026-08-02 ([Source: Fitgirl](https://fitgirl-repacks.site/quasimorph/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b5cf37aba610ad06#8LRM2bLSvKWUoKzHNvAAv4TwmP535ddaLJHJpDqYtuaL)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cc46195f1512b393#7R7V79b1bYELRbrB18xRCGpJNknNL7q3Hiq2N4RxMWon)
+  - [1337x](https://1337x.to/torrent/6695216/Quasimorph-Supporter-Bundle-v1-0-560s-799c440-DLC-MULTi11-FitGirl-Repack-Selective-Download-from-328-MB/)
+  - <a href="magnet:?xt=urn:btih:BED85784B7ACCA7EF6A99706F477F33CC4A95A42&dn=Quasimorph%3A+Supporter+Bundle+%28v1.0.560s.799c440+%2B+DLC%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+328+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1101051/quasimorph-v-1.0.560s-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:bed85784b7acca7ef6a99706f477f33cc4a95a42&dn=rutor.info_Quasimorph+%5Bv+1.0.560s+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3131410)
+- Rubinite & Soundtracks Bundle – v202607240040 + Bonus OST | 2026-08-02 ([Source: Fitgirl](https://fitgirl-repacks.site/rubinite/))
+  - [datanodes](https://datanodes.to/jxhzn8vogcqw/Rubinite_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/u47s3t1psiew#Rubinite_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6695174/Rubinite-Soundtracks-Bundle-v202607240040-Bonus-OST-MULTi8-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:3F63A219168443D65A8419BAECB338A969DBE149&dn=Rubinite+%26amp%3B+Soundtracks+Bundle+%28v202607240040+%2B+Bonus+OST%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1101042/rubinite-soundtracks-bundle-v-202607240040-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:3f63a219168443d65a8419baecb338a969dbe149&dn=rutor.info_Rubinite+%26+Soundtracks+Bundle+%5Bv+202607240040+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3131396)
 - Corsair Cove – v1.1.1.241035 | 2026-08-01 ([Source: Fitgirl](https://fitgirl-repacks.site/corsair-cove/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cbb6836ff34d2f18#CGV8fH9rhopry46o6V6yas9Nhfg5ToUqFsYj2QfUR3iF)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7ec7b4363a01c738#9izvhRTCDVp6jMghzixPZYgHUMMQejDo7N6FT5L4QTdS)
@@ -84,12 +104,3 @@
 - How Many Dudes? Free Download (v1.0.5) | 2026-07-31 ([Source: SteamRIP](https://steamrip.com/how-many-dudes-free-download/))
   - [gofile](https://gofile.io/d/njFEQi)
   - [megadb](https://megadb.net/lxss612lbhw1)
-- Mahou Arms Free Download | 2026-07-31 ([Source: SteamRIP](https://steamrip.com/mahou-arms-free-download/))
-  - [gofile](https://gofile.io/d/NVJv3t)
-  - [bzzhr](https://bzzhr.to/pxbgdcibqrek)
-- 追曙 Free Download | 2026-07-31 ([Source: SteamRIP](https://steamrip.com/%e8%bf%bd%e6%9b%99-free-download/))
-  - [bzzhr](https://bzzhr.to/7uisojkwb5ez)
-- FINAL FANTASY XII THE ZODIAC AGE Free Download | 2026-07-31 ([Source: SteamRIP](https://steamrip.com/final-fantasy-xii-the-zodiac-age-free-download/))
-  - [bzzhr](https://bzzhr.to/sodrvp9m4m33)
-- Shambles: Sons of Apocalypse Free Download | 2026-07-31 ([Source: SteamRIP](https://steamrip.com/shambles-sons-of-apocalypse-free-download/))
-  - [bzzhr](https://bzzhr.to/l2j9e1zbw3w2)
