@@ -13952,6 +13952,9 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?5bf52c05d5a6f9b5#7qj34TLBbc6NHsNPbBi3JNJrsvKdTgTVAF5961ZJYDFF)
     - [crackhub](https://crackhub.site/cris-tales-fitgirl-repack/)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?34e177c95861ff18#HHdEx6Hyjxx5XFFnKBJAHm1ZebppmVAuYD6xcYrGTX5p)
+  - CRISIS CORE –FINAL FANTASY VII– REUNION Free Download | 2026-08-03 ([Source: SteamRIP](https://steamrip.com/crisis-core-final-fantasy-vii-reunion-free-download/))
+    - [gofile](https://gofile.io/d/Qx3BCV)
+    - [bzzhr](https://bzzhr.to/ny44ppy42rh0)
   - Crisis Core: Final Fantasy VII Reunion | 2023-04-11 ([Source: Elamigos](https://elamigos.site/data/Crisis_Core_Final_Fantasy_VII_Reunion_MULTi9_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/157FB7E713.html)
     - [keeplinks](https://www.keeplinks.org/p16/6398c094c44a1)
@@ -28871,6 +28874,8 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=204950)
     - [rutor](http://rutor.info/torrent/486053/grey-goo-definitive-edition-2015-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:b1cdce8db83fe84c50eb016875c4854f9142cf56&dn=rutor.info_Grey+Goo+-+Definitive+Edition+%282015%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
+  - Grey Hack Free Download | 2026-08-03 ([Source: SteamRIP](https://steamrip.com/grey-hack-free-download/))
+    - [bzzhr](https://bzzhr.to/zsiqhnaz8bn4)
   - Grey Skies: A War of the Worlds Story + Bonus Soundtrack | 2020-11-07 ([Source: Fitgirl](https://fitgirl-repacks.site/grey-skies-a-war-of-the-worlds-story/))
     - [1337x](https://1337x.to/torrent/4666695/Grey-Skies-A-War-of-the-Worlds-Story-Bonus-Soundtrack-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:5958397F3C1EB2B715EB0FB30AE32B45BFE8D1B6">Torrent</a>
@@ -29136,6 +29141,8 @@
     - [1337x](https://1337x.to/torrent/6685586/GROUND-BRANCH-v1-0-Build-21215-Release-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:EB970B8577688C9E9B36CED2FDB99C3528ED9FBD&dn=GROUND+BRANCH+%28v1.0+Build+21215%2FRelease%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3129071)
+  - Ground of Aces Free Download | 2026-08-03 ([Source: SteamRIP](https://steamrip.com/ground-of-aces-free-download/))
+    - [bzzhr](https://bzzhr.to/avdbqs0fpyb5)
   - Ground Zero – Patch 1 | 2026-05-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ground-zero/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d437129a169f6cf2#6sEP3hriRG5yqcYnhpur4AC1RTMXhtFW2vmXB791RfaV)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1411759b604bb6b5#AC6xQhPP37i9ZDKCUrqR831vTDh2sa1UXp4XyGuurr5E)
@@ -30647,6 +30654,8 @@
     - **Updates**
       - [Hell_is_Us_Update_from_v1.3.36_to_v1.4.22-ElAmigos.rar](https://filecrypt.cc/Container/159A6691F2.html)
       - [Hell_is_Us_Update_from_v1.4.22_to_v1.5.40-ElAmigos.rar](https://filecrypt.cc/Container/99FD5F5558.html)
+  - Hell Maiden Free Download | 2026-08-03 ([Source: SteamRIP](https://steamrip.com/hell-maiden-free-download/))
+    - [bzzhr](https://bzzhr.to/14fwtilj2cvf)
   - Hell of an Office | 2024-10-16 ([Source: Fitgirl](https://fitgirl-repacks.site/hell-of-an-office/))
     - [1337x](https://1337x.to/torrent/6240321/Hell-of-an-Office-MULTi14-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:D609F99572FA30B48F5E8E1CA433CA1FC7F1AD30&dn=Hell+of+an+Office+%28MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -60529,6 +60538,14 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3015422)
   - Skills & Raids Free Download | 2026-07-28 ([Source: SteamRIP](https://steamrip.com/skills-raids-free-download/))
     - [bzzhr](https://bzzhr.to/iffgkvw74u1n)
+  - Skills & Raids: Supporter Pack Bundle + 2 Bonus DLCs | 2026-08-03 ([Source: Fitgirl](https://fitgirl-repacks.site/skills-and-raids/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cec891080ce7e9a5#2kgdBSTpjmaXb3PcydYFuJQNzpfJZbF3dwZATuGFtwbu)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?223921d6c77c85ad#69u4rPXVeFWcBzBSFUabHA7zHN1YLn8vWTYC17CXvHCC)
+    - [1337x](https://1337x.to/torrent/6695684/Skills-Raids-Supporter-Pack-Bundle-2-Bonus-DLCs-MULTi13-FitGirl-Repack-Selective-Download-from-456-MB/)
+    - <a href="magnet:?xt=urn:btih:E67D7F8E0585C448091EFD0234D775E5563C1726&dn=Skills+%26amp%3B+Raids%3A+Supporter+Pack+Bundle+%28%2B+2+Bonus+DLCs%2C+MULTi13%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+456+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1101136/skills-raids-supporter-pack-bundle-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:e67d7f8e0585c448091efd0234d775e5563c1726&dn=rutor.info_Skills+%26+Raids%3A+Supporter+Pack+Bundle+%5B%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3131548)
   - Skin Deep Free Download (v2025.05.19.1747) | 2025-05-29 ([Source: SteamRIP](https://steamrip.com/skin-deep-free-download/))
     - [gofile](https://gofile.io/d/T7OUYF)
     - [megadb](https://megadb.net/2eizwg4jhv8a)
