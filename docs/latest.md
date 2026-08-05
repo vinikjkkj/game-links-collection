@@ -1,5 +1,13 @@
 # Latest Games
 
+- Kusan: City of Wolves | 2026-08-05 ([Source: Fitgirl](https://fitgirl-repacks.site/kusan-city-of-wolves/))
+  - [datanodes](https://datanodes.to/66ox1t4fc46a/Kusan_City_of_Wolves_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/30zwkhyr2igy#Kusan_City_of_Wolves_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6696881/Kusan-City-of-Wolves-MULTi11-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:BDE7EEEC22210F1B531C26B3E49630306DADFF3B&dn=Kusan%3A+City+of+Wolves+%28MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1101338/kusan-city-of-wolves-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:bde7eeec22210f1b531c26b3e49630306dadff3b&dn=rutor.info_Kusan%3A+City+of+Wolves+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3131893)
 - Big Walk Free Download (v1.4.7 + Co-op) | 2026-08-04 ([Source: SteamRIP](https://steamrip.com/big-walk-free-download/))
   - [gofile](https://gofile.io/d/bkimhc)
   - [megadb](https://megadb.net/c4y33y03d76z)
@@ -114,6 +122,3 @@
   - [bzzhr](https://bzzhr.to/jmr0do4dbrb2)
 - HackHub – Ultimate Hacker Simulator Free Download | 2026-08-01 ([Source: SteamRIP](https://steamrip.com/hackhub-ultimate-hacker-simulator-free-download/))
   - [bzzhr](https://bzzhr.to/uugycqe1bz5p)
-- Total War: ATTILA Free Download | 2026-08-01 ([Source: SteamRIP](https://steamrip.com/total-war-attila-free-download/))
-  - [gofile](https://gofile.io/d/hYwUgZ)
-  - [bzzhr](https://bzzhr.to/d1x16l5oquc2)
