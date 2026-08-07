@@ -34239,6 +34239,9 @@
     - [tapochek](http://tapochek.net/viewtopic.php?p=2949637)
   - Iron Meat Free Download | 2024-09-29 ([Source: SteamRIP](https://steamrip.com/iron-meat-free-download/))
     - [megadb](https://megadb.net/88soyzdg1z60)
+  - IRON NEST: Heavy Turret Simulator Free Download | 2026-08-06 ([Source: SteamRIP](https://steamrip.com/iron-nest-heavy-turret-simulator-free-download/))
+    - [gofile](https://gofile.io/d/fqfvaO)
+    - [bzzhr](https://bzzhr.to/tyzf9g9g3k0o)
   - Iron Saga VS Free Download | 2026-06-26 ([Source: SteamRIP](https://steamrip.com/iron-saga-vs-free-download/))
     - [bzzhr](https://bzzhr.to/obbfj7g23qkh)
   - Iron Saga VS: Deluxe Bundle – v1.4.3r1_0 + 2 DLCs | 2026-02-12 ([Source: Fitgirl](https://fitgirl-repacks.site/iron-saga-vs/))
@@ -38958,6 +38961,12 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=2983595)
   - Lossless Scaling Free Download (v3.2.2) | 2026-04-13 ([Source: SteamRIP](https://steamrip.com/lossless-scaling-free-download/))
     - [megadb](https://megadb.net/qzl0wlxxkluj)
+  - Lost & Found: A This Bed We Made Story – v6513 | 2026-08-07 ([Source: Fitgirl](https://fitgirl-repacks.site/lost-found-a-this-bed-we-made-story/))
+    - [datanodes](https://datanodes.to/aj99jqwira6h/Lost_and_Found_A_This_Bed_We_Made_Story_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/hlycpx1o0i5c#Lost_and_Found_A_This_Bed_We_Made_Story_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6697966/Lost-Found-A-This-Bed-We-Made-Story-v6513-ENG-FRA-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:D6E52288E00F22B32AB7942E9AB60AD3E5C2F80C&dn=Lost+%26amp%3B+Found%3A+A+This+Bed+We+Made+Story+%28v6513%2C+ENG%2FFRA%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3132142)
   - Lost Alone Ultimate – v2.0.1 + George’s Nightmare DLC | 2023-09-27 ([Source: Fitgirl](https://fitgirl-repacks.site/lost-alone-ultimate/))
     - [1337x](https://1337x.to/torrent/5826128/Lost-Alone-Ultimate-v2-0-1-George-s-Nightmare-DLC-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:0903280601B7BAF9855D4970E664AD4C685493E0&dn=Lost+Alone+Ultimate+%28v2.0.1+%2B+George%26%23039%3Bs+Nightmare+DLC%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -62234,6 +62243,8 @@
     - [1337x](https://1337x.to/torrent/5960314/Sovereign-Syndicate-Digital-Deluxe-Edition-v1-0-19-Bonus-Content-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:E5061C9A78F99E1B4E9B78A24453F93F2CFCF787&dn=Sovereign+Syndicate%3A+Digital+Deluxe+Edition+%28v1.0.19+%2B+Bonus+Content%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2958794)
+  - Sovereign Tower Free Download | 2026-08-07 ([Source: SteamRIP](https://steamrip.com/sovereign-tower-free-download/))
+    - [gofile](https://gofile.io/d/3m0uD4)
   - SOWON Free Download (Build 9824066) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/sowon-free-download-1j/))
     - [megadb](https://megadb.net/cghasilnuai4)
   - SOWON – Build 9860585 | 2022-11-07 ([Source: Fitgirl](https://fitgirl-repacks.site/sowon/))
@@ -65817,6 +65828,12 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3073558)
     - **Updates**
       - [SUPER.ROBOT.WARS.Y-6.DLC.Pack.rar](https://filecrypt.cc/Container/077F7ED504.html)
+  - SUPER ROBOT WARS Y: Ultimate Edition, v1.4.0 + 10 DLCs | 2026-08-07 ([Source: Fitgirl](https://fitgirl-repacks.site/super-robot-wars-y-pc/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5e873b83fd0e15b6#AgTiVHVxdkXQRnfCjdAkX1saVnimVKNeF7ZkV7MVXogv)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?92506c9e745fbbe9#Ftoh7g7EGhRsKEuGWXfCaDHvvKkHZHy8WAywLkzHZv25)
+    - [1337x](https://1337x.to/torrent/6698030/SUPER-ROBOT-WARS-Y-Ultimate-Edition-v1-4-0-10-DLCs-MULTi5-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:BF479F941A3358FC6BD9DB93959AD52A95994294&dn=SUPER+ROBOT+WARS+Y%3A+Ultimate+Edition+%28v1.4.0+%2B+10+DLCs%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3132158)
   - Super Seducer 2: Advanced Seduction Tactics | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Super_Seducer_2_Advanced_Seduction_Tactics_MULTi6__ElAmigos_-_1iHTcJk1.html))
     - [filecrypt](https://www.filecrypt.cc/Container/3F337D03BD.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddda8afc7f8b)
