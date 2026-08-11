@@ -1,5 +1,28 @@
 # Latest Games
 
+- EA SPORTS Madden NFL 27 [Monkey Repack] | 2026-08-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ea-sports-madden-nfl-27/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bf9a1ebddb8e93eb#H6QYSj6sr7g3ydE1Jt45jFxHsG5LrRr3gYGhFzV7JmAB)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?85ec201c8bddd9b3#DR8k7QmkzzQq3ZjKY6qb7HMdWSV6yRKLHYDopedmQ3aY)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?44cac3c37ebf40a0#ByW4zAiyMznxFD2FiSnu88HSpAzi3JrMppnH4eAzG8zp)
+  - [1337x](https://1337x.to/torrent/6701053/EA-SPORTS-Madden-NFL-27-FitGirl-Monkey-Repack/)
+  - <a href="magnet:?xt=urn:btih:DA305FF545878E72B04810A93189758687E2A6F4&dn=EA+SPORTS+Madden+NFL+27+%5BFitGirl+Monkey+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3132705)
+- Agent 64: Spies Never Die – v1004 Hotfix | 2026-08-11 ([Source: Fitgirl](https://fitgirl-repacks.site/agent-64-spies-never-die/))
+  - [datanodes](https://datanodes.to/cxovaw5a4usy/Agent_64_Spies_Never_Die_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/27ib445vdsyj#Agent_64_Spies_Never_Die_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/2d6f63y3x5h9/Agent_64_Spies_Never_Die_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6700981/Agent-64-Spies-Never-Die-v1004-Hotfix-MULTi3-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:FD82D9E84EA15D16CC91D2EEF06EB1A1206FF295&dn=Agent+64%3A+Spies+Never+Die+%28v1004+Hotfix%2C+MULTi3%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?t=288459)
+- Sovereign Tower: Supporter Bundle + 2 Bonus DLCs | 2026-08-11 ([Source: Fitgirl](https://fitgirl-repacks.site/sovereign-tower/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?81f8087272ca6c73#D7z8hQcSemhgmMipmp6hnfNrpB8WNZM6DQBTuxdnKPpy)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6107959ced3a3cdd#EWnJC14QT5nCLVeHXWREhu9gKp25GseBc3DuXFNvXQCE)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ae1988774262e394#4f5gBm9htR9KAxNqqomnbeQNJFunn2pPzZj4Duo9mtMa)
+  - [1337x](https://1337x.to/torrent/6700908/Sovereign-Tower-Supporter-Bundle-2-Bonus-DLCs-MULTi7-FitGirl-Repack-Selective-Download-from-367-MB/)
+  - <a href="magnet:?xt=urn:btih:E2AB0CDC84E57C8CC64C9B1C1538E1CC6E795F5A&dn=Sovereign+Tower%3A+Supporter+Bundle+%28%2B+2+Bonus+DLCs%2C+MULTi7%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+367+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1102429/sovereign-tower-supporter-bundle-dlcs-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:e2ab0cdc84e57c8cc64c9b1c1538e1cc6e795f5a&dn=rutor.info_Sovereign+Tower%3A+Supporter+Bundle+%5B%2B+DLCs%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3132657)
 - IRON NEST: Heavy Turret Simulator | 2026-08-10 ([Source: Fitgirl](https://fitgirl-repacks.site/iron-nest-heavy-turret-simulator/))
   - [datanodes](https://datanodes.to/gasb5fa2u0hh/IRON_NEST_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/fb6wrm7n09s1#IRON_NEST_--_fitgirl-repacks.site_--_.rar)
@@ -123,12 +146,3 @@
 - Ostranauts Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/ostranauts-free-download/))
   - [bzzhr](https://bzzhr.to/8avk7r1ph6ik)
   - [fileditchfiles](https://fileditchfiles.st/balpha2/25921165b49951a7a9e9/Ostranauts-SteamRIP.com.rar)
-- Quake Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/quake-free-download/))
-  - [bzzhr](https://bzzhr.to/aw04uhjgzdto)
-- Korea. IL-2 Series Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/korea-il-2-series-free-download/))
-  - [gofile](https://gofile.io/d/ccemWx)
-  - [bzzhr](https://bzzhr.to/85nqe5m0xmur)
-  - [fileditchfiles](https://fileditchfiles.st/balpha2/2f815cc76e6986bf5785/Korea.IL-2.Series-SteamRIP.com.rar)
-- Space Tail: Definitive Edition Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/space-tail-definitive-edition-free-download/))
-  - [bzzhr](https://bzzhr.to/x74balrthxra)
-  - [fileditchfiles](https://fileditchfiles.st/balpha2/32eb63a981d70e36625f/Space.Tail.Definitive.Edition-SteamRIP.com.rar)
