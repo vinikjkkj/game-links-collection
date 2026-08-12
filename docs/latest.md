@@ -1,5 +1,12 @@
 # Latest Games
 
+- Kill The Shadow | 2026-08-12 ([Source: Fitgirl](https://fitgirl-repacks.site/kill-the-shadow/))
+  - [datanodes](https://datanodes.to/p6059ct683bo/Kill_The_Shadow_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/m1las90ahg4j#Kill_The_Shadow_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/so05tvknj87m/Kill_The_Shadow_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6701510/Kill-The-Shadow-MULTi6-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:A2D16C031D64859521CC5E685060B12C161F947B&dn=Kill+The+Shadow+%28MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3132807)
 - EA SPORTS Madden NFL 27 [Monkey Repack] | 2026-08-11 ([Source: Fitgirl](https://fitgirl-repacks.site/ea-sports-madden-nfl-27/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bf9a1ebddb8e93eb#H6QYSj6sr7g3ydE1Jt45jFxHsG5LrRr3gYGhFzV7JmAB)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?85ec201c8bddd9b3#DR8k7QmkzzQq3ZjKY6qb7HMdWSV6yRKLHYDopedmQ3aY)
@@ -143,6 +150,3 @@
   - [1337x](https://1337x.to/torrent/6698900/Cargo-Please-FitGirl-Repack/)
   - <a href="magnet:?xt=urn:btih:93D8EC6915A18075A8527A64D3491983F9315562&dn=Cargo%2C+Please%21+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3132319)
-- Ostranauts Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/ostranauts-free-download/))
-  - [bzzhr](https://bzzhr.to/8avk7r1ph6ik)
-  - [fileditchfiles](https://fileditchfiles.st/balpha2/25921165b49951a7a9e9/Ostranauts-SteamRIP.com.rar)
