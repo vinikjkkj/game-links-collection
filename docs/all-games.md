@@ -16722,6 +16722,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?a527034f5b408526#6tPCapWQB2LUoS2VQiFMupVoDTEtNbVeFZJSgjAAnbDh)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?1e8bf6b1a749e27e#DRf6ueYg65xAxWvFpbgZvJqCZUpD4bLN2mZkT64XkNKL)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?29da29af6b00591c#YcqA52XKoEKfASd2b3xMthMpSYDFohdWLJmrz9MY1Mn)
+  - Defender of the Crown: The Legend Returns – v1.0.6 | 2026-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/defender-of-the-crown-the-legend-returns/))
+    - [datanodes](https://datanodes.to/6jt0e9oma8e2/Defender_of_the_Crown_The_Legend_Returns_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/7aerzopzza1b#Defender_of_the_Crown_The_Legend_Returns_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/daqi1o0lh1fr/Defender_of_the_Crown_The_Legend_Returns_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6703265/Defender-of-the-Crown-The-Legend-Returns-v1-0-6-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:1CB8A83969D7C05E127E67FD6DCB709F08C6E0D8&dn=Defender+of+the+Crown%3A+The+Legend+Returns%5B+%28v1.0.6%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1102884/defender-of-the-crown-the-legend-returns-v-1.0.6-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:1cb8a83969d7c05e127e67fd6dcb709f08c6e0d8&dn=rutor.info_Defender+of+the+Crown%3A+The+Legend+Returns+%5Bv+1.0.6%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3133989)
   - Definitely Not Fried Chicken Free Download (v1.0.16) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/definitely-not-fried-chicken-free-download-1h/))
     - [megadb](https://megadb.net/iwyvzl9ah8sc)
   - Deflector + Original Soundtrack Bundle – v1.2.0.3 + Bonus OST | 2024-01-07 ([Source: Fitgirl](https://fitgirl-repacks.site/deflector/))
@@ -17728,6 +17737,15 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3067103)
   - Dinotica Free Download | 2026-08-14 ([Source: SteamRIP](https://steamrip.com/dinotica-free-download/))
     - [bzzhr](https://bzzhr.to/j3rzggwrot9z)
+  - Dinotica – v1.11.6 | 2026-08-14 ([Source: Fitgirl](https://fitgirl-repacks.site/dinotica/))
+    - [datanodes](https://datanodes.to/h6i14os4zm45/Dinotica_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/rnd984huyjil#Dinotica_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/qdkek236relj/Dinotica_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6702801/Dinotica-v1-11-6-MULTi6-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:BB142414C193293D099FD34F5A268AA18CE6CB1B&dn=Dinotica+%28v1.11.6%2C+MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1102748/dinotica-v-1.11.6-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:bb142414c193293d099fd34f5a268aa18ce6cb1b&dn=rutor.info_Dinotica+%5Bv+1.11.6%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3133154)
   - Diplomacy is Not an Option | 2025-05-13 ([Source: Elamigos](https://elamigos.site/data/Diplomacy_is_Not_an_Option_MULTi12_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/812DE15B6F.html)
     - [keeplinks](https://www.keeplinks.org/p16/6702e96cb3aed)
@@ -39445,6 +39463,14 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?b6ee5441072f1497#DLnsQCnA8aXNQQhpqVeLAGqBmx2d1AwvDcHUxvoVm8K6)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?094e408cdb24879c#47rZDthfhzY13hRKajqznE8w1mGS32vz8Ez5B7WfYHbN)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?ac3e987f9a0dc383#9W2U7tfdNibbELtweNpwaogfJxN9wGqawZYjdhdfEy6c)
+  - Low-Budget Repairs + Bonus App | 2026-08-15 ([Source: Fitgirl](https://fitgirl-repacks.site/low-budget-repairs/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b17cbf2ac9db098d#7LcsGyYUbVSuwgTEiwXWpWYDSNDv3rDxrYjDJmhqKaYS)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5ae40a927e422924#5Z5XDx1v9qqcGwSGhrZeaS252MaCmzfkkkjRcGh9tpyD)
+    - [1337x](https://1337x.to/torrent/6702821/Low-Budget-Repairs-Bonus-App-MULTi18-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:E7BD321AE17B734C4A7E15458202E6BA7C802203&dn=Low-Budget+Repairs+%28%2B+Bonus+App%2C+MULTi18%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1102751/low-budget-repairs-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:e7bd321ae17b734c4a7e15458202e6ba7c802203&dn=rutor.info_Low-Budget+Repairs+%5B%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3133178)
   - Low-Budget Repairs Free Download | 2026-08-14 ([Source: SteamRIP](https://steamrip.com/low-budget-repairs-free-download/))
     - [gofile](https://gofile.io/d/7aPb01Dk)
     - [bzzhr](https://bzzhr.to/yqc8r25bz8iu)
