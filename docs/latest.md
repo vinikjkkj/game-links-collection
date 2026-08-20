@@ -1,5 +1,16 @@
 # Latest Games
 
+- Emergency Call 112 – The Fire Fighting Simulation 2 Free Download | 2026-08-20 ([Source: SteamRIP](https://steamrip.com/emergency-call-112-the-fire-fighting-simulation-2-free-download/))
+  - [bzzhr](https://bzzhr.to/465nu65qyfct)
+  - [fileditchfiles](https://fileditchfiles.st/balpha6/358704805a4fdbbbf201/Emergency.Call.112.The.Fire.Fighting.Simulation.2-SteamRIP.com.rar)
+- Clawed Free Download | 2026-08-20 ([Source: SteamRIP](https://steamrip.com/clawed-free-download/))
+  - [gofile](https://gofile.io/d/T4M4oqep)
+  - [bzzhr](https://bzzhr.to/bsp6u5rduku1)
+  - [fileditchfiles](https://fileditchfiles.st/balpha6/01724ab44076dd02fe8b/Clawed-SteamRIP.com.rar)
+- EA SPORTS Madden NFL 27 Free Download | 2026-08-20 ([Source: SteamRIP](https://steamrip.com/ea-sports-madden-nfl-27-free-download/))
+  - [gofile](https://gofile.io/d/oEZd6XKk)
+  - [bzzhr](https://bzzhr.to/81welvzfm5if)
+  - [fileditchfiles](https://fileditchfiles.st/balpha6/a39090f50c8910737c09/EA.SPORTS.Madden.NFL.27-SteamRIP.com.rar)
 - Starsand Island – v1.0.0.13838.213299 + 5 DLCs | 2026-08-19 ([Source: Fitgirl](https://fitgirl-repacks.site/starsand-island/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3261d65da24262e5#EyV4kqPNRWwNitYQqXXvXUYXRkYKm4pgL3bQzzsBPVfU)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f3e03878f4e02806#BdvBzXQSHF8NGMscN8DUXRRyFbFR2AkZLx9GJKNkiGst)
@@ -126,11 +137,3 @@
   - [1337x](https://1337x.to/torrent/6703739/Emergency-Room-Simulator-v1-0-0-1127-MULTi8-FitGirl-Repack/)
   - <a href="magnet:?xt=urn:btih:E75068C42F22085933A6707ADAFA7541EA40C017&dn=Emergency+Room+Simulator+%28v1.0.0.1127%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3134159)
-- Cthulhu’s Reach: Devil Reef Free Download | 2026-08-16 ([Source: SteamRIP](https://steamrip.com/cthulhus-reach-devil-reef-free-download/))
-  - [bzzhr](https://bzzhr.to/fa1aes11mejt)
-- GRAIN ROT Free Download | 2026-08-16 ([Source: SteamRIP](https://steamrip.com/grain-rot-free-download/))
-  - [bzzhr](https://bzzhr.to/f8jsgyale1kq)
-  - [fileditchfiles](https://fileditchfiles.st/balpha4/177db10a487618702b16/Grain.Rot-SteamRIP.com.rar)
-- Cropia Free Download | 2026-08-16 ([Source: SteamRIP](https://steamrip.com/cropia-free-download/))
-  - [bzzhr](https://bzzhr.to/hfgd7mx3p1hj)
-  - [fileditchfiles](https://fileditchfiles.st/balpha4/75dd998503bc80a559eb/Cropia-SteamRIP.com.rar)
