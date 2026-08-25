@@ -1,5 +1,10 @@
 # Latest Games
 
+- Space Tales – v1.1 | 2026-08-25 ([Source: Fitgirl](https://fitgirl-repacks.site/space-tales/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f3a20dfc5e9dc45e#23nsa7T8RSf3nAVbV9oVRSyvvYtAFsFMHBtPZMhU1naa)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cd32287e4621c582#AzhpGohM3JZGR9GobHUvqGBHu17GgnCuRf8YyTF757RK)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ab93540f6bdb82e0#5DBDnKu4AnhDmQr3BcCYoZ4TbikstUFV79toHPPzvLve)
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3135606)
 - Kayak VR Mirage Complete Edition | 2026-08-24 ([Source: Elamigos](https://elamigos.site/data/Kayak_VR_Mirage_Complete_Edition_MULTi9_-_ElAmigos.html))
   - [filecrypt](https://filecrypt.cc/Container/1654FD11C6.html)
   - [keeplinks](https://www.keeplinks.org/p16/6a6f3345777ca)
@@ -140,6 +145,3 @@
   - [fileditchfiles](https://fileditchfiles.st/balpha7/cf52e6424b42b3d9fe2a/LABYRINTHOS.The.Depths.Want.You-SteamRIP.com.rar)
 - Grim Trials Free Download | 2026-08-22 ([Source: SteamRIP](https://steamrip.com/grim-trials-free-download/))
   - [bzzhr](https://bzzhr.to/a23i03w3hoel)
-- 2nd EVE Free Download | 2026-08-22 ([Source: SteamRIP](https://steamrip.com/2nd-eve-free-download/))
-  - [bzzhr](https://bzzhr.to/aiufeh11s9dr)
-  - [fileditchfiles](https://fileditchfiles.st/balpha7/7776aa160e1fab4e17ad/2nd.EVE-SteamRIP.com.rar)
