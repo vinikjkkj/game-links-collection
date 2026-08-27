@@ -1,5 +1,30 @@
 # Latest Games
 
+- NBA 2K27 + High Resolution Textures DLC [Monkey Repack] | 2026-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/nba-2k27/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?37d7044972e99897#5aaYNqr499ewAMfzZ8Co6bm7MnTm2dtk7wJ7VEkorf4M)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7dca7d22df1240f2#6Ud1q5cPWaM1gxxA1NQenk2etNgFxvVf7Wp5UQQY6X7g)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d82507764500f84a#Ayz7YGzG9kGDctAJzpHHGFCoVyGHLwnHJiXe6UV1HTog)
+  - [1337x](https://1337x.to/torrent/6710253/NBA-2K27-High-Resolution-Textures-DLC-MULTi10-FitGirl-Monkey-Repack-Selective-Download-from-71-5-GB/)
+  - <a href="magnet:?xt=urn:btih:F2C1278AC960D0E3B2FBBCFD1CD9B78FB2120DBF&dn=NBA+2K27+%28%2B+High+Resolution+Textures+DLC%2C+MULTi10%29+%5BFitGirl+Monkey+Repack%2C+Selective+Download+-+from+71.5+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3135979)
+- Resonance: A Plague Tale Legacy, v1.2.0.0 (Release) + DLC + Bonus OST | 2026-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/resonance-a-plague-tale-legacy/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?01eac2b2869baa0b#CAf7PErJjXHRMoRQTgJPuM8pzxfLcLKxJ8fzWHmdQsGk)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?be747f0cf742cb90#6LRBG1o2CnZLiWDgNmmWHGAbgp8kpxhVCbdmKN74tGo9)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5a3d631d20a01c72#3hkexwn5RVQyybPYvdTgg2cQaAWb4hXX75t2hz6waMS2)
+  - [1337x](https://1337x.to/torrent/6710204/Resonance-A-Plague-Tale-Legacy-v1-2-0-0-Release-DLC-Bonus-OST-MULTi17-FitGirl-Repack-Selective-Download-from-28-4-GB/)
+  - <a href="magnet:?xt=urn:btih:FB011466D7D2755D39C9F0D71DC88AC7C12A2411&dn=Resonance%3A+A+Plague+Tale+Legacy+%28v1.2.0.0%2FRelease+%2B+DLC+%2B+Bonus+OST%2C+MULTi17%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+28.4+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1104237/resonance-a-plague-tale-legacy-v-1.2.0.0-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:fb011466d7d2755d39c9f0d71dc88ac7c12a2411&dn=rutor.info_Resonance%3A+A+Plague+Tale+Legacy+%5Bv+1.2.0.0+%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?t=288882)
+- Fatal Claw – v1.0.1 | 2026-08-27 ([Source: Fitgirl](https://fitgirl-repacks.site/fatal-claw/))
+  - [datanodes](https://datanodes.to/ujl8qbngwdkb/Fatal_Claw_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/ovxt3zyio11g#Fatal_Claw_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/18nhpr8v57wk/Fatal_Claw_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6710175/Fatal-Claw-v1-0-1-MULTi10-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:DDC2A9097C6062AA5735C9E8598F19DA7AE0696E&dn=Fatal+Claw+%28v1.0.1%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1104224/fatal-claw-v-1.0.1-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:ddc2a9097c6062aa5735c9e8598f19da7ae0696e&dn=rutor.info_Fatal+Claw+%5Bv+1.0.1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3135921)
 - Aliens: Fireteam Elite 2 – 40th Anniversary Premium Edition, v1.0.0 Build 118626 + 2 DLCs | 2026-08-26 ([Source: Fitgirl](https://fitgirl-repacks.site/aliens-fireteam-elite-2/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4b3b013372588db8#F15U4JD743n65AwZyjUHFVeu26JEXg6vDGEML8Ldbm7n)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f358903e4fc0bdab#L8sXXHGvRvPAccPyNrABKpSqhJpZFviqDN92jVSkzb7)
@@ -138,9 +163,3 @@
   - [tapochek](https://tapochek.net/viewtopic.php?p=3135539)
 - Hollowbody Free Download | 2026-08-24 ([Source: SteamRIP](https://steamrip.com/hollowbody-free-download/))
   - [bzzhr](https://bzzhr.to/grktgs6ki0rg)
-- VORON: Raven’s Story Free Download | 2026-08-24 ([Source: SteamRIP](https://steamrip.com/voron-ravens-story-free-download/))
-  - [bzzhr](https://bzzhr.to/uc23tsi1nbuh)
-- Undead West Free Download | 2026-08-24 ([Source: SteamRIP](https://steamrip.com/undead-west-free-download/))
-  - [bzzhr](https://bzzhr.to/o2wis1xplm1q)
-- 49 Keys Free Download | 2026-08-24 ([Source: SteamRIP](https://steamrip.com/49-keys-free-download/))
-  - [bzzhr](https://bzzhr.to/jy34d4wi9ee5)
