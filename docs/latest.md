@@ -1,5 +1,30 @@
 # Latest Games
 
+- Lou’s Lagoon: Deluxe Edition – v1.0.4-43683 + 3 DLCs/Bonuses | 2026-08-31 ([Source: Fitgirl](https://fitgirl-repacks.site/lous-lagoon/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fbbc30f03b4f63fe#4JDfGR6v6yPmV6mv6RJU2CvCvDAbN6TeXu3rWWLvjMag)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d80b6dfd0545778c#DPhoPcTnk932XvGSQ3CmEvXbg9sXGbCVhMNmpp8iz5a5)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bc93c7b1343c51bb#DzZ4rcvJaBCZ3B1nu3BT82r3d7zRQnZeHLXJ6a5HmB6V)
+  - [1337x](https://1337x.to/torrent/6712420/Lou-s-Lagoon-Deluxe-Edition-v1-0-4-43683-3-DLCs-Bonuses-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:BFAF2FAA563F50828203C501E4FC3E07EAFCB4C9&dn=Lou%26%23039%3Bs+Lagoon%3A+Deluxe+Edition+%28v1.0.4-43683+%2B+3+DLCs%2FBonuses%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1104652/lous-lagoon-deluxe-edition-v-1.0.4-43683-dlcs-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:bfaf2faa563f50828203c501e4fc3e07eafcb4c9&dn=rutor.info_Lou%27s+Lagoon%3A+Deluxe+Edition+%5Bv+1.0.4-43683+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3136623)
+- Polylithic, v1.0.0.24 | 2026-08-31 ([Source: Fitgirl](https://fitgirl-repacks.site/polylithic/))
+  - [datanodes](https://datanodes.to/9anqflzf1a6v/Polylithic_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/7uwpb58yv6iz#Polylithic_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/gii20wiqqz52/Polylithic_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6712255/Polylithic-v1-0-0-24-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:CF4AAF8454A5886FBE5F619598FE5C2F8EF15CCF&dn=Polylithic+%28v1.0.0.24%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1104643/polylithic-v-1.0.0.24-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:cf4aaf8454a5886fbe5f619598fe5c2f8ef15ccf&dn=rutor.info_Polylithic+%5Bv+1.0.0.24%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3136603)
+- METAL GEAR SOLID 3: Snake Eater – Master Collection Version – v3.0.0 + 2 DLCs | 2026-08-31 ([Source: Fitgirl](https://fitgirl-repacks.site/metal-gear-solid-3-snake-eater-master-collection-version/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3be173129d0a59fc#6Q9j9R5xguCoKKw5gnu4G5GcxAFtEhYfduqiT21pds5k)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?99d241893f7ba0b4#2GDGdNHue5Jq7Qb2cDHtKyUtWxvfUv4cGSZz3jPGaRRH)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4a70c7199a5f046c#8WMcCc5mSCzxomocLQ8CzghgabBWetZQH8LN8KTKP7Xh)
+  - [1337x](https://1337x.to/torrent/6711659/METAL-GEAR-SOLID-3-Snake-Eater-Master-Collection-Version-v3-0-0-2-DLCs-MULTi6-FitGirl-Repack-Selective-Download-from-7-3-GB/)
+  - <a href="magnet:?xt=urn:btih:447F95CA178488164C0D929873E3E1DEF11FB561&dn=METAL+GEAR+SOLID+3%3A+Snake+Eater+-+Master+Collection+Version+%28v3.0.0+%2B+2+DLCs%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+7.3+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3136498)
 - Iron Blight | 2026-08-30 ([Source: Fitgirl](https://fitgirl-repacks.site/iron-blight/))
   - [datanodes](https://datanodes.to/kid7byuwszmc/Iron_Blight_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/1c61710e4xy1#Iron_Blight_--_fitgirl-repacks.site_--_.rar)
@@ -135,10 +160,3 @@
   - [gofile](https://gofile.io/d/zdeibBgT)
   - [bzzhr](https://bzzhr.to/p2liigb5w9f1)
   - [fileditchfiles](https://fileditchfiles.st/balpha9/7575c8e0b393fdc8ffb9/1666.Amsterdam-SteamRIP.com.rar)
-- Fatal Claw Free Download | 2026-08-26 ([Source: SteamRIP](https://steamrip.com/fatal-claw-free-download/))
-  - [bzzhr](https://bzzhr.to/a9a1ebs63zgj)
-  - [fileditchfiles](https://fileditchfiles.st/balpha9/b9747997717ee0e43193/Fatal.Claw-SteamRIP.com.rar)
-- Moo Who? Free Download (Build 24951854 + Online) | 2026-08-26 ([Source: SteamRIP](https://steamrip.com/moo-who-free-download/))
-  - [bzzhr](https://bzzhr.to/89az3aqto8rk)
-- Slip & Skid Free Download (Build 23858125 + Online) | 2026-08-26 ([Source: SteamRIP](https://steamrip.com/slip-skid-free-download/))
-  - [bzzhr](https://bzzhr.to/l96nis96oeuk)
