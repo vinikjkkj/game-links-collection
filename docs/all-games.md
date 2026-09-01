@@ -37241,6 +37241,9 @@
     - [1337x](https://1337x.to/torrent/6164559/Ladder-it-Up-Windows-7-Fix-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:2A3FE3AFBF4A7B67BD8CD70895BF26C4CDC53CB5&dn=Ladder+it+Up%21+%28%2B+Windows+7+Fix%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2987020)
+  - Lady Death Demonicron Free Download | 2026-09-01 ([Source: SteamRIP](https://steamrip.com/lady-death-demonicron-free-download/))
+    - [bzzhr](https://bzzhr.to/el0877poyyre)
+    - [fileditchfiles](https://fileditchfiles.st/alpha27/6eebb75abbb415882d2b/Lady.Death.Demonicron-SteamRIP.com.rar)
   - Lady in Tomb | 2021-07-22 ([Source: Fitgirl](https://fitgirl-repacks.site/lady-in-tomb/))
     - [1337x](https://1337x.to/torrent/4928393/Lady-in-Tomb-MULTi2-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:E09E1E16D784A3D70D97E3F0C10EFDE4066D5151&dn=Lady+in+Tomb+%28MULTi2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -42143,6 +42146,13 @@
     - [buzzheavier](https://buzzheavier.com/0tmifgf182xm)
     - [filecrypt](https://www.filecrypt.cc/Container/F120D51778)
     - [vikingfile](https://vikingfile.com/f/nql9OFBITX)
+  - METAL GEAR SOLID 2: Sons of Liberty – Master Collection Version, v2.1.0 + Japanese DLC | 2026-09-01 ([Source: Fitgirl](https://fitgirl-repacks.site/metal-gear-solid-2-sons-of-liberty-master-collection-version/))
+    - [https](https://https://paste.fitgirl-repacks.site/?c547141888a3f827#8twBnkp4DBJkWPvqVSHGdiwaJBTkEqAJijwvVQhEJwwE)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?33d3c2b0a745e33d#7wMfuePZgW4Q7zm8HszaxACZEAzYxKgmv6BeU9FGdw41)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?60bc526059b5d066#GpQBqdj9VTsH34qmVrAiDro6hwK1v8skGmKsoeADu7U2)
+    - [1337x](https://1337x.to/torrent/6712441/METAL-GEAR-SOLID-2-Sons-of-Liberty-Master-Collection-Version-v2-1-0-DLC-MULTi6-FitGirl-Repack-Selective-Download-from-8-6-GB/)
+    - <a href="magnet:?xt=urn:btih:78CAF68927B6132CBE01A8EFE665F7FC90420A9E&dn=METAL+GEAR+SOLID+2%3A+Sons+of+Liberty+-+Master+Collection+Version+%28v2.1.0+%2B+DLC%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+8.6+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3136643)
   - METAL GEAR SOLID 3: Snake Eater – Master Collection Free Download (v3.0.0) | 2026-03-03 ([Source: SteamRIP](https://steamrip.com/metal-gear-solid-3-snake-eater-master-collection-free-download/))
     - [filecrypt](https://www.filecrypt.cc/Container/20DD90F003)
     - [buzzheavier](https://buzzheavier.com/rj48y0lolu5f)
@@ -59822,6 +59832,18 @@
     - [keeplinks](https://www.keeplinks.org/p16/61f03a1559ec5)
     - [filecrypt](https://www.filecrypt.cc/Container/FFABB0C377.html)
     - [keeplinks](https://www.keeplinks.org/p16/61f03995c7177)
+  - Serious Sam: Shatterverse | 2026-09-01 ([Source: Fitgirl](https://fitgirl-repacks.site/serious-sam-shatterverse/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e3f3d35a7599016f#GQKtVgYAbYK9prXCai53s6Frk76vSyv8Z1aCj3iEeQEb)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?35ea839fa5afe4cc#8KyFxsLQRU3N3S66TbpABqFJuKrBRYExxLDgQMDcihU5)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f82f4c5fa123bd42#EU8pJwa7vtVeupga5EtAWyKeZRREM5vT7PixTPvuoK9G)
+    - [1337x](https://1337x.to/torrent/6712480/Serious-Sam-Shatterverse-MULTi12-FitGirl-Repack-Selective-Download-from-4-4-GB/)
+    - <a href="magnet:?xt=urn:btih:535EE05ADC1E993C1BDD4149741094338EFE85F0&dn=Serious+Sam%3A+Shatterverse+%28MULTi12%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.4+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1104658/serious-sam-shatterverse-v-24825466-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:535ee05adc1e993c1bdd4149741094338efe85f0&dn=rutor.info_Serious+Sam%3A+Shatterverse+%5Bv+24825466%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3136652)
+  - Serious Sam: Shatterverse Free Download | 2026-09-01 ([Source: SteamRIP](https://steamrip.com/serious-sam-shatterverse-free-download/))
+    - [bzzhr](https://bzzhr.to/2qj7xyg3850w)
+    - [fileditchfiles](https://fileditchfiles.st/alpha27/e0c24093cf438aa6e750/Serious.Sam.Shatterverse-SteamRIP.com.rar)
   - Serious Sam: Siberian Mayhem Free Download (v1.07) | 2025-03-17 ([Source: SteamRIP](https://steamrip.com/serious-sam-siberian-mayhem-free-download-2x/))
     - [filecrypt](https://filecrypt.co/Container/01E0695089)
     - [buzzheavier](https://buzzheavier.com/scnrws086nob)
@@ -59965,6 +59987,15 @@
     - **Updates**
       - [Shadow.Corridor.2.Update.v1.15-TENOKE.rar](https://filecrypt.cc/Container/B6CDABAEF0.html)
       - [Shadow.Corridor.2.Update.v1.15.1-TENOKE.rar](https://filecrypt.cc/Container/CC6325B24A.html)
+  - Shadow Dungeon – v1.0.0 (Release) | 2026-09-01 ([Source: Fitgirl](https://fitgirl-repacks.site/shadow-dungeon/))
+    - [datanodes](https://datanodes.to/np40h4onvhrf/Shadow_Dungeon_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/tdfv6rcs6iyd#Shadow_Dungeon_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/6saq72px2cr2/Shadow_Dungeon_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6713066/Shadow-Dungeon-v1-0-0-Release-MULTi24-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:36155FD71C7B66DE95ABA4D3D8D371A82C8230CD&dn=Shadow+Dungeon+%28v1.0.0%2FRelease%2C+MULTi24%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1104769/podzemele-tenej_shadow-dungeon-v-1.0.0-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:36155fd71c7b66de95aba4d3d8d371a82c8230cd&dn=rutor.info_%D0%9F%D0%BE%D0%B4%D0%B7%D0%B5%D0%BC%D0%B5%D0%BB%D1%8C%D0%B5+%D1%82%D0%B5%D0%BD%D0%B5%D0%B9+%2F+Shadow+Dungeon+%5Bv+1.0.0%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3136780)
   - Shadow Gambit The Cursed Crew Complete Edition | 2023-12-06 ([Source: Elamigos](https://elamigos.site/data/Shadow_Gambit_The_Cursed_Crew_MULTi13_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/7CB1D25E9F.html)
     - [keeplinks](https://www.keeplinks.org/p16/64de6bef06f51)
