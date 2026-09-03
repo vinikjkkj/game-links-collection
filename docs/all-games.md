@@ -8605,6 +8605,9 @@
     - [rutor](http://rutor.info/torrent/938887/bomb-rush-cyberfunk-v-1.0.19735-2023-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:67cbc14e745f9c0412cb38e00d4282323752383d&dn=rutor.info_Bomb+Rush+Cyberfunk+%5Bv+1.0.19735%5D+%282023%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2932671)
+  - BOMBANANA! Free Download (Build 25068266 + Co-op) | 2026-09-03 ([Source: SteamRIP](https://steamrip.com/bombanana-free-download/))
+    - [gofile](https://gofile.io/d/lRbu7E1m)
+    - [megadb](https://megadb.net/e0574235b8bec55d)
   - Bomber Crew | 2018-12-20 ([Source: Elamigos](https://elamigos.site/data/Bomber_Crew__ElAmigos_-_hyijWCf9.html))
     - [filecrypt](https://www.filecrypt.cc/Container/54C8402C31.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd20610d319)
@@ -37267,6 +37270,13 @@
   - Lady Death Demonicron Free Download | 2026-09-01 ([Source: SteamRIP](https://steamrip.com/lady-death-demonicron-free-download/))
     - [bzzhr](https://bzzhr.to/el0877poyyre)
     - [fileditchfiles](https://fileditchfiles.st/alpha27/6eebb75abbb415882d2b/Lady.Death.Demonicron-SteamRIP.com.rar)
+  - Lady Death Demonicron – v0.240 | 2026-09-03 ([Source: Fitgirl](https://fitgirl-repacks.site/lady-death-demonicron/))
+    - [datanodes](https://datanodes.to/j10har8l2mps/Lady_Death_Demonicron_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/oxja6646iv99#Lady_Death_Demonicron_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/23be2iyeql74/Lady_Death_Demonicron_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6714233/Lady-Death-Demonicron-v0-240-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:AE8B077220D8FD0D56DF11D7252849DD683331FB&dn=Lady+Death+Demonicron+%28v0.240%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3137275)
   - Lady in Tomb | 2021-07-22 ([Source: Fitgirl](https://fitgirl-repacks.site/lady-in-tomb/))
     - [1337x](https://1337x.to/torrent/4928393/Lady-in-Tomb-MULTi2-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:E09E1E16D784A3D70D97E3F0C10EFDE4066D5151&dn=Lady+in+Tomb+%28MULTi2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -63533,6 +63543,9 @@
     - [rutor](http://rutor.info/torrent/1027394/speedollama-game-art-and-music-v-1.3.0-dlc-2024-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:05e983f7f7c209efa1a6be0113f2717294cbb60b&dn=rutor.info_Speedollama+-+Game%2C+Art+and+Music+%5Bv+1.3.0+%2B+DLC%5D+%282024%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3039408)
+  - SpeedRunners 2: King of Speed Free Download | 2026-09-03 ([Source: SteamRIP](https://steamrip.com/speedrunners-2-king-of-speed-free-download/))
+    - [gofile](https://gofile.io/d/xrlzFycY)
+    - [megadb](https://megadb.net/8941deeae7a3850e)
   - SpeedRunners Free Download (Build 18145770 + LAN) | 2026-02-01 ([Source: SteamRIP](https://steamrip.com/speedrunners-free-download/))
     - [buzzheavier](https://buzzheavier.com/51p25quxegf6)
   - Spellcaster University | 2022-04-21 ([Source: Elamigos](https://elamigos.site/data/Spellcaster_University_MULTi8_-_ElAmigos.html))
@@ -69812,6 +69825,9 @@
     - [keeplinks](https://www.keeplinks.org/p16/5dde324427a0c)
     - [filecrypt](https://www.filecrypt.cc/Container/CB73EA480F.html)
     - [keeplinks](https://www.keeplinks.org/p16/5dde324ca24dd)
+  - The Blood of Dawnwalker Free Download (v1.0.1) | 2026-09-03 ([Source: SteamRIP](https://steamrip.com/the-blood-of-dawnwalker-free-download/))
+    - [bzzhr](https://bzzhr.to/xfjnvpmywfnr)
+    - [gofile](https://gofile.io/d/sLmUG6ED)
   - The Bluecoats: North & South + The Bluecoats: North vs South | 2020-12-17 ([Source: Fitgirl](https://fitgirl-repacks.site/the-bluecoats-north-and-south/))
     - [1337x](https://1337x.to/torrent/4712998/The-Bluecoats-North-South-Bonus-Game-MULTi5-13-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:125918E7875002CA5836D9605CF903E3D6FD977C">Torrent</a>
