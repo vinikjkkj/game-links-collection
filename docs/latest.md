@@ -1,5 +1,21 @@
 # Latest Games
 
+- SpeedRunners 2: King of Speed | 2026-09-05 ([Source: Fitgirl](https://fitgirl-repacks.site/speedrunners-2-king-of-speed/))
+  - [datanodes](https://datanodes.to/q4bptyyzn4uo/SpeedRunners_2_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/mcdbxvq8wslw#SpeedRunners_2_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/ipf11i8auqv3/SpeedRunners_2_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6715393/SpeedRunners-2-King-of-Speed-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:80EC08C1C47BBB94E71B9600C53B97A421745A70&dn=SpeedRunners+2%3A+King+of+Speed+%28MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1105248/speedrunners-2-king-of-speed-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:80ec08c1c47bbb94e71b9600c53b97a421745a70&dn=rutor.info_SpeedRunners+2%3A+King+of+Speed+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3137624)
+- Marsupilami 2: Salsa Palombia | 2026-09-05 ([Source: Fitgirl](https://fitgirl-repacks.site/marsupilami-2-salsa-palombia/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d41a1f8792a402d6#zZX8yLfiE8veNqWwu27DpWERHDmsYqGKXWDGbuvsGMr)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?63a71021957ef443#CsBKdCGZyCj4G42YawhNWLhCXSNgqqA2RG1FDPNFPKFk)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?612956e1e65776e2#GXZAqVw3axXFSzWvGjg85Wb4ea2ERQnKojZqJaVJqPX2)
+  - [1337x](https://1337x.to/torrent/6715343/Marsupilami-2-Salsa-Palombia-MULTi10-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:C66023F207F350DDD3B80ED11AB349854DCF1B88&dn=Marsupilami+2%3A+Salsa+Palombia+%28MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3137608)
 - Marsupilami 2 – Salsa Palombia Free Download | 2026-09-04 ([Source: SteamRIP](https://steamrip.com/marsupilami-2-salsa-palombia-free-download/))
   - [bzzhr](https://bzzhr.to/yqed587lfhc3)
   - [fileditchfiles](https://fileditchfiles.st/balpha14/1efd4b10d93fdf236279/Marsupilami.2.Salsa.Palombia-SteamRIP.com.rar)
@@ -117,9 +133,3 @@
 - Drums Rock Free Download | 2026-09-02 ([Source: SteamRIP](https://steamrip.com/drums-rock-free-download/))
   - [bzzhr](https://bzzhr.to/vus527ed27eb)
   - [fileditchfiles](https://fileditchfiles.st/balpha13/8d641c5b22f9e11a428a/Drums.Rock-SteamRIP.com.rar)
-- Oddworld: New ‘n’ Tasty Free Download | 2026-09-02 ([Source: SteamRIP](https://steamrip.com/oddworld-new-n-tasty-free-download/))
-  - [bzzhr](https://bzzhr.to/hs35g6v9swnx)
-  - [fileditchfiles](https://fileditchfiles.st/balpha13/a905ef1752e8a216c0f3/Oddworld.New.n.Tasty-SteamRIP.com.rar)
-- VHOLUME Free Download (Build 25041578 + Co-op) | 2026-09-02 ([Source: SteamRIP](https://steamrip.com/vholume-free-download/))
-  - [bzzhr](https://bzzhr.to/kwz1dndiw8uu)
-  - [fileditchfiles](https://fileditchfiles.st/balpha13/a37d74d854ef590025a0/VHOLUME-SteamRIP.com.rar)
