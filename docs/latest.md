@@ -1,5 +1,12 @@
 # Latest Games
 
+- Eldara | 2026-09-07 ([Source: Fitgirl](https://fitgirl-repacks.site/eldara/))
+  - [datanodes](https://datanodes.to/lbykjdpkfzyi/Eldara_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/4jixakt1xkzu#Eldara_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/kz1cguhe39z8/Eldara_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6716467/Eldara-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:6EEFD1043A4E3A33F060F14557942175B6740126&dn=Eldara+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3138062)
 - Island Market Simulator – v1.0 (Release) + Bonus OST | 2026-09-06 ([Source: Fitgirl](https://fitgirl-repacks.site/island-market-simulator/))
   - [datanodes](https://datanodes.to/zw7uwlv20i38/Island_Market_Simulator_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/nltyvuw3lalh#Island_Market_Simulator_--_fitgirl-repacks.site_--_.rar)
@@ -145,6 +152,3 @@
   - [1337x](https://1337x.to/torrent/6714233/Lady-Death-Demonicron-v0-240-FitGirl-Repack/)
   - <a href="magnet:?xt=urn:btih:AE8B077220D8FD0D56DF11D7252849DD683331FB&dn=Lady+Death+Demonicron+%28v0.240%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3137275)
-- BOMBANANA! Free Download (Build 25068266 + Co-op) | 2026-09-03 ([Source: SteamRIP](https://steamrip.com/bombanana-free-download/))
-  - [gofile](https://gofile.io/d/lRbu7E1m)
-  - [megadb](https://megadb.net/e0574235b8bec55d)

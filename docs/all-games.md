@@ -21441,6 +21441,13 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?0c955e3014b70438#2bjXBhcR3LrMfBGZ5GPkpXPQ7q5suGPNp44irdy9JPqq)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?4bb8cca06d9a165e#AAUzccBJSeDJyG1QzXtuEnCcZfdPnRPdVEEFvZ8pZy2o)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?f7b852cd1ae73262#5gVUWrM1MAfhKJrBazoPsvDeAPgZ2p6ycpaKbFMywgig)
+  - Eldara | 2026-09-07 ([Source: Fitgirl](https://fitgirl-repacks.site/eldara/))
+    - [datanodes](https://datanodes.to/lbykjdpkfzyi/Eldara_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/4jixakt1xkzu#Eldara_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/kz1cguhe39z8/Eldara_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6716467/Eldara-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6EEFD1043A4E3A33F060F14557942175B6740126&dn=Eldara+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3138062)
   - Elden Ring Deluxe Edition | 2023-06-20 ([Source: Elamigos](https://elamigos.site/data/Elden_Ring_Deluxe_Edition_MULTi14_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/DBBE0ACC87.html)
     - [keeplinks](https://www.keeplinks.org/p16/62181e8461c59)
