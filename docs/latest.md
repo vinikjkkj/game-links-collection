@@ -1,5 +1,16 @@
 # Latest Games
 
+- HOT WHEELS Infinite Rush + Just for Fun Pack DLC | 2026-09-10 ([Source: Fitgirl](https://fitgirl-repacks.site/hot-wheels-infinite-rush/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2108c0d5f7d20a52#BAzvrMxggyxiiQcf1ac4NfpBsPtGoq8BGoyi73m5Qfcp)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?82e4790411ea6b46#FusPdGQjsQjF8GA1HrW9bRXWaSyhEF95iNFWJjFYd2Rm)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?edddd058e295d91c#9JbHmQYL9FKGP2epWcvF3hg8RiVnzi9LjCwJvoRx3GGy)
+  - [1337x](https://1337x.to/torrent/6718375/HOT-WHEELS-Infinite-Rush-Just-for-Fun-Pack-DLC-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:DE21D48BFF7252D3CD93FE8D62DD185610632DD2&dn=HOT+WHEELS+Infinite+Rush+%28%2B+Just+for+Fun+Pack+DLC%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3138517)
+- CODE VEIN II Free Download (v2.0.1.0) | 2026-09-10 ([Source: SteamRIP](https://steamrip.com/code-vein-ii-free-download/))
+  - [bzzhr](https://bzzhr.to/uad2xllessqz)
+- In Falsus Free Download | 2026-09-10 ([Source: SteamRIP](https://steamrip.com/in-falsus-free-download/))
+  - [bzzhr](https://bzzhr.to/dwrxajetysvl)
 - Tiny Bakery Free Download | 2026-09-09 ([Source: SteamRIP](https://steamrip.com/tiny-bakery-free-download/))
   - [bzzhr](https://bzzhr.to/8fhwnujbp11m)
 - BRAVELY DEFAULT FLYING FAIRY HD Remaster Free Download | 2026-09-09 ([Source: SteamRIP](https://steamrip.com/bravely-default-flying-fairy-hd-remaster-free-download/))
@@ -127,17 +138,3 @@
   - [1337x](https://1337x.to/torrent/6715343/Marsupilami-2-Salsa-Palombia-MULTi10-FitGirl-Repack/)
   - <a href="magnet:?xt=urn:btih:C66023F207F350DDD3B80ED11AB349854DCF1B88&dn=Marsupilami+2%3A+Salsa+Palombia+%28MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3137608)
-- Marsupilami 2 – Salsa Palombia Free Download | 2026-09-04 ([Source: SteamRIP](https://steamrip.com/marsupilami-2-salsa-palombia-free-download/))
-  - [bzzhr](https://bzzhr.to/yqed587lfhc3)
-  - [fileditchfiles](https://fileditchfiles.st/balpha14/1efd4b10d93fdf236279/Marsupilami.2.Salsa.Palombia-SteamRIP.com.rar)
-- Onimusha: Way of the Sword – Premium Deluxe Edition, v01.000.001 + 24 DLCs | 2026-09-04 ([Source: Fitgirl](https://fitgirl-repacks.site/onimusha-way-of-the-sword/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?86343d510f9781f3#9RYxDdppfQt3h6tZCoN6PfDW3zPjLQRoyd1hNAtgnorQ)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a99466bad062c7a9#9WGs6W4t9zfemcbp3B2tr83UB8vMLwVxZXS3pwSF7NJ4)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cf503da29b392fcd#JGDrj4A5iJMUrfNbCaVa7yeazGZFgcxumeXEeXfceTo)
-  - [1337x](https://1337x.to/torrent/6714758/Onimusha-Way-of-the-Sword-Premium-Deluxe-Edition-v01-000-001-24-DLCs-MULTi14-FitGirl-Hypervisor-Repack/)
-  - <a href="magnet:?xt=urn:btih:42E749A3CCA556DCCF77B26786B76A04941067ED&dn=Onimusha%3A+Way+of+the+Sword+-+Premium+Deluxe+Edition+%28v01.000.001+%2B+24+DLCs%2C+MULTi14%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3137445)
-- LET IT DIE Free Download | 2026-09-04 ([Source: SteamRIP](https://steamrip.com/let-it-die-free-download/))
-  - [gofile](https://gofile.io/d/pd9gBLTB)
-  - [bzzhr](https://bzzhr.to/oaffypclwxmj)
-  - [fileditchfiles](https://fileditchfiles.st/balpha14/3cedaf50423497666ce9/LET.IT.DIE-SteamRIP.com.rar)
