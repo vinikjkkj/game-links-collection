@@ -12889,6 +12889,15 @@
   - CODEX MORTIS Free Download | 2026-09-25 ([Source: SteamRIP](https://steamrip.com/codex-mortis-free-download/))
     - [bzzhr](https://bzzhr.to/9nyctiue3kea)
     - [fileditchfiles](https://fileditchfiles.st/balpha22/965d7bab6725d783d8ea/CODEX.MORTIS-SteamRIP.com.rar)
+  - CODEX MORTIS – v3.6.757 | 2026-10-01 ([Source: Fitgirl](https://fitgirl-repacks.site/codex-mortis/))
+    - [datanodes](https://datanodes.to/t7ck5f58z9xy/CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/rkhoknnoshhc#CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/gcogg0gva24q/CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6730792/CODEX-MORTIS-v3-6-757-MULTi28-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:0570C2A7397E89E8E918C057FE1830A83CA52767&dn=CODEX+MORTIS+%28v3.6.757%2C+MULTi28%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1108416/codex-mortis-v-3.6.757-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:0570c2a7397e89e8e918c057fe1830a83ca52767&dn=rutor.info_CODEX+MORTIS+%5Bv+3.6.757%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3142473)
   - Coffee Noir: Business Detective Game | 2021-10-03 ([Source: Fitgirl](https://fitgirl-repacks.site/coffee-noir-business-detective-game/))
     - [1337x](https://1337x.to/torrent/5005288/Coffee-Noir-Business-Detective-Game-MULTi2-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:10E47CF10436D5D8C9A8BC0617CD32DE668A9395&dn=Coffee+Noir%3A+Business+Detective+Game+%28MULTi2%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -20928,6 +20937,8 @@
       - [Dying_Light_The_Beast_Update_from_v1.6.0_to_v1.6.2-ElAmigos.rar](https://filecrypt.cc/Container/F9E4C3E675.html)
   - Dynasty Protocol Free Download | 2026-06-26 ([Source: SteamRIP](https://steamrip.com/dynasty-protocol-free-download/))
     - [bzzhr](https://bzzhr.to/fnyu0x25bphx)
+  - DYNASTY WARRIORS 3: Complete Edition Remastered Free Download | 2026-10-01 ([Source: SteamRIP](https://steamrip.com/dynasty-warriors-3-complete-edition-remastered-free-download/))
+    - [bzzhr](https://bzzhr.to/6qzlu9d4wh48)
   - Dynasty Warriors 7 Xtreme Legends Definitive Edition | 2026-04-14 ([Source: Elamigos](https://elamigos.site/data/Dynasty_Warriors_7_Xtreme_Legends_MULTi3__ElAmigos_-_0EEp6qC9.html))
     - [filecrypt](https://www.filecrypt.cc/Container/D018314F05.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd40fb9f19e)

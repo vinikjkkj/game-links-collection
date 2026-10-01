@@ -1,5 +1,16 @@
 # Latest Games
 
+- CODEX MORTIS – v3.6.757 | 2026-10-01 ([Source: Fitgirl](https://fitgirl-repacks.site/codex-mortis/))
+  - [datanodes](https://datanodes.to/t7ck5f58z9xy/CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/rkhoknnoshhc#CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/gcogg0gva24q/CODEX_MORTIS_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6730792/CODEX-MORTIS-v3-6-757-MULTi28-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:0570C2A7397E89E8E918C057FE1830A83CA52767&dn=CODEX+MORTIS+%28v3.6.757%2C+MULTi28%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1108416/codex-mortis-v-3.6.757-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:0570c2a7397e89e8e918c057fe1830a83ca52767&dn=rutor.info_CODEX+MORTIS+%5Bv+3.6.757%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3142473)
+- DYNASTY WARRIORS 3: Complete Edition Remastered Free Download | 2026-10-01 ([Source: SteamRIP](https://steamrip.com/dynasty-warriors-3-complete-edition-remastered-free-download/))
+  - [bzzhr](https://bzzhr.to/6qzlu9d4wh48)
 - Songs of Glimmerwick Free Download | 2026-09-30 ([Source: SteamRIP](https://steamrip.com/songs-of-glimmerwick-free-download/))
   - [bzzhr](https://bzzhr.to/gq82nbqxo0hy)
   - [fileditchfiles](https://fileditchfiles.st/balpha24/b79c8cfad969b2eb484e/Songs.of.Glimmerwick-SteamRIP.com.rar)
@@ -112,7 +123,3 @@
   - [tapochek](https://tapochek.net/viewtopic.php?p=3141809)
 - Vector Free Download | 2026-09-27 ([Source: SteamRIP](https://steamrip.com/vector-free-download/))
   - [bzzhr](https://bzzhr.to/fgfd0sb0ja3c)
-- Sam & Max Save the World Free Download | 2026-09-27 ([Source: SteamRIP](https://steamrip.com/sam-max-save-the-world-free-download/))
-  - [bzzhr](https://bzzhr.to/cjb6zdvofs94)
-- Minibus Simulator Free Download | 2026-09-27 ([Source: SteamRIP](https://steamrip.com/minibus-simulator-free-download/))
-  - [bzzhr](https://bzzhr.to/9t8zebksv39a)
