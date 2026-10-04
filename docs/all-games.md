@@ -4079,6 +4079,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?d02f9e63b6ada3d5#C79922mJ7keF1M31QqpNXiWQryQj7N5HrXmFRdAVQpMB)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?7306bd4504d3fde5#3Jx9wHyEXk4wZwSxJieSYSaAP47uZtLXzhPbP5ff6V8d)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?0b8f8a6bd91105e5#FF3nYATEpqdHGVU6GvtsRL6Lk9U4CNfZicbVaGaFdiYX)
+  - ArmorSim Free Download | 2026-10-04 ([Source: SteamRIP](https://steamrip.com/armorsim-free-download/))
+    - [bzzhr](https://bzzhr.to/542b1p38yebn)
   - Arms of God Free Download | 2026-06-10 ([Source: SteamRIP](https://steamrip.com/arms-of-god-free-download/))
     - [bzzhr](https://bzzhr.to/7f76w98vtd0i)
     - [gofile](https://gofile.io/d/ANBM7L)
@@ -13622,6 +13624,10 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?971f7e62d65dac8f#DRnjWMJQ9qsbmqqGo4YS4VsPpz7BVjHE3DmCRwBw3ZWB)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?b337bd00cd2f82d6#CUpRo1KgpkaYJPo3NENjRS3tCjTJboRi8LmZ9AfjsEDg)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?93ed5a1d409c4963#6nTVPAgaiE13bWvdZYWHcSqj3kSLd4ahpzz9vcYZU8AN)
+  - CONVRGENCE Free Download | 2026-10-04 ([Source: SteamRIP](https://steamrip.com/convrgence-free-download/))
+    - [gofile](https://gofile.io/d/ED9tFDfC)
+    - [bzzhr](https://bzzhr.to/hb2zsjyhshzu)
+    - [fileditchfiles](https://fileditchfiles.st/alpha34/a60ed0aea9e3618ad615/CONVRGENCE-SteamRIP.com.rar)
   - Conway: Disappearance at Dahlia View | 2021-11-03 ([Source: Fitgirl](https://fitgirl-repacks.site/conway-disappearance-at-dahlia-view/))
     - [1337x](https://1337x.to/torrent/5038464/Conway-Disappearance-at-Dahlia-View-MULTi5-FitGirl-Repack-Selective-Download-from-4-4-GB/)
     - <a href="magnet:?xt=urn:btih:36D51A7B43D1B044A13F29CC1F0FF127389C6E87&dn=Conway%3A+Disappearance+at+Dahlia+View+%28MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.4+GB%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -19673,6 +19679,15 @@
   - Dragon Shelter Free Download | 2026-09-26 ([Source: SteamRIP](https://steamrip.com/dragon-shelter-free-download/))
     - [bzzhr](https://bzzhr.to/0yghkoipnkzj)
     - [fileditchfiles](https://fileditchfiles.st/balpha22/8ca838d2945171045a5d/Dragon.%20Shelter-SteamRIP.com.rar)
+  - Dragon Shelter – v0.0.58 | 2026-10-04 ([Source: Fitgirl](https://fitgirl-repacks.site/dragon-shelter/))
+    - [datanodes](https://datanodes.to/fnlzoju20max/Dragon_Shelter_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/69rknt9v3gag#Dragon_Shelter_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/zj2x1461s3q2/Dragon_Shelter_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6732391/Dragon-Shelter-v0-0-58-MULTi5-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:7FE0634D17DD0FBFA334E084B3CDAE4C3905EE60&dn=Dragon+Shelter+%28v0.0.58%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1108805/dragon-shelter-v-0.0.58-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:7fe0634d17dd0fbfa334e084b3cdae4c3905ee60&dn=rutor.info_Dragon+Shelter+%5Bv+0.0.58%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3142925)
   - Dragon Song Tavern: Cozy & Adventurous – Deluxe Edition, v1.0.092402 + 2 DLCs | 2025-09-29 ([Source: Fitgirl](https://fitgirl-repacks.site/dragon-song-tavern-cozy-adventurous/))
     - [1337x](https://1337x.to/torrent/6492902/Dragon-Song-Tavern-Cozy-Adventurous-Deluxe-Edition-v1-0-092402-2-DLCs-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:93E0AEADBF44F964A3D9CB874CB71AC6D6787DE4&dn=Dragon+Song+Tavern%3A+Cozy+%26amp%3B+Adventurous+-+Deluxe+Edition+%28v1.0.092402+%2B+2+DLCs%2C+MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -25324,6 +25339,8 @@
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=206677)
     - [rutor](http://www.rutor.info/torrent/431699/final-fantasy-iv-the-after-years-2015-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:e761c0cf7dc6385680b7e18cb5b8279bbe7ea5ce&dn=rutor.info_Final+Fantasy+IV%3A+The+After+Years+%282015%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://bt.rutor.info:2710&tr=http://retracker.local/announce">Torrent</a>
+  - FINAL FANTASY IV: THE AFTER YEARS Free Download | 2026-10-04 ([Source: SteamRIP](https://steamrip.com/final-fantasy-iv-the-after-years-free-download/))
+    - [bzzhr](https://bzzhr.to/jfbdpwmt23p4)
   - Final Fantasy IX | 2016-07-25 ([Source: Fitgirl](https://fitgirl-repacks.site/final-fantasy-ix/))
     - <a href="magnet:?xt=urn:btih:0D923BEE2228FA645E631496E6DC984DA7395BCF">Torrent</a>
     - [sendfile](http://sendfile.su/1224481)
@@ -41589,6 +41606,13 @@
   - Mars Attracts Free Download | 2026-09-26 ([Source: SteamRIP](https://steamrip.com/mars-attracts-free-download/))
     - [bzzhr](https://bzzhr.to/k0tpvf1tqnle)
     - [fileditchfiles](https://fileditchfiles.st/alpha31/edf0d7b00f1af9b59a55/Mars.%20Attracts%20-SteamRIP.com.rar)
+  - Mars Attracts: Supporter’s Edition – v0.6.2 + 4 DLCs/Bonuses | 2026-10-04 ([Source: Fitgirl](https://fitgirl-repacks.site/mars-attracts/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b4394236d28f01c7#CzgqqVttrRVh6Eje4T4an6C15mvB2idiaJaVDbrEkQfa)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?89d008b3846e622e#GLwCX6eDqrJ9cCJYN85AcDS39nUiPVenhpX4z8qiycbA)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3bd514877ed323c9#EWLjQVngWsictCezfj2CB6xPn1UJr621sLkNYKKNxF2v)
+    - [1337x](https://1337x.to/torrent/6732444/Mars-Attracts-Supporter-s-Edition-v0-6-2-4-DLCs-Bonuses-MULTi9-FitGirl-Repack-Selective-Download-from-668-MB/)
+    - <a href="magnet:?xt=urn:btih:349696B23F066CBED80EB9A35ABB3BB6F56CC85C&dn=Mars+Attracts%3A+Supporter%26%23039%3Bs+Edition+%28v0.6.2+%2B+4+DLCs%2FBonuses%2C+MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+668+MB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3142951)
   - Mars First Logistics Free Download (v202509271553 + Co-op) | 2025-10-05 ([Source: SteamRIP](https://steamrip.com/mars-first-logistics-free-download/))
     - [megadb](https://megadb.net/l3wh7bhxqfo3)
   - Mars Horizon | 2022-06-22 ([Source: Elamigos](https://elamigos.site/data/Mars_Horizon_MULTi8__ElAmigos_-_cPn2bUPR.html))
@@ -56457,6 +56481,8 @@
     - [filecrypt](https://www.filecrypt.cc/Container/51DC168F5A)
     - [buzzheavier](https://buzzheavier.com/xg2dr04b8dzc)
     - [1fichier](https://1fichier.com/?5zdmwx3qwxqlvttqh707)
+  - Resident Evil 3 Nemesis (1999) Free Download | 2026-10-04 ([Source: SteamRIP](https://steamrip.com/resident-evil-3-nemesis-1999-free-download/))
+    - [bzzhr](https://bzzhr.to/qk5kqhb4x88l)
   - Resident Evil 3 – v20220613/Build 8856549 + 2 DLCs + Bonus OST + Windows 7 Fix | 2022-06-16 ([Source: Fitgirl](https://fitgirl-repacks.site/resident-evil-3/))
     - [1337x](https://1337x.to/torrent/5292462/Resident-Evil-3-v20220613-2-DLCs-Bonus-OST-Windows-7-Fix-MULTi12-FitGirl-Repack-Selective-Download-from-14-4-GB/)
     - <a href="magnet:?xt=urn:btih:611A39CB7797D3CA6FE0650A5D96963A4E8D068F&dn=Resident+Evil+3+%28v20220613+%2B+2+DLCs+%2B+Bonus+OST+%2B+Windows+7+Fix%2C+MULTi12%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+14.4+GB%5D&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
