@@ -28159,6 +28159,15 @@
   - Gears of War: E-Day Free Download | 2026-10-06 ([Source: SteamRIP](https://steamrip.com/gears-of-war-e-day-free-download/))
     - [gofile](https://gofile.io/d/YNsrMYyW)
     - [bzzhr](https://bzzhr.to/2qjxbekwp320)
+  - Gears of War: E-Day – v4894958 (Release) + 7 DLCs* | 2026-10-07 ([Source: Fitgirl](https://fitgirl-repacks.site/gears-of-war-e-day/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?1a3fb0e8baadc30e#72MySrezkCU4DNGHkKVqWNnnGhUCHMJRwjRbVYyyXdCr)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d2951606a194e0ea#r18abDjVMMLhzTTn97tLkx8X3ZCvRb6BLnPL9vXJYvx)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a03173996463e473#EfMYZbsCFRnpN69c4o8rx6AER5x3QtrGTiJBfJDkLyFt)
+    - [1337x](https://1337x.to/torrent/6733844/Gears-of-War-E-Day-v4894958-Release-7-DLCs-MULTi22-FitGirl-Repack-Selective-Download-from-78-3-GB/)
+    - <a href="magnet:?xt=urn:btih:05ADA45DB37EF9D8E8A2CB89B3BC5F07F1766E19&dn=Gears+of+War%3A+E-Day+%28v4894958%2FRelease+%2B+7+DLCs%2A%2C+MULTi22%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+78.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1109056/gears-of-war-e-day-v4894958-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:05ada45db37ef9d8e8a2cb89b3bc5f07f1766e19&dn=rutor.info_Gears+of+War%3A+E-Day+%5Bv4894958+%2B+DLCs%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3143315)
   - Gears of War: Reloaded Free Download (v1.0.1.3689997) | 2025-08-27 ([Source: SteamRIP](https://steamrip.com/gears-of-war-reloaded-free-download/))
     - [filecrypt](https://www.filecrypt.cc/Container/7FAC8A66C7)
     - [buzzheavier](https://buzzheavier.com/4ddn10mz216b)
@@ -38002,6 +38011,15 @@
     - [rutor](https://rutor.info/torrent/1054328/lan-party-adventures-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:05fd59b28e498fa94fb801ccf6d6434b8d72d995&dn=rutor.info_LAN+Party+Adventures+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3078073)
+  - Land of Glarefall – v1.0.1 | 2026-10-07 ([Source: Fitgirl](https://fitgirl-repacks.site/land-of-glarefall/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5438a16aecfc88e2#CGpSGr88KyMTDaSPKSDWXBuppCcy8C7VrLLYcLJqvqop)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6857bfb8980cd2f7#6qH23EguHnPmp3Te1D2FaaQbRRaLqW8CJxqTe6RP4CS5)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6e8354e212ab6150#6Tome7xkwgzRNqiP6NgjeKoZ5cXwXG68cTcSa6JN9haG)
+    - [1337x](https://1337x.to/torrent/6733828/Land-of-Glarefall-v1-0-1-MULTi6-FitGirl-Repack-Selective-Download-from-1-9-GB/)
+    - <a href="magnet:?xt=urn:btih:EA79E8178E492766D6F789B0A32A3CBF34E03291&dn=Land+of+Glarefall+%28v1.0.1%2C+MULTi6%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.9+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1109055/land-of-glarefall-v-1.0.1-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:ea79e8178e492766d6f789b0a32a3cbf34e03291&dn=rutor.info_Land+of+Glarefall+%5Bv+1.0.1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3143314)
   - Land of the Vikings | 2025-03-21 ([Source: Elamigos](https://elamigos.site/data/Land_of_the_Vikings_MULTi8_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/4E6A7938CF.html)
     - [keeplinks](https://www.keeplinks.org/p16/6525774dd13fa)
@@ -42509,6 +42527,10 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3091456)
     - **Updates**
       - [MechWarrior.5.Clans.Wolves.of.Tukayyid.Update.v1.16.134-RUNE.rar](https://filecrypt.cc/Container/DA96A7B487.html)
+  - MechWarrior 5: Mercenaries Free Download | 2026-10-07 ([Source: SteamRIP](https://steamrip.com/mechwarrior-5-mercenaries-free-download/))
+    - [gofile](https://gofile.io/d/7ctqEXtp)
+    - [bzzhr](https://bzzhr.to/n2xams7c13d5)
+    - [fileditchfiles](https://fileditchfiles.st/balpha27/7778d80f1b6c445f5deb/MechWarrior.5.Mercenaries-SteamRIP.com.rar)
   - MechWarrior 5: Mercenaries – Inner Sphere Edition, v1.10.370 + 8 DLCs/Bonuses | 2025-09-05 ([Source: Fitgirl](https://fitgirl-repacks.site/mechwarrior-5-mercenaries/))
     - [1337x](https://1337x.to/torrent/6477523/MechWarrior-5-Mercenaries-Inner-Sphere-Edition-v1-10-370-8-DLCs-Bonuses-MULTi4-FitGirl-Repack-Selective-Download-from-24-GB/)
     - <a href="magnet:?xt=urn:btih:6BC4FBCF83899E92367FEB0EFF4E11A5A60029A7&dn=MechWarrior+5%3A+Mercenaries+-+Inner+Sphere+Edition+%28v1.10.370+%2B+8+DLCs%2FBonuses%2C+MULTi4%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+24+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -45976,6 +45998,15 @@
     - [gofile](https://gofile.io/d/d0e4kDhK)
     - [bzzhr](https://bzzhr.to/uisiwthbwsxv)
     - [fileditchfiles](https://fileditchfiles.st/alpha33/9516a239dc453cccd0f3/MXGP.26.The.Official.Game-SteamRIP.com.rar)
+  - MXGP 26: Fox Holeshot Edition + 2 DLCs | 2026-10-07 ([Source: Fitgirl](https://fitgirl-repacks.site/mxgp-26/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?52a9c664bef2162f#5YbBqNM6z1R5kTsBscAkn4JX1qQsMHyQKHE9ZU5QAn3G)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c69dc919bda6069d#2nQJEkiGHsQRcDnZ8SfiGCWfh3kd7XDZbUVTFKowxCnq)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?489837c197cc768d#GXvL5CxGERtPYKqARPbrmm6i7Us7umiSibZqhTH4TGWS)
+    - [1337x](https://1337x.to/torrent/6734423/MXGP-26-Fox-Holeshot-Edition-2-DLCs-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A819F9041DD9FE0A847E2ECB420AD48013C53B5A&dn=MXGP+26%3A+Fox+Holeshot+Edition+%28%2B+2+DLCs%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1109154/mxgp-26-fox-holeshot-edition-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:a819f9041dd9fe0a847e2ecb420ad48013c53b5a&dn=rutor.info_MXGP+26%3A+Fox+Holeshot+Edition+%5B%2B+DLCs%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3143464)
   - MXGP Pro | 2018-07-01 ([Source: Fitgirl](https://fitgirl-repacks.site/mxgp-pro/))
     - [1337x](http://1337x.to/torrent/3085819/MXGP-Pro-MULTi6-FitGirl-Repack-Selective-Download-from-5-1-GB/)
     - <a href="magnet:?xt=urn:btih:8319BDE8986940A471D1191F669EF8DB6B2E1ABC">Torrent</a>
