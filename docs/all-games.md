@@ -2987,6 +2987,13 @@
   - Among the Sleep Enhanced Edition Free Download | 2026-04-12 ([Source: SteamRIP](https://steamrip.com/among-the-sleep-enhanced-edition-free-download-1w/))
     - [megadb](https://megadb.net/qpt09zqj7trh)
     - [fileditchfiles](https://fileditchfiles.me/file.php?f=/alpha1/b6f3a85b9f8c7af101c3/Among-The-Sleep-SteamRIP.com.rar)
+  - Among the Trolls | 2026-10-19 ([Source: Fitgirl](https://fitgirl-repacks.site/among-the-trolls/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4c216747725b654e#3xbRpKwqojqne28u7Kp1TNsgibpTcP8dmQgYggjGy1GZ)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?86d0fa6a90544f48#FvRE9sinMnwhLdoBaQAABJNZMXvxVzZcYVD6ftDVMykc)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?dc39ed172295e7cf#HgT3MKYjiYiuHMffMbVqRJ2eehEPejhdW8pRGgyn38pN)
+    - [1337x](https://1337x.to/torrent/6742180/Among-the-Trolls-MULTi11-FitGirl-Repack-Selective-Download-from-7-9-GB/)
+    - <a href="magnet:?xt=urn:btih:DBD6E9EEFEB634D757B0853B8C64F53EEB0F4361&dn=Among+the+Trolls+%28MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+7.9+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3146133)
   - Among the Trolls Free Download | 2026-10-15 ([Source: SteamRIP](https://steamrip.com/among-the-trolls-free-download/))
     - [gofile](https://gofile.io/d/RnlyGgW0)
     - [bzzhr](https://bzzhr.to/uu3gtnzwwmf9)
@@ -10522,6 +10529,15 @@
     - <a href="magnet:?xt=urn:btih:26ddf3e2acf4c011dd9542fd21e68b92830f2735&dn=rutor.info_Call+of+Duty%3A+Modern+Warfare+3+%282011%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2472554)
     - <a href="magnet:?xt=urn:btih:1de01dd2889124fcd99035d85fb29346e45114f1&dn=Call+of+Duty+-+Modern+Warfare+3+%5BFitGirl+Repack%5D+TAP&tr=retracker.local/announce">Torrent</a>
+  - Call of Duty: Modern Warfare 4 – v13.1.29465156 (Campaign Only) | 2026-10-19 ([Source: Fitgirl](https://fitgirl-repacks.site/call-of-duty-modern-warfare-4/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?dfca52ec934192d7#CtAkKJztiawdC4mamnbdu5nu47gp2tS2zSvXB6EEjrk2)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?537b1bf966486939#2gVBzMSs1gdP187TH1jWZS6NSfUwiSA8t5BD6LjK8saX)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b12063dd4f520470#6yU4dxuF8EYy8VcYoGF92hn4QLsTJrGfrsdLCS6jPZ6r)
+    - [1337x](https://1337x.to/torrent/6741619/Call-of-Duty-Modern-Warfare-4-v13-1-29465156-Campaign-Only-MULTi14-FitGirl-Repack-Selective-Download-from-56-7-GB/)
+    - <a href="magnet:?xt=urn:btih:CAC2FE30EA193107DAFDBBFC932C965F496C7F31&dn=Call+of+Duty%3A+Modern+Warfare+4+%28v13.1.29465156+-+Campaign+Only%2C+MULTi14%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+56.7+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1110602/call-of-duty-modern-warfare-4-v-13.1.29465156-campaign-only-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:cac2fe30ea193107dafdbbfc932c965f496c7f31&dn=rutor.info_Call+of+Duty%3A+Modern+Warfare+4+%5Bv+13.1.29465156+%7C+Campaign+Only%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?t=290309)
   - Call of Duty: Modern Warfare II Free Download [v9.7 (Campaign) | v9.40 (Multiplayer] | 2026-03-03 ([Source: SteamRIP](https://steamrip.com/call-of-duty-modern-warfare-ii-free-download/))
     - [buzzheavier](https://buzzheavier.com/ioc6p3iku6yj)
     - [vikingfile](https://vikingfile.com/f/WUGEq5Wogd)
