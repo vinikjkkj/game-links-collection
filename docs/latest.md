@@ -1,5 +1,29 @@
 # Latest Games
 
+- We Were Here Tomorrow Free Download (v1.1.1.696 + Co-op) | 2026-10-21 ([Source: SteamRIP](https://steamrip.com/we-were-here-tomorrow-free-download/))
+  - [bzzhr](https://bzzhr.to/h0lfiyfk0tqe)
+  - [itsfileditchfiles](https://itsfileditchfiles.st/alpha39/446e056ea287dd44aa8b/We-Were-Here-Tomorrow-SteamRIP.com.rar)
+- Scam With Your Friends Free Download (v0.1.82 + Co-op) | 2026-10-21 ([Source: SteamRIP](https://steamrip.com/scam-with-your-friends-free-download/))
+  - [itsfileditchfiles](https://itsfileditchfiles.st/alpha39/fd79024ef6fd848378e5/Scam-With-Your-Friends-SteamRIP.com.rar)
+  - [megadb](https://megadb.net/9e98fe20eed94845)
+- Stupid Never Dies: Glorious Idiot Edition + DLC | 2026-10-21 ([Source: Fitgirl](https://fitgirl-repacks.site/stupid-never-dies/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?12747619527f554a#GQZnRsUaswH6iATNd6KJLph4yb8Ly2MHzqMCNKVtwRH9)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?33322fdf7817355a#7B8RJMV51FSCKD8axhLgfNu1MMJw9nzcTNdesztrqdco)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d612092245b7dd6c#BBgkNE5XUtFuKCND9zLZj6QvEv8A4Q7teioGj7db1gqT)
+  - [1337x](https://1337x.to/torrent/6743004/Stupid-Never-Dies-Glorious-Idiot-Edition-DLC-MULTi13-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:0CA2E4098DA7D1D1DAF5995B8CB9C1C847C8E728&dn=Stupid+Never+Dies%3A+Glorious+Idiot+Edition+%28%2B+DLC%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1110865/stupid-never-dies-glorious-idiot-edition-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:0ca2e4098da7d1d1daf5995b8cb9c1c847c8e728&dn=rutor.info_Stupid+Never+Dies%3A+Glorious+Idiot+Edition+%5B%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146381)
+- Final Fantasy XV: Pocket Edition – v1.4.524.2 + All 10 Chapters | 2026-10-21 ([Source: Fitgirl](https://fitgirl-repacks.site/final-fantasy-15-pocket-edition/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?41179fcb4ee9255e#CtdsuXtyR5ywM5WGMdjb9bPtajUMy8v72QazpGfP5ePk)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?483154b66d415148#86nv9fdpR72QXJV44Xj994cP4pYUVt9qg3wcL5xS3bTC)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?14f456471bce8702#Hvwy5jeyqFJ7Ew9DRiVg7oKhMArYGSq87ueqDBZHgKfv)
+  - [1337x](https://1337x.to/torrent/6742939/Final-Fantasy-XV-Pocket-Edition-v1-4-524-2-All-10-Chapters-MULTi12-FitGirl-Repack-Selective-Download-from-1-3-GB/)
+  - <a href="magnet:?xt=urn:btih:9244E20889BCEA22FA5FAAA84998FD59C7D20A71&dn=Final+Fantasy+XV%3A+Pocket+Edition+%28v1.4.524.2+%2B+All+10+Chapters%2C+MULTi12%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.3+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1110863/final-fantasy-xv-pocket-edition-v-1.4.524.2-2012-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:9244e20889bcea22fa5faaa84998fd59c7d20a71&dn=rutor.info_Final+Fantasy+XV+Pocket+Edition+%5Bv+1.4.524.2%5D+%282012%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146358)
 - Plan B: Terraform – v1.1.0 Build 1348 + 2 DLCs/Bonuses | 2026-10-20 ([Source: Fitgirl](https://fitgirl-repacks.site/plan-b-terraform/))
   - [datanodes](https://datanodes.to/bjrlil11ulc2/Plan_B_Terraform_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/kxxgdlz9whb5#Plan_B_Terraform_--_fitgirl-repacks.site_--_.rar)
@@ -145,13 +169,3 @@
 - Heroes of Science and Fiction Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/heroes-of-science-and-fiction-free-download/))
   - [bzzhr](https://bzzhr.to/s93qiq1t8t7i)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/dfed9d456fa4dbbc34db/Heroes.of.Science.and.Fiction.Xenauri.faction-SteamRIP.com.rar)
-- Harvest Moon: Echoes of Teradea Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/harvest-moon-echoes-of-teradea-free-download/))
-  - [bzzhr](https://bzzhr.to/skg3tlop91ef)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/593a603db0b5b53b5180/Harvest.Moon.Echoes.of.Teradea-SteamRIP.com.rar)
-- Dupery: A Game of Solo Deduction Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/dupery-a-game-of-solo-deduction-free-download/))
-  - [bzzhr](https://bzzhr.to/lxniffc4fb1q)
-- Chinese Parents Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/chinese-parents-free-download/))
-  - [bzzhr](https://bzzhr.to/99567uvjget0)
-- Beyond These Stars Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/beyond-these-stars-free-download/))
-  - [bzzhr](https://bzzhr.to/007fjl8s4zr9)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/e502121c9e435f4ccb6d/Beyond.These.Stars-SteamRIP.com.rar)
