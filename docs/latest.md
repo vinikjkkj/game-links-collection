@@ -1,5 +1,23 @@
 # Latest Games
 
+- DRIVECLUB – v1.28 EU/US + All DLCs (Recompiled for PC v0.2.5) | 2026-10-22 ([Source: Fitgirl](https://fitgirl-repacks.site/driveclub/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b5ba1f3a5b27e859#GjMGDRKhuny5Bq8oEp2zX4TAz8K6DdcmjQxaNaAdJmdx)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?37037a3ad2fd7cf6#DHjaiU4oLWhV7A9QpZPahB6ks9GJLBxM4jUjyPuAY79C)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f96b1b9406458d40#E4LFuVHpGyoq4noABq7Qqu1snZtVw7pWX5DK9zNJL7Uw)
+  - [1337x](https://1337x.to/torrent/6743987/DRIVECLUB-v1-28-EU-US-All-DLCs-Recompiled-for-PC-v0-2-5-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:28549908D853268C9D58FC2937EA0568E48214CA&dn=DRIVECLUB+%28v1.28+EU%2FUS+%2B+All+DLCs+-+Recompiled+for+PC+v0.2.5%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1111002/driveclub-v-1.28-dlcs-rekompiljacija-pod-pc-v0.2.5-2014-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:28549908d853268c9d58fc2937ea0568e48214ca&dn=rutor.info_DRIVECLUB+%5Bv+1.28+%2B+DLCs+-+%D0%A0%D0%B5%D0%BA%D0%BE%D0%BC%D0%BF%D0%B8%D0%BB%D1%8F%D1%86%D0%B8%D1%8F+%D0%BF%D0%BE%D0%B4+PC+v0.2.5%5D+%282014%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146562)
+- Denizen – v1.0.2 | 2026-10-22 ([Source: Fitgirl](https://fitgirl-repacks.site/denizen/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?aa96d0a1e1e2920f#7pXcQHBkcfyfrdQ1P5ZD9JdiSBqU2j8CAaQ5feQhqNgg)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?be99b5107907f043#BtK7mAx9Z5W7PD8YV3cUwsg8zvC3LVePcauYxQkuzVRy)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2cbed4c4b3d12fbf#A2DmCUY1qUYLZthHErFGAZCKryfESRRGwtxMTu4nXA6f)
+  - [1337x](https://1337x.to/torrent/6743936/Denizen-v1-0-2-MULTi13-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:CF24F565590702C7C2D883793257DD9C546F9FB2&dn=Denizen+%28v1.0.2%2C+MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1111001/denizen-v-1.0.2-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:cf24f565590702c7c2d883793257dd9c546f9fb2&dn=rutor.info_Denizen+%5Bv+1.0.2%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146556)
 - We Were Here Tomorrow Free Download (v1.1.1.696 + Co-op) | 2026-10-21 ([Source: SteamRIP](https://steamrip.com/we-were-here-tomorrow-free-download/))
   - [bzzhr](https://bzzhr.to/h0lfiyfk0tqe)
   - [itsfileditchfiles](https://itsfileditchfiles.st/alpha39/446e056ea287dd44aa8b/We-Were-Here-Tomorrow-SteamRIP.com.rar)
@@ -163,9 +181,3 @@
 - Penguin Colony Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/penguin-colony-free-download/))
   - [bzzhr](https://bzzhr.to/gwm1hxxyn6yk)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/d390ad41c9b326066a9c/Penguin.Colony-SteamRIP.com.rar)
-- Order Picker Simulator Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/order-picker-simulator-free-download/))
-  - [bzzhr](https://bzzhr.to/vsn4ywy13qvq)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/038691bddf6715a49a7b/Order.Picker.Simulator-SteamRIP.com.rar)
-- Heroes of Science and Fiction Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/heroes-of-science-and-fiction-free-download/))
-  - [bzzhr](https://bzzhr.to/s93qiq1t8t7i)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/dfed9d456fa4dbbc34db/Heroes.of.Science.and.Fiction.Xenauri.faction-SteamRIP.com.rar)
