@@ -1,5 +1,32 @@
 # Latest Games
 
+- Disney/Pixar Toy Story 3: Complete Edition | 2026-10-23 ([Source: Fitgirl](https://fitgirl-repacks.site/disney-pixar-toy-story-3-complete-edition/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b91f088f58300623#3RuZyJxcJmryodYF9JRSbfmWd5tDvSNxs5wb6EyvmqMR)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?13ff7c83aa039d41#AAHfYA4kars7kjPj4T2jBmogFKRPVKbHf9WwPAYbRdup)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4fc8fe3b326efac4#Hu4WDKf5esvVBjsZECz8hTyXEA1TSTjEPXta8UeRNxap)
+  - [1337x](https://1337x.to/torrent/6745505/Disney-Pixar-Toy-Story-3-Complete-Edition-MULTi19-FitGirl-Repack-Selective-Download-from-2-2-GB/)
+  - <a href="magnet:?xt=urn:btih:CCACD07CA5F2BA0996FF17EFCF889D019FEF66E6&dn=Disney%2FPixar+Toy+Story+3%3A+Complete+Edition+%28MULTi19%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1111274/disney/pixar-toy-story-3-complete-edition-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:ccacd07ca5f2ba0996ff17efcf889d019fef66e6&dn=rutor.info_Disney%2FPixar+Toy+Story+3%3A+Complete+Edition+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146893)
+- Mycopunk: Supporter Edition – v2.0 Build 911 + 2 DLCs/Bonuses | 2026-10-23 ([Source: Fitgirl](https://fitgirl-repacks.site/mycopunk/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?9c585a879d34ee45#JC8zpP7LKcgUzwaRA99bPUHzvjLNgBQx5coYmnEM3QQ)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?64a6bef7ace27917#C4i721jJ8BQ5Dm52EYEkKfNJFbPmHMC3PtAzVLYeKvtf)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?158331b599613c81#cyvVDy9MySG918WR6YFEMqUeZMXhTDArHngMmNHXVtb)
+  - [1337x](https://1337x.to/torrent/6744876/Mycopunk-Supporter-Edition-v2-0-Build-911-2-DLCs-Bonuses-MULTi10-FitGirl-Repack-Selective-Download-from-4-4-GB/)
+  - <a href="magnet:?xt=urn:btih:0635B9CF0954CA8CEEADD38452E661B27CF50B66&dn=Mycopunk%3A+Supporter+Edition+%28v2.0+Build+911+%2B+2+DLCs%2FBonuses%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.4+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1111108/mycopunk-supporter-edition-v-2.0-build-911-dlcs-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:0635b9cf0954ca8ceeadd38452e661b27cf50b66&dn=rutor.info_Mycopunk%3A+Supporter+Edition+%5Bv+2.0+Build+911+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146712)
+- Tales of Eternia Remastered: Deluxe Edition – v2.0.0 + 4 DLCs/Bonuses | 2026-10-22 ([Source: Fitgirl](https://fitgirl-repacks.site/tales-of-eternia-remastered/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?748320a4f8897825#6As8whGTa6f7CwMvzN1dWrBfVV2cW6r1nNsg4mhLHzKa)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?355b1201f4eddc36#8wzNJbb9dJ3y9HHCXbD3J8BJKyNNbfKXQRQs9cCNohWu)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?af19520549c5a7f1#HZ3LnunxYud46fxi9bh9mSGRahHDwjMpcx9Xhh5B3mmt)
+  - [1337x](https://1337x.to/torrent/6744799/Tales-of-Eternia-Remastered-Deluxe-Edition-v2-0-0-4-DLCs-Bonuses-MULTi10-FitGirl-Repack-Selective-Download-from-4-2-GB/)
+  - <a href="magnet:?xt=urn:btih:5E83770113263DD45130A6960FC6AB6F54207884&dn=Tales+of+Eternia+Remastered%3A+Deluxe+Edition+%28v2.0.0+%2B+4+DLCs%2FBonuses%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.2+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1111103/tales-of-eternia-remastered-deluxe-edition-v-2.0.0-dlcs-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:5e83770113263dd45130a6960fc6ab6f54207884&dn=rutor.info_Tales+of+Eternia+Remastered%3A+Deluxe+Edition+%5Bv+2.0.0+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3146696)
 - DRIVECLUB – v1.28 EU/US + All DLCs (Recompiled for PC v0.2.5) | 2026-10-22 ([Source: Fitgirl](https://fitgirl-repacks.site/driveclub/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b5ba1f3a5b27e859#GjMGDRKhuny5Bq8oEp2zX4TAz8K6DdcmjQxaNaAdJmdx)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?37037a3ad2fd7cf6#DHjaiU4oLWhV7A9QpZPahB6ks9GJLBxM4jUjyPuAY79C)
@@ -170,14 +197,3 @@
   - [gofile](https://gofile.io/d/PPsdPH6F)
   - [bzzhr](https://bzzhr.to/bcfwsa1v0v0i)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha31/72ea155439341af0c643/Disney-Pixar.Toy.Story.Retro.Roundup-SteamRIP.com.rar)
-- Tenebris Somnia Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/tenebris-somnia-free-download/))
-  - [gofile](https://gofile.io/d/CH5oMlcI)
-  - [bzzhr](https://bzzhr.to/dwt0l9tecj1s)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/1062535185d85aab5b72/Tenebris_Somnia-SteamRIP.com.rar)
-- Tales of Eternia Remastered Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/tales-of-eternia-remastered-free-download/))
-  - [gofile](https://gofile.io/d/Wsrhfnmk)
-  - [bzzhr](https://bzzhr.to/xrl59bck15g5)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/b8b0bdd08d019ffbd4b0/Tales.of.Eternia.Remastered-SteamRIP.com.rar)
-- Penguin Colony Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/penguin-colony-free-download/))
-  - [bzzhr](https://bzzhr.to/gwm1hxxyn6yk)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/d390ad41c9b326066a9c/Penguin.Colony-SteamRIP.com.rar)
