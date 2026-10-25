@@ -3991,6 +3991,10 @@
     - [buzzheavier](https://buzzheavier.com/1lid9vmsey60)
     - [buzzheavier](https://buzzheavier.com/h01hr82qgs03)
     - [vikingfile](https://vikingfile.com/f/B2hOWrLBF0)
+  - ARK: Survival Evolved Free Download | 2026-10-25 ([Source: SteamRIP](https://steamrip.com/ark-survival-evolved-free-download/))
+    - [gofile](https://gofile.io/d/vk4PrrB1)
+    - [bzzhr](https://bzzhr.to/9sj3d9buq569)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha37/09bbe6e85727a8713940/ARK-Survival.Evolved-SteamRIP.com.rar)
   - ARK: Survival Evolved – Ultimate Survivor Edition – v360.1 + 19 DLCs/Bonuses | 2025-07-19 ([Source: Fitgirl](https://fitgirl-repacks.site/ark-survival-evolved/))
     - [1337x](https://1337x.to/torrent/6446586/ARK-Survival-Evolved-Ultimate-Survivor-Edition-v360-1-19-DLCs-Bonuses-MULTi21-FitGirl-Repack-Selective-Download-from-46-GB/)
     - <a href="magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D&dn=ARK%3A+Survival+Evolved+-+Ultimate+Survivor+Edition+%28v360.1+%2B+19+DLCs%2FBonuses%2C+MULTi21%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+46+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -17925,6 +17929,15 @@
     - [rutor](http://rutor.info/torrent/891184/detroit-become-human-v-20211117/build-7662975-2019-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:f738be4f768899e0f65ba64d7fe1568bcdb89678&dn=rutor.info_Detroit%3A+Become+Human+%5Bv+20211117%2FBuild+7662975%5D+%282019%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?t=232706)
+  - Deus Ex GO – v2.1.88971 | 2026-10-25 ([Source: Fitgirl](https://fitgirl-repacks.site/deus-ex-go/))
+    - [datanodes](https://datanodes.to/v1xo8ltgynz0/Deus_Ex_GO_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/wp1v7ypgbqlp#Deus_Ex_GO_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/z2g01gbomf9d/Deus_Ex_GO_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6746670/Deus-Ex-GO-v2-1-88971-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:04D42575BDF916BF2302CA4AC4A698E38EC88F80&dn=Deus+Ex+GO+%28v2.1.88971%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1111512/deus-ex-go-v-2.1.88971-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:04d42575bdf916bf2302ca4ac4a698e38ec88f80&dn=rutor.info_Deus+Ex+GO+%5Bv+2.1.88971%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3147248)
   - Deus Ex Mankind Divided Digital Deluxe | 2020-04-30 ([Source: Elamigos](https://elamigos.site/data/Deus_Ex_Mankind_Divided_Digital_Deluxe__ElAmigos_-_EKVY6Evf.html))
     - [filecrypt](https://www.filecrypt.cc/Container/249418E688.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd3a5b802bb)
@@ -17960,6 +17973,9 @@
     - [rutor](http://rutor.info/torrent/1030952/device-doctor-simulator-2024-v-1.01-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:e4ae9fbc106edf5d85e659a738c781d58e8a6a54&dn=rutor.info_Device+Doctor+Simulator+2024+%5Bv+1.01%5D+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3043245)
+  - Devices Tycoon Free Download | 2026-10-25 ([Source: SteamRIP](https://steamrip.com/devices-tycoon-free-download/))
+    - [bzzhr](https://bzzhr.to/3d42fzsind93)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha37/aa491ead85472526adbd/Devices.Tycoon-SteamRIP.com.rar)
   - Devil Inside Us: Roots of Evil | 2021-10-29 ([Source: Fitgirl](https://fitgirl-repacks.site/devil-inside-us-roots-of-evil/))
     - [1337x](https://1337x.to/torrent/5033385/Devil-Inside-Us-Roots-of-Evil-MULTi2-FitGirl-Repack-Selective-Download-from-4-7-GB/)
     - <a href="magnet:?xt=urn:btih:06D4438C5FF17901BE855361A9A5759AC42272EC&dn=Devil+Inside+Us%3A+Roots+of+Evil+%28MULTi2%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+4.7+GB%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -25741,6 +25757,13 @@
   - FINAL FANTASY IX Free Download (Build 5378074) | 2025-07-11 ([Source: SteamRIP](https://steamrip.com/final-fantasy-ix-free-download/))
     - [gofile](https://gofile.io/d/tFBwM6)
     - [buzzheavier](https://buzzheavier.com/7u77iytr94hz)
+  - FINAL FANTASY RESONANCE: Digital Deluxe Edition – v1.0.1.0 + 3 DLCs | 2026-10-25 ([Source: Fitgirl](https://fitgirl-repacks.site/final-fantasy-resonance/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b8b102e13e8b2ed1#EBA22u3CX5Gzph7Tti2EB6TYTjMV3ynEuGhQtwLNvYzx)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bb226e2c7ecc7ed9#96Lo1xamZfyPkJPH4jXgjHhaKUDxtKWR9cbFNP9FNsac)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?feb325b52334673c#5RqzjcQi6ZqPRssr5ujSe2NgsrTbHcSZkQDoPY7XnaDi)
+    - [1337x](https://1337x.to/torrent/6746124/FINAL-FANTASY-RESONANCE-Digital-Deluxe-Edition-v1-0-1-0-3-DLCs-MULTi8-FitGirl-Hypervisor-Repack/)
+    - <a href="magnet:?xt=urn:btih:BA34E9F8FB14A6EA2C759133DBC58BF729A7DCDA&dn=FINAL+FANTASY+RESONANCE%3A+Digital+Deluxe+Edition+%28v1.0.1.0+%2B+3+DLCs%2C+MULTi8%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3147088)
   - Final Fantasy Tactics The Ivalice Chronicles *Hypervisor* | 2025-11-17 ([Source: Elamigos](https://elamigos.site/data/Final_Fantasy_Tactics_The_Ivalice_Chronicles_MULTi4_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/34793F7B3F.html)
     - [keeplinks](https://www.keeplinks.org/p16/69d68df74f253)
@@ -30557,6 +30580,9 @@
       - [Grounded_Updates_from_v1.4.0.4495_to_v1.4.2.4535_by_ElAmigos.rar](https://filecrypt.cc/Container/5E5178159A.html)
       - [Grounded_Update_from_v1.4.2.4535_to_v1.4.3.4578_by_ElAmigos.rar](https://filecrypt.cc/Container/358E394FEA.html)
       - [Grounded_Update_from_v1.4.3.4578_to_v1.4.4.4634_by_ElAmigos.rar](https://filecrypt.cc/Container/3E7E6FC2DA.html)
+  - Groundwork Simulator Free Download | 2026-10-25 ([Source: SteamRIP](https://steamrip.com/groundwork-simulator-free-download/))
+    - [bzzhr](https://bzzhr.to/4rckadhnimzs)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha37/eafeb6d1baa35b8fb839/Groundwork.Simulator-SteamRIP.com.rar)
   - Grow Home | 2016-07-08 ([Source: Fitgirl](https://fitgirl-repacks.site/grow-home/))
     - <a href="magnet:?xt=urn:btih:CC1B87DA028862919E4C3AAB08ABA08099EDE0B2">Torrent</a>
     - [free-torrents](http://free-torrents.org/forum/viewtopic.php?t=205153)
@@ -45284,6 +45310,8 @@
     - **Updates**
       - [Moon.Mystery.Update.v1.07-TENOKE (2 parts)](https://filecrypt.cc/Container/780AF7EDE4.html)
       - [Moon.Mystery.Update.v1.2-TENOKE.rar](https://filecrypt.cc/Container/456E4F26CC.html)
+  - Moon Sweepers Free Download (Build 26179663 + Co-op) | 2026-10-25 ([Source: SteamRIP](https://steamrip.com/moon-sweepers-free-download/))
+    - [bzzhr](https://bzzhr.to/p83opc4l557n)
   - Moonglow Bay | 2021-10-27 ([Source: Fitgirl](https://fitgirl-repacks.site/moonglow-bay/))
     - [1337x](https://1337x.to/torrent/5031921/Moonglow-Bay-MULTi7-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:5749B248B7D089DBD805FD4413863578647CACB7&dn=Moonglow+Bay+%28MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2F46.148.18.250%3A2710&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2F9.rarbg.me%3A2730%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2770%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=http%3A%2F%2Fretracker.local%2Fannounce&tr=http%3A%2F%2Fretracker.ip.ncnet.ru%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce">Torrent</a>
@@ -50013,6 +50041,8 @@
     - <a href="magnet:?xt=urn:btih:4518c444a786a7cb2bd9e9280b035fa75338f10a&dn=One+Piece+-+Burning+Blood+%5BFitGirl+Repack%5D+TAP&tr=retracker.local/announce">Torrent</a>
     - [free-torrents](http://free-torrents.org/forum/viewtopic1.php?t=213896)
     - [paste2](http://paste2.org/2Z63ApgE)
+  - ONE PIECE: Grand Gourmet Free Download | 2026-10-25 ([Source: SteamRIP](https://steamrip.com/one-piece-grand-gourmet-free-download/))
+    - [bzzhr](https://bzzhr.to/r90ha4p3ul0w)
   - One Piece: Pirate Warriors 4 Deluxe Edition | 2023-09-14 ([Source: Elamigos](https://elamigos.site/data/One_Piece_Pirate_Warriors_4_Deluxe_Edition__ElAmigos_-_38wxJ0hP.html))
     - [filecrypt](https://www.filecrypt.cc/Container/D4BEB92E28.html)
     - [keeplinks](https://www.keeplinks.org/p16/5e7d62e8cfd16)
