@@ -1,5 +1,30 @@
 # Latest Games
 
+- Game Keeper: Somebody Messed Up My Shop! | 2026-10-31 ([Source: Fitgirl](https://fitgirl-repacks.site/game-keeper-somebody-messed-up-my-shop/))
+  - [datanodes](https://datanodes.to/a1zo2vyqwphn/Game_Keeper_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/vwaxbkc1v8rm#Game_Keeper_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/v07wuxr6guqf/Game_Keeper_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6750818/Game-Keeper-Somebody-Messed-Up-My-Shop-MULTi27-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:2CEE0054FB7E7290CD6EB1BAB21B097BF9814717&dn=Game+Keeper%3A+Somebody+Messed+Up+My+Shop%21+%28MULTi27%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1112342/game-keeper-somebody-messed-up-my-shop!-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:2cee0054fb7e7290cd6eb1bab21b097bf9814717&dn=rutor.info_Game+Keeper%3A+Somebody+Messed+Up+My+Shop%21+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3148218)
+- Phantom Blade Zero: Deluxe Edition – v301524-17219 + 2 DLCs | 2026-10-31 ([Source: Fitgirl](https://fitgirl-repacks.site/phantom-blade-zero/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2a808c7d62a611ce#4SoLPri6A5QMGnssBaWX762QSXiEmGKYcRoxf463W4Xb)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?99e460e2438a1459#36CYUqDBywuhLVUuoebSyT6RaWpC7bUkE2qDHTuKrpFV)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?8892f838c2c50c6a#43Ku3roJBPrqDJvpTodGYLLiWRbCkJE79ZD8FGoFaCTL)
+  - [1337x](https://1337x.to/torrent/6750181/Phantom-Blade-Zero-Deluxe-Edition-v301524-17219-2-DLCs-MULTi15-FitGirl-Hypervisor-Repack/)
+  - <a href="magnet:?xt=urn:btih:343CE937B1A5E819E3DEC27A3739C1ED6D538E5B&dn=Phantom+Blade+Zero%3A+Deluxe+Edition+%28v301524-17219+%2B+2+DLCs%2C+MULTi15%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3148060)
+- Stygian: Outer Gods – v05b68d5f | 2026-10-30 ([Source: Fitgirl](https://fitgirl-repacks.site/stygian-outer-gods/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e8c44e9961a67971#8yyjSSYLwAa3SZkCkVeFehQ5xhJWuvLKjmbPTraHRy8W)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?305fbcc619fa9924#GoMx1AsrY3fJhrwuQkDLgBiT9U9fLWFX47V2eF2eyRz3)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?61f24cbabd1e09a3#68fy9qXvhRCDAnwnAADrcKSJxtfpd69YKZc7aEycpjad)
+  - [1337x](https://1337x.to/torrent/6750153/Stygian-Outer-Gods-v05b68d5f-MULTi8-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:9D137D0BFBCD7856B45E4FE159F347472D7D5C46&dn=Stygian%3A+Outer+Gods+%28v05b68d5f%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1112207/stygian-outer-gods-v-05b68d5f-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:9d137d0bfbcd7856b45e4fe159f347472d7d5c46&dn=rutor.info_Stygian%3A+Outer+Gods+%5Bv+05b68d5f%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3148052)
 - Princess Maker: Children of Revelation | 2026-10-30 ([Source: Fitgirl](https://fitgirl-repacks.site/princess-maker-children-of-revelation/))
   - [datanodes](https://datanodes.to/esgstykyl7zf/Princess_Maker_Children_of_Revelation_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/tp1ztlajufjo#Princess_Maker_Children_of_Revelation_--_fitgirl-repacks.site_--_.rar)
@@ -116,10 +141,3 @@
 - Mutant Football League 2 Free Download | 2026-10-27 ([Source: SteamRIP](https://steamrip.com/mutant-football-league-2-free-download/))
   - [bzzhr](https://bzzhr.to/yopxs5t841hx)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha38/4c860e8414ccc0bcb9dc/Mutant.Football.League.2-SteamRIP.com.rar)
-- Parasite Free Download | 2026-10-27 ([Source: SteamRIP](https://steamrip.com/parasite-free-download/))
-  - [bzzhr](https://bzzhr.to/hlo2183k161g)
-- Golden Swirl Free Download | 2026-10-27 ([Source: SteamRIP](https://steamrip.com/golden-swirl-free-download/))
-  - [bzzhr](https://bzzhr.to/jlfqhjdgt3zm)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha38/4f5ba5c331f0e59af150/Golden.Swirl-SteamRIP.com.rar)
-- Do No Harm Free Download | 2026-10-27 ([Source: SteamRIP](https://steamrip.com/do-no-harm-free-download/))
-  - [bzzhr](https://bzzhr.to/1rbgyjhwb2xf)
