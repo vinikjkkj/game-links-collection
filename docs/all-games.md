@@ -14712,6 +14712,13 @@
     - [gofile](https://gofile.io/d/nvOoCQWl)
     - [bzzhr](https://bzzhr.to/6qa1smzxzp57)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha40/6cb4a59814616369d1eb/Croc.2.Kingdom.of.the.Gobbos-SteamRIP.com.rar)
+  - Croc 2: Kingdom of the Gobbos | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/croc-2-kingdom-of-the-gobbos/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f258739a4383c099#6KLrvU9yAywFUd8euwFgti7uyvKheLhRaqTtWF69zAhx)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5274aa0873f19f83#6aoWppAeLirodAbDnfKpx7t3xiWBRizUeqHzAbTp5fXM)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?51a5e365f099bf30#C3tY4Rzoef5ozLT4trmZPPkqPrAu6rBC1xtRLc1N45Zo)
+    - [1337x](https://1337x.to/torrent/6751442/Croc-2-Kingdom-of-the-Gobbos-MULTi5-FitGirl-Repack-Selective-Download-from-2-6-GB/)
+    - <a href="magnet:?xt=urn:btih:0080FC31509410114CF37975FA97574E9D1A534E&dn=Croc+2%3A+Kingdom+of+the+Gobbos+%28MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+2.6+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3148404)
   - Croc Legend of the Gobbos Remastered | 2025-10-17 ([Source: Elamigos](https://elamigos.site/data/Croc_Legend_of_the_Gobbos_Remastered_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/EBCBC020D4.html)
     - [keeplinks](https://www.keeplinks.org/p16/67ed834a15e92)
@@ -21935,6 +21942,15 @@
     - **Updates**
       - [Ecosystem.Update.v1.1.incl.DLC-TENOKE.rar](https://filecrypt.cc/Container/96F6E94DC7.html)
       - [Ecosystem.Update.v1.12-TENOKE.rar](https://filecrypt.cc/Container/B7D63FDCCE.html)
+  - Ecstatica (Remastered) + Bonus OST | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/ecstatica/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f77351874f176e23#G5UJKZMXNzSLDH9VWF8H6VGcJSREmBseQ9WSzzcqgKxf)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6dc4b834ef24d171#FKuLh3F8X8RjPpSm1JykCLzXiVVDYFhMqeA7L2SLeKrC)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d8bac7e0292f1563#3iCUTzEkSkykgRmdH79zKCXtTmrifjqtYm1dJ58tJc46)
+    - [1337x](https://1337x.to/torrent/6751782/Ecstatica-Remastered-Bonus-OST-MULTi10-FitGirl-Repack-Selective-Download-from-866-MB/)
+    - <a href="magnet:?xt=urn:btih:D898E597AB7B61ECAE12815142B19429A3E8E178&dn=Ecstatica+%28Remastered+%2B+Bonus+OST%2C+MULTi10%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+866+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1112581/ecstatica-remastered-dlc-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:d898e597ab7b61ecae12815142b19429a3e8e178&dn=rutor.info_Ecstatica+%28Remastered%29+%5B%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3148522)
   - Ecstatica Free Download | 2026-10-29 ([Source: SteamRIP](https://steamrip.com/ecstatica-free-download/))
     - [gofile](https://gofile.io/d/lNdcUs0T)
     - [bzzhr](https://bzzhr.to/nhtpical9gyo)
@@ -31806,6 +31822,13 @@
   - Harvest Moon: Echoes of Teradea Free Download | 2026-10-16 ([Source: SteamRIP](https://steamrip.com/harvest-moon-echoes-of-teradea-free-download/))
     - [bzzhr](https://bzzhr.to/skg3tlop91ef)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha32/593a603db0b5b53b5180/Harvest.Moon.Echoes.of.Teradea-SteamRIP.com.rar)
+  - Harvest Moon: Echoes of Teradea – v1.3.0 + 2 DLCs | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/harvest-moon-echoes-of-teradea/))
+    - [datanodes](https://datanodes.to/uallcid5q9uj/Harvest_Moon_Echoes_of_Teradea_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/0partcggm03m#Harvest_Moon_Echoes_of_Teradea_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/w2cgpkcr5on6/Harvest_Moon_Echoes_of_Teradea_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6751762/Harvest-Moon-Echoes-of-Teradea-v1-3-0-2-DLCs-MULTi7-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:95A59218A053ED912D1C9352D32E80DA3DFD73DA&dn=Harvest+Moon%3A+Echoes+of+Teradea+%28v1.3.0+%2B+2+DLCs%2C+MULTi7%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rin](https://cs.rin.ru/forum/viewtopic.php?f=10&t=162189)
   - Harvest Moon: Home Sweet Home Special Edition – v1.1 Build 538 | 2025-11-03 ([Source: Fitgirl](https://fitgirl-repacks.site/harvest-moon-home-sweet-home-special-edition/))
     - [datanodes](https://datanodes.to/e49n6cg8qfnj/Harvest_Moon_Home_Sweet_Home_SE_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/jwk67afi75n5#Harvest_Moon_Home_Sweet_Home_SE_--_fitgirl-repacks.site_--_.rar)
@@ -34206,6 +34229,15 @@
   - Hunting Simulator 3 Free Download | 2026-10-29 ([Source: SteamRIP](https://steamrip.com/hunting-simulator-3-free-download/))
     - [gofile](https://gofile.io/d/4ZTWmISY)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha39/130a9f9f51fefb4350cd/Hunting.Simulator.3-SteamRIP.com.rar)
+  - Hunting Simulator 3: Apex Predator Edition – v1.0.0-451.118880 + 2 DLCs | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/hunting-simulator-3/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f9991a7170d83871#8jjCsj5gWGRw4Ha14StYhCoNfK2RaL6jsVACFZ4WKMMp)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2d1ec6a8ec318d84#EtV3UjRZYR3A5YyVNU4vUq4N1a3k3hHjxfZEdd3gF6EC)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7a1db4cc31453c89#7AYJ9KwQzHyJt4b6Cdf8pKboeogaqRritLcb3uedsF1P)
+    - [1337x](https://1337x.to/torrent/6751867/Hunting-Simulator-3-Apex-Predator-Edition-v1-0-0-451-118880-2-DLCs-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:9BF2D4AC76CE6E9521BB8112AF89F39A93344A01&dn=Hunting+Simulator+3%3A+Apex+Predator+Edition+%28v1.0.0-451.118880+%2B+2+DLCs%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1112631/hunting-simulator-3-apex-predator-edition-v-1.0.0-451.118880-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:9bf2d4ac76ce6e9521bb8112af89f39a93344a01&dn=rutor.info_Hunting+Simulator+3%3A+Apex+Predator+Edition+%5Bv+1.0.0-451.118880+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3148593)
   - Hunting Simulator – v1.2 + DLC | 2018-04-21 ([Source: Fitgirl](https://fitgirl-repacks.site/hunting-simulator/))
     - [1337x](http://1337x.to/torrent/2941435/Hunting-Simulator-v1-2-DLC-MULTi12-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:1AE8DDD34BE3F7EF4164B604E44370E7C3E33838">Torrent</a>
@@ -67139,6 +67171,15 @@
   - Static Dread: The Submarine Free Download | 2026-10-05 ([Source: SteamRIP](https://steamrip.com/static-dread-the-submarine-free-download/))
     - [bzzhr](https://bzzhr.to/5zxwa7by0pz8)
     - [fileditchfiles](https://fileditchfiles.st/alpha34/d1a0043e55952bd1135b/Static_Dread_The_Submarine-SteamRIP.com.rar)
+  - Static Dread: The Submarine – Deluxe Edition, Build 20260917T1313Z + 3 DLCs/Bonuses | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/static-dread-the-submarine/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5ff789a9458c3baa#3t2ciAGhPKRPWnifk7zLopmH2tiwS7nyz1fBaS2q5qEc)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4ad9487af927805e#FjVV5U9Z9LS1v4S1RVYnA7h2Kp56hdqdhQ7Kdtwi7377)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?99e1ba6f081d6cce#42gDWR9UyodAmseTAAacSFMxeuudkkbu9X6qbwRsf8Ss)
+    - [1337x](https://1337x.to/torrent/6751794/Static-Dread-The-Submarine-Deluxe-Edition-Build-20260917T1313Z-3-DLCs-Bonuses-MULTi9-FitGirl-Repack-Selective-Download-from-638-MB/)
+    - <a href="magnet:?xt=urn:btih:5CB1D03EB2A7580652ADDAAFFA328B7967B84E97&dn=Static+Dread%3A+The+Submarine+-+Deluxe+Edition+%28Build+20260917T1313Z+%2B+3+DLCs%2FBonuses%2C+MULTi9%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+638+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1112593/static-dread-the-submarine-deluxe-edition-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:5cb1d03eb2a7580652addaaffa328b7967b84e97&dn=rutor.info_Static+Dread%3A+The+Submarine+-+Deluxe+Edition+%5B%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3148537)
   - Station to Station | 2024-06-07 ([Source: Elamigos](https://elamigos.site/data/Station_to_Station_MULTi22_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/DE06802AD4.html)
     - [keeplinks](https://www.keeplinks.org/p16/651ef1f5f1639)
