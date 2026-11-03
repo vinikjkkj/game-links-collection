@@ -1,5 +1,14 @@
 # Latest Games
 
+- Probably Stolen: Cyberpunk Shopkeeper Sim, v1.00-REV2 + Bonus OST | 2026-11-03 ([Source: Fitgirl](https://fitgirl-repacks.site/probably-stolen-cyberpunk-shopkeeper-sim/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4f16ed7534bd1a24#GQ17oaob5eWkofw5XrEfcCb5wSejzan47fGebu9k4DXj)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b08f4bee4298e662#Bu4Mej3WBtk2LkfVJ28uijvKCr1NNvcsDitPV1hvcAyB)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d450b9e2085ae48e#6g4QBJ3snDJ9sZA7nQxuZhHrPoSNeuvMNkCB3nP51N9Q)
+  - [1337x](https://1337x.to/torrent/6752425/Probably-Stolen-Cyberpunk-Shopkeeper-Sim-v1-00-REV2-Bonus-OST-MULTi8-FitGirl-Repack-Selective-Download-from-324-MB/)
+  - <a href="magnet:?xt=urn:btih:318E115259F2694A76BDC313C895DC3784066FBE&dn=Probably+Stolen%3A+Cyberpunk+Shopkeeper+Sim+%28v1.00-REV2+%2B+Bonus+OST%2C+MULTi8%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+324+MB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1112768/probably-stolen-cyberpunk-shopkeeper-sim-v-1.00-rev2-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:318e115259f2694a76bdc313c895dc3784066fbe&dn=rutor.info_Probably+Stolen%3A+Cyberpunk+Shopkeeper+Sim+%5Bv+1.00-REV2%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3148829)
 - Hunting Simulator 3: Apex Predator Edition – v1.0.0-451.118880 + 2 DLCs | 2026-11-02 ([Source: Fitgirl](https://fitgirl-repacks.site/hunting-simulator-3/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?f9991a7170d83871#8jjCsj5gWGRw4Ha14StYhCoNfK2RaL6jsVACFZ4WKMMp)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2d1ec6a8ec318d84#EtV3UjRZYR3A5YyVNU4vUq4N1a3k3hHjxfZEdd3gF6EC)
@@ -148,7 +157,3 @@
   - [gofile](https://gofile.io/d/czpypYpR)
   - [bzzhr](https://bzzhr.to/wjqwx8p56acr)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha39/ca89b63526eacdb7d013/HYPNOS-SteamRIP.com.rar)
-- Terrible Lizards Free Download | 2026-10-29 ([Source: SteamRIP](https://steamrip.com/terrible-lizards-free-download/))
-  - [gofile](https://gofile.io/d/zjsOcQ1r)
-  - [bzzhr](https://bzzhr.to/83nsvzibdwm5)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha39/31a085ed22635e2debae/Terrible.Lizards-SteamRIP.com.rar)
