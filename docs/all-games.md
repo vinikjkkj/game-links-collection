@@ -13975,6 +13975,15 @@
   - COP BASTARD Free Download | 2026-11-01 ([Source: SteamRIP](https://steamrip.com/cop-bastard-free-download/))
     - [bzzhr](https://bzzhr.to/nf3h7jt98dl1)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha40/cc1f6cd15131b1e4c1eb/COP_BASTARD-SteamRIP.com.rar)
+  - COP BASTARD – v1.00b3 | 2026-11-03 ([Source: Fitgirl](https://fitgirl-repacks.site/cop-bastard/))
+    - [datanodes](https://datanodes.to/bv8k2gp24pqu/COP_BASTARD_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/aczipk0v8yra#COP_BASTARD_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/n8evszzbar9c/COP_BASTARD_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6752465/COP-BASTARD-v1-00b3-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:DE9502922AE918704691592AC7AEA6B6AAE5404F&dn=COP+BASTARD+%28v1.00b3%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1112778/cop-bastard-v-1.00b3-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:de9502922ae918704691592ac7aea6b6aae5404f&dn=rutor.info_COP+BASTARD+%5Bv+1.00b3%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3148834)
   - COPA CITY Free Download | 2026-06-18 ([Source: SteamRIP](https://steamrip.com/copa-city-free-download/))
     - [gofile](https://gofile.io/d/0xToJk)
     - [bzzhr](https://bzzhr.to/jqoatkr9q2b7)
@@ -15271,6 +15280,9 @@
     - <a href="magnet:?xt=urn:btih:be96c4e61a308db17d56241b9a32876cfd1d1b7b&dn=rutor.info_Curse+of+Anabelle+%282020%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.org:2710&tr=udp://opentor.org:2710&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2659828)
     - [paste2](https://paste2.org/mxDc1ZDG)
+  - Curse of Resthaven Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/curse-of-resthaven-free-download/))
+    - [bzzhr](https://bzzhr.to/ntc75yikz759)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/9e11eb1e152b65232afb/Curse.of.Resthaven-SteamRIP.com.rar)
   - Curse of the Dead Gods | 2021-04-14 ([Source: Elamigos](https://elamigos.site/data/Curse_of_the_Dead_Gods_MULTi11_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/6291FB9FE1.html)
     - [keeplinks](https://www.keeplinks.org/p16/60369bed31e74)
@@ -20288,6 +20300,10 @@
     - [rutor](http://rutor.info/torrent/1041246/dread-the-cold-case-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:af6f549074eae7d0a5ee9629bbd1395a06769651&dn=rutor.info_Dread%3A+The+Cold+Case+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3058774)
+  - Dreadful River Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/dreadful-river-free-download/))
+    - [gofile](https://gofile.io/d/gqr4ntzY)
+    - [bzzhr](https://bzzhr.to/wpz2kl789hih)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/22652bdef77ae7619b70/Dreadful.River-SteamRIP.com.rar)
   - Dreadful River – v1.0.0 | 2026-03-02 ([Source: Fitgirl](https://fitgirl-repacks.site/dreadful-river/))
     - [1337x](https://1337x.to/torrent/6597442/Dreadful-River-v1-0-0-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:5B3F9BB4FB2AC1D18046C1C57292A1BCE54BEA8A&dn=Dreadful+River+%28v1.0.0%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -29567,6 +29583,9 @@
     - [1337x](https://1337x.to/torrent/5873741/Godzilla-Voxel-Wars-v1-0-0-W52-MULTi4-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:535580FA24F06F5DD173D546681BA3062F0B5A98&dn=Godzilla+Voxel+Wars+%28v1.0.0-W52%2C+MULTi4%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](http://tapochek.net/viewtopic.php?p=2947357)
+  - Godzilla: Destroy All Monsters Melee Remastered Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/godzilla-destroy-all-monsters-melee-remastered-free-download/))
+    - [bzzhr](https://bzzhr.to/6em0dyemuxa1)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/25d14417cb3bd81402ff/Godzilla.Destroy.All.Monsters.Melee.Remastered-SteamRIP.com.rar)
   - gogh: Focus with Your Avatar Free Download (v2.4.1) | 2025-11-23 ([Source: SteamRIP](https://steamrip.com/gogh-focus-with-your-avatar-free-download/))
     - [gofile](https://gofile.io/d/hysqXi)
     - [megadb](https://megadb.net/q4j9jgbl9gt4)
