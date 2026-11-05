@@ -40202,6 +40202,15 @@
     - [1337x](https://1337x.to/torrent/6201570/LightRay-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:42F64E1F792491E6754C0707B32576A68BF40A1F&dn=LightRay+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=2995824)
+  - Lightyear Frontier & Soundtrack Bundle – v1.0.2540 + 2 DLCs/Bonuses | 2026-11-05 ([Source: Fitgirl](https://fitgirl-repacks.site/lightyear-frontier/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b3d6be6ccef9a7d0#R42CcWkWWA4w7aH12vcfvh1bmuuvNeDfkaj4H3HZ5mC)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6c4971ed2294e6d7#4YBSFkeHJ4td1LQR4V3KoR34L5Rbbz2tYrKSse1hcTqp)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b75cc3cdddbd424e#DmgnS9cd5Kxgj3Vu5L3YbP3usTMYc5ksCg5x1d4KYcJ9)
+    - [1337x](https://1337x.to/torrent/6753824/Lightyear-Frontier-Soundtrack-Bundle-v1-0-2540-2-DLCs-Bonuses-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:905B9C4E60E785092ABDF143185E2161C6BFE68B&dn=Lightyear+Frontier+%26amp%3B+Soundtrack+Bundle+%28v1.0.2540+%2B+2+DLCs%2FBonuses%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1113093/lightyear-frontier-soundtrack-bundle-v-1.0.2540-dlcs-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:905b9c4e60e785092abdf143185e2161c6bfe68b&dn=rutor.info_Lightyear+Frontier+%26+Soundtrack+Bundle+%5Bv+1.0.2540+%2B+DLC%27s%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149140)
   - Lightyear Frontier Free Download (v0.5.1770) | 2025-09-17 ([Source: SteamRIP](https://steamrip.com/lightyear-frontier-free-download/))
     - [megadb](https://megadb.net/1f0caq6s79hv)
   - Like a Dragon Gaiden The Man Who Erased His Name Deluxe Edition *Hypervisor* | 2025-03-24 ([Source: Elamigos](https://elamigos.site/data/Like_a_Dragon_Gaiden_The_Man_Who_Erased_His_Name_MULTi11_-_ElAmigos.html))
@@ -49250,6 +49259,9 @@
   - NoLimits 2 Roller Coaster Simulation Free Download | 2026-08-08 ([Source: SteamRIP](https://steamrip.com/nolimits-2-roller-coaster-simulation-free-download/))
     - [bzzhr](https://bzzhr.to/oc5e33o30ix1)
     - [fileditchfiles](https://fileditchfiles.st/balpha2/3463451868130315ac2d/NoLimits.2.Roller.Coaster.Simulation-SteamRIP.com.rar)
+  - Nomad Drive Free Download (v1.0.1) | 2026-11-05 ([Source: SteamRIP](https://steamrip.com/nomad-drive-free-download/))
+    - [itsfileditchfiles](https://itsfileditchfiles.st/alpha41/973f85d5aca6a7054040/Nomad-Drive-SteamRIP.com.rar)
+    - [megadb](https://megadb.net/9defd143e494de2c)
   - Nomad Idle Free Download (v1.0.0c) | 2025-04-06 ([Source: SteamRIP](https://steamrip.com/nomad-idle-free-download/))
     - [megadb](https://megadb.net/j7jrsr3q10qg)
   - Nomad Survival Free Download (v1.0b) | 2024-03-11 ([Source: SteamRIP](https://steamrip.com/nomad-survival-free-download-n1/))
@@ -54264,6 +54276,8 @@
     - **Updates**
       - [POSTAL.Brain.Damaged.These.Sunny.Daze.Hotfix.2-RUNE.rar](https://filecrypt.cc/Container/170E584EEF.html)
       - [POSTAL.Brain.Damaged.These.Sunny.Daze.Update.v20251216-RUNE (2 parts)](https://filecrypt.cc/Container/F5CC0442EF.html)
+  - Potato Please Free Download (v1.0.2) | 2026-11-05 ([Source: SteamRIP](https://steamrip.com/potato-please-free-download/))
+    - [megadb](https://megadb.net/49f6e41d8259223c)
   - Potentia | 2021-03-01 ([Source: Elamigos](https://elamigos.site/data/Potentia_MULTi3_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/5AD15F19CC.html)
     - [keeplinks](https://www.keeplinks.org/p16/603fd45386307)
@@ -60952,6 +60966,15 @@
       - [Savara.Update.v1.1.2-TENOKE.rar](https://filecrypt.cc/Container/B9EBAF3D50.html)
       - [Savara.Update.v1.2.1-TENOKE.rar](https://filecrypt.cc/Container/30EB0DE250.html)
       - [Savara.Update.v1.2.2-TENOKE.rar](https://filecrypt.cc/Container/CFA8521220.html)
+  - SAVE AMANI | 2026-11-05 ([Source: Fitgirl](https://fitgirl-repacks.site/save-amani/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?506c854a427710b0#7fe47AHnXcVpxnS4rKffPvR17NbxjunJti7y5MT2ezsw)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?464e058a4dbd0291#FVtbmCf1ZKH4vJsfQ8kc38zuGoG53wYo2coLjYua9x2h)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?110a69e34f8746cd#B6bVJzpvicQRXH2jbjqkYBYhe3wJFPPSx3nqa681LEBj)
+    - [1337x](https://1337x.to/torrent/6753743/SAVE-AMANI-MULTi13-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:57C8AEA298E9CC4B4EF1A97199A34A273C26BD30&dn=SAVE+AMANI+%28MULTi13%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1113083/save-amani-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:57c8aea298e9cc4b4ef1a97199a34a273c26bd30&dn=rutor.info_SAVE+AMANI+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149124)
   - SAVE AMANI Free Download | 2026-10-08 ([Source: SteamRIP](https://steamrip.com/save-amani-free-download/))
     - [bzzhr](https://bzzhr.to/t7gn4b62lqr6)
     - [fileditchfiles](https://fileditchfiles.st/balpha28/74f53a3d66ba69c573fd/SAVE.AMANI-SteamRIP.com.rar)
@@ -63348,6 +63371,15 @@
     - [megadb](https://megadb.net/mt3tuiovrh93)
   - Silent Still 2 Free Download (Build 19238022) | 2026-01-15 ([Source: SteamRIP](https://steamrip.com/silent-still-2-free-download/))
     - [buzzheavier](https://buzzheavier.com/mk6oo94rgv55)
+  - Silica – v1.0.15 (Release) | 2026-11-05 ([Source: Fitgirl](https://fitgirl-repacks.site/silica/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bd001bc70cc18d52#GC5D2R96xaKyatnLwDKYrVdCCczf2UkuG7PvoYZtGJVm)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0b2ff28c8e283ec3#HatTb7pzUgZQ5WZz7Z3t8vSQ5AY2tZRxfShFEGJ8Y1M5)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0fd401aee7a266aa#HRXHchNcPqNuYemBuHuDVSUae2CoadJ9RPg1Y4gCVomU)
+    - [1337x](https://1337x.to/torrent/6753188/Silica-v1-0-15-Release-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:C77EF29C34CDD487E51B6E8337A52A644378F2C6&dn=Silica+%28v1.0.15%2FRelease%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1112956/silica-v-1.0.15-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:c77ef29c34cdd487e51b6e8337a52a644378f2c6&dn=rutor.info_Silica+%5Bv+1.0.15%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149008)
   - Silly Polly Beast – v0.97 | 2025-10-31 ([Source: Fitgirl](https://fitgirl-repacks.site/silly-polly-beast/))
     - [1337x](https://1337x.to/torrent/6516906/Silly-Polly-Beast-v0-97-MULTi10-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:C786A907B2E6FAC47D7197D09AC176EEA9DB0F9E&dn=Silly+Polly+Beast+%28v0.97%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
