@@ -10839,6 +10839,8 @@
     - [rutor](https://rutor.info/torrent/1054030/campus-life-2025-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:7e3c9d1e05b1af9055d7f08a4a8a2bd7f0c4388b&dn=rutor.info_Campus+Life+%282025%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3077518)
+  - Can ‘Em All Free Download | 2026-11-06 ([Source: SteamRIP](https://steamrip.com/can-em-all-free-download/))
+    - [megadb](https://megadb.net/5ccadcf3bd4b7e19)
   - Candle | 2016-11-12 ([Source: Fitgirl](https://fitgirl-repacks.site/candle/))
     - [extratorrent](http://extratorrent.cc/torrent/5289747)
     - <a href="magnet:?xt=urn:btih:5d0df0b58a17f603080395aa02cc9a7fee2137e5">Torrent</a>
@@ -23675,6 +23677,15 @@
   - Every Day We Fight Free Download | 2026-10-24 ([Source: SteamRIP](https://steamrip.com/every-day-we-fight-free-download/))
     - [bzzhr](https://bzzhr.to/d43vxosu668c)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha36/adebf646566504312e86/Every.Day.We.Fight-SteamRIP.com.rar)
+  - Every Day We Fight – v1.0 (Release) | 2026-11-06 ([Source: Fitgirl](https://fitgirl-repacks.site/every-day-we-fight/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3db98184a03d993e#41yJtj7XREKoeHbmFghSLMijDn7mLBEJhFEenFakGL5T)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fe54475d0536258f#AwGgPJpWw7gpPoCzu7gSWaUWPK2f83mjw6bm6TeL5vBK)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?ece99aa7286c6e19#FH4xAhMPc6cT9XqN1gQUjCvygPG78GVrVonkbtSFcNt5)
+    - [1337x](https://1337x.to/torrent/6754687/Every-Day-We-Fight-v1-0-Release-MULTi11-FitGirl-Repack-Selective-Download-from-3-7-GB/)
+    - <a href="magnet:?xt=urn:btih:33D9ABCABCA1BBB84F206FAE50C7FA56118FEEA7&dn=Every+Day+We+Fight+%28v1.0%2FRelease%2C+MULTi11%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+3.7+GB%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1113244/every-day-we-fight-v-1.0-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:33d9abcabca1bbb84f206fae50c7fa56118feea7&dn=rutor.info_Every+Day+We+Fight+%5Bv+1.0%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149246)
   - Everybodys Golf Hot Shots | 2025-12-11 ([Source: Elamigos](https://elamigos.site/data/Everybodys_Golf_Hot_Shots_MULTi9_-_ElAmigos.html))
     - [filecrypt](https://filecrypt.cc/Container/0185608F0D.html)
     - [keeplinks](https://www.keeplinks.org/p16/68bb177b1a395)
@@ -29586,6 +29597,15 @@
   - Godzilla: Destroy All Monsters Melee Remastered Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/godzilla-destroy-all-monsters-melee-remastered-free-download/))
     - [bzzhr](https://bzzhr.to/6em0dyemuxa1)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/25d14417cb3bd81402ff/Godzilla.Destroy.All.Monsters.Melee.Remastered-SteamRIP.com.rar)
+  - Godzilla: Destroy All Monsters Melee Remastered – Digital Deluxe Edition + DLC | 2026-11-05 ([Source: Fitgirl](https://fitgirl-repacks.site/godzilla-destroy-all-monsters-melee-remastered/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?cd8ab3ce3e91756a#G5aQMKoURt26GH8fZjeXjBrhtsNaDBhMoYPycHxB7BL3)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?3bf2ac6156360032#4G5R5ezdv3JsMmg8qPLrWeD7k2D7Y6qV1DuN8weYN11Y)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?4252cd945c45b526#6F4kWi4Vf8eirAnARcNFWEDuwbJY4LrQGWjxPpo9DWd2)
+    - [1337x](https://1337x.to/torrent/6753967/Godzilla-Destroy-All-Monsters-Melee-Remastered-Digital-Deluxe-Edition-DLC-MULTi9-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:55A143111A82E5EFD3F0AD526918CE8F1DC4412C&dn=Godzilla%3A+Destroy+All+Monsters+Melee+Remastered+-+Digital+Deluxe+Edition+%28%2B+DLC%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149152)
+    - **Updates**
+      - [Godzilla_Destroy_All_Monsters_Melee_Remastered_Update_04.11.2026-ElAmigos.rar](https://filecrypt.cc/Container/835839488F.html)
   - gogh: Focus with Your Avatar Free Download (v2.4.1) | 2025-11-23 ([Source: SteamRIP](https://steamrip.com/gogh-focus-with-your-avatar-free-download/))
     - [gofile](https://gofile.io/d/hysqXi)
     - [megadb](https://megadb.net/q4j9jgbl9gt4)
@@ -34044,6 +34064,8 @@
     - [keeplinks](https://www.keeplinks.org/p16/65d1f9c4225a7)
     - [filecrypt](https://www.filecrypt.cc/Container/0385E7E9EB.html)
     - [keeplinks](https://www.keeplinks.org/p16/65d1f9b9f1330)
+  - Hull Rupture Free Download | 2026-11-06 ([Source: SteamRIP](https://steamrip.com/hull-rupture-free-download/))
+    - [megadb](https://megadb.net/235fbe4f4789793f)
   - Human Fast Food | 2025-04-29 ([Source: Fitgirl](https://fitgirl-repacks.site/human-fast-food/))
     - [1337x](https://1337x.to/torrent/6391061/Human-Fast-Food-MULTi5-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:BF949B2EE5BF234CB3FB58E68C6E14939179CF00&dn=Human+Fast+Food+%28MULTi5%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=udp%3A%2F%2Fexplodie.org%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Fbt2.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fbt1.archive.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.filemail.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker1.bt.moack.co.kr%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
@@ -65152,6 +65174,15 @@
   - Sort The Capybaras Free Download | 2026-10-09 ([Source: SteamRIP](https://steamrip.com/sort-the-capybaras-free-download/))
     - [bzzhr](https://bzzhr.to/an0frjeqt5c4)
     - [fileditchfiles](https://fileditchfiles.st/balpha28/e05d9073069b447594bf/Sort.The.Capybaras-SteamRIP.com.rar)
+  - Sort The Capybaras – v1.02 | 2026-11-06 ([Source: Fitgirl](https://fitgirl-repacks.site/sort-the-capybaras/))
+    - [datanodes](https://datanodes.to/p24zxaro5tpc/Sort_The_Capybaras_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/zqjrsob3gfbw#Sort_The_Capybaras_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/v8s0ctnpoxj0/Sort_The_Capybaras_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6754597/Sort-The-Capybaras-v1-02-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:DBC76E8E4A4C60D7B6E56BB4A961FA28AE652A61&dn=Sort+The+Capybaras+%28v1.02%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1113238/sort-the-capybaras-v-1.02-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:dbc76e8e4a4c60d7b6e56bb4a961fa28ae652a61&dn=rutor.info_Sort+The+Capybaras+%5Bv+1.02%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3149226)
   - Sort Them Ducks Free Download | 2026-08-14 ([Source: SteamRIP](https://steamrip.com/sort-them-ducks-free-download/))
     - [bzzhr](https://bzzhr.to/wkmu35eyxb35)
   - SOS OPS! Free Download | 2026-10-09 ([Source: SteamRIP](https://steamrip.com/sos-ops-free-download/))
