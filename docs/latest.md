@@ -1,5 +1,21 @@
 # Latest Games
 
+- Road Rash: 30th Anniversary Edition | 2026-11-09 ([Source: Fitgirl](https://fitgirl-repacks.site/road-rash-30th-anniversary-edition/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2f5a26f2e5284344#9QKz8AZKBUswjD4xPfbVtRf9RJ2pf2HhEAPJTnF6PcB8)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?e66deeb7c073d2e9#2JQtxvrK9E3ujwYhvYkmfUkP4pGmVKWMCdTRJZJFGj4Q)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0196665e2316f687#FguEsSxky4aXZdjHxTgYRwUuLeBih4DY7McxVYzbGjNj)
+  - [1337x](https://1337x.to/torrent/6756642/Road-Rash-30th-Anniversary-Edition-MULTi5-FitGirl-Repack-Selective-Download-from-1-3-GB/)
+  - <a href="magnet:?xt=urn:btih:5ADB3D60F237F3796CDF942FF2F87F7D2ACB0C52&dn=Road+Rash%3A+30th+Anniversary+Edition+%28MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+1.3+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3149690)
+- Playrooms | 2026-11-09 ([Source: Fitgirl](https://fitgirl-repacks.site/playrooms/))
+  - [datanodes](https://datanodes.to/k3gvmyt2ou65/Playrooms_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/c9f99v0k93rs#Playrooms_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/hw0q7ujayf2j/Playrooms_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6756483/Playrooms-MULTi6-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:0DC566E7124F045C6AEB1445B3E7838340125D39&dn=Playrooms+%28MULTi6%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3149642)
+- Casualties: Unknown Free Download | 2026-11-09 ([Source: SteamRIP](https://steamrip.com/casualties-unknown-free-download/))
+  - [megadb](https://megadb.net/d140b09cbe62b425)
 - Bluey’s Happy Snaps | 2026-11-08 ([Source: Fitgirl](https://fitgirl-repacks.site/blueys-happy-snaps/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fb0fc9d8957c071f#HbHetz9jqjwR3RFZ4u7ntXfnFH5RYQepBGmUMK4E2oXd)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bd31f4c44b7932f3#H3fjjpydZXYtuMWguX8Bv3RQQfbTBYjkTwM8aq5682ED)
@@ -136,13 +152,3 @@
   - [rutor](https://rutor.info/torrent/1112956/silica-v-1.0.15-2026-pc-repack-ot-fitgirl)
   - <a href="magnet:?xt=urn:btih:c77ef29c34cdd487e51b6e8337a52a644378f2c6&dn=rutor.info_Silica+%5Bv+1.0.15%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
   - [tapochek](https://tapochek.net/viewtopic.php?p=3149008)
-- Godzilla: Destroy All Monsters Melee Remastered Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/godzilla-destroy-all-monsters-melee-remastered-free-download/))
-  - [bzzhr](https://bzzhr.to/6em0dyemuxa1)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/25d14417cb3bd81402ff/Godzilla.Destroy.All.Monsters.Melee.Remastered-SteamRIP.com.rar)
-- Curse of Resthaven Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/curse-of-resthaven-free-download/))
-  - [bzzhr](https://bzzhr.to/ntc75yikz759)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/9e11eb1e152b65232afb/Curse.of.Resthaven-SteamRIP.com.rar)
-- Dreadful River Free Download | 2026-11-04 ([Source: SteamRIP](https://steamrip.com/dreadful-river-free-download/))
-  - [gofile](https://gofile.io/d/gqr4ntzY)
-  - [bzzhr](https://bzzhr.to/wpz2kl789hih)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha42/22652bdef77ae7619b70/Dreadful.River-SteamRIP.com.rar)
