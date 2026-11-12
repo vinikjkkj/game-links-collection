@@ -20531,6 +20531,15 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?a9d151f4f4120386#8oU41ue7AbDN6Jn2qFrSS1aiFY8CvnEZA1xSNQ7ZMQos)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?b3f75b4b6bc350e9#db86xt2ZUPM9KJwe4fTm7TNQrihMb7ny6Uy7GZmu6kT)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?14d11c5cd6b07f7a#2exjnLb4a963TJeyXXyqGMBnjqaSQijp68UoPxuS8Acn)
+  - DreamWorks Shrek 2 Remastered | 2026-11-12 ([Source: Fitgirl](https://fitgirl-repacks.site/dreamworks-shrek-2-remastered/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bbc47df3c2673ccf#F8b5YB8FLwqL7s23fk9ffDo1GCpLUwjGCTGJKhrsKuj6)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?604b825ad32b9477#CQb1Jyrvyv3TvotHBowsac3NJu9zwLjQWVXUwF2QDkX1)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?d4e13ffb4b6c7f04#G1sXGy6UMBm9PAf7DWxfodsaoAQ4o1DoU7NLxXPREMLT)
+    - [1337x](https://1337x.to/torrent/6758204/DreamWorks-Shrek-2-Remastered-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6563D3732C0EFB9075F1D8E1BAB167D720A61B22&dn=DreamWorks+Shrek+2+Remastered+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969&tr=udp%3A%2F%2Fopentor.org%3A2710&tr=http%3A%2F%2Ft.nyaatracker.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ffe.dealclub.de%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Fipv4.tracker.harry.lu%3A80%2Fannounce&tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&tr=udp%3A%2F%2Fretracker.lanta-net.ru%3A2710%2Fannounce&tr=udp%3A%2F%2Ftracker.moeking.me%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.tiny-vps.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1113986/dreamworks-shrek-2-remastered-build-26290483-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:6563d3732c0efb9075f1d8e1bab167d720a61b22&dn=rutor.info_DreamWorks+Shrek+2+Remastered+%5BBuild+26290483%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?t=290867)
   - DreamWorks Shrek 2 Remastered Free Download | 2026-11-11 ([Source: SteamRIP](https://steamrip.com/dreamworks-shrek-2-remastered-free-download/))
     - [bzzhr](https://bzzhr.to/uestndyxg527)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha46/dfb7d6e9504a29111327/DreamWorks.Shrek.2.Remastered-SteamRIP.com.rar)
@@ -21603,6 +21612,10 @@
     - [tapochek](https://tapochek.net/viewtopic.php?p=3112068)
     - **Updates**
       - [EA.SPORTS.FC.26.CRACKFIX_2-DenuvOwO.rar](https://filecrypt.cc/Container/AA0219F04E.html)
+  - EA SPORTS FC 27 Free Download (v1.2.0) | 2026-11-12 ([Source: SteamRIP](https://steamrip.com/ea-sports-fc-27-free-download/))
+    - [gofile](https://gofile.io/d/GvlXdIg7)
+    - [itsfileditchfiles](https://itsfileditchfiles.st/alpha43/95f50494dfcb3bc41f22/SPORTS-FC-27-SteamRIP.com.rar)
+    - [bzzhr](https://bzzhr.to/jkiu9jf8hmub)
   - EA SPORTS FC 27 – v1.0.1/v1.0.140.52122 [Monkey Repack] | 2026-09-28 ([Source: Fitgirl](https://fitgirl-repacks.site/ea-sports-fc-27/))
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?90e7a38c48fe50e8#AGdUV4UEgHZn1nnGDb4hiLz8Gtrh7gM3U5bWfzQxPpiU)
     - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5a9ffde2c68eef5b#A8WTUmDpMWJfaX4csBBPKa77phjpVgNk8HeRAYtjvTeC)
@@ -34403,6 +34416,13 @@
     - [microsoft](https://store-images.microsoft.com/image/apps.17938.9007199266246737.7c11498b-e4cf-4d24-b035-96a2e919bb9f.7392b9a8-dd9c-41a5-b9bb-3d37305ff11d)
     - [microsoft](https://store-images.microsoft.com/image/apps.25308.9007199266246737.10239df4-850d-4295-95aa-0f1d87ced090.851de370-c9b4-4c78-8eec-088d93757a7c)
     - [bzzhr](https://bzzhr.to/lmd1tl7zguy4)
+  - Hydro Thunder Hurricane – v1.2.0.0 | 2026-11-12 ([Source: Fitgirl](https://fitgirl-repacks.site/hydro-thunder-hurricane/))
+    - [datanodes](https://datanodes.to/vgf0us5482uw/Hydro_Thunder_Hurricane_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/dfs9a16nnm6p#Hydro_Thunder_Hurricane_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/1d3alkn5oma6/Hydro_Thunder_Hurricane_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6758719/Hydro-Thunder-Hurricane-v1-2-0-0-MULTi8-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:F1756B72765802A381BCEE2FA93670664D8AB94A&dn=Hydro+Thunder+Hurricane+%28v1.2.0.0%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3150113)
   - Hydrofoil Generation + Windows 7 Fix | 2023-11-11 ([Source: Fitgirl](https://fitgirl-repacks.site/hydrofoil-generation/))
     - [1337x](https://1337x.to/torrent/5880775/Hydrofoil-Generation-Windows-7-Fix-FitGirl-Repack/)
     - <a href="magnet:?xt=urn:btih:6FE63A253661F27930CE82C19E038B97FF41A44F&dn=Hydrofoil+Generation+%28%2B+Windows+7+Fix%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=http%3A%2F%2Ftracker.gbitt.info%3A80%2Fannounce&tr=http%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.ccp.ovh%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.theoks.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.tamersunion.org%3A443%2Fannounce&tr=http%3A%2F%2Fopen.acgnxtracker.com%3A80%2Fannounce&tr=http%3A%2F%2Fopen.acgtracker.com%3A1096%2Fannounce&tr=http%3A%2F%2Ftracker.bt4g.com%3A2095%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
