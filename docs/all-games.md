@@ -46344,6 +46344,15 @@
   - Motorcycle Ride: Infinity Free Download | 2026-11-07 ([Source: SteamRIP](https://steamrip.com/motorcycle-ride-infinity-free-download/))
     - [bzzhr](https://bzzhr.to/t5w7osooelhn)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha44/e6f3461965ba388bead5/Motorcycle.Ride.Infinity-SteamRIP.com.rar)
+  - Motorcycle Ride: Infinity – v1.1 | 2026-11-13 ([Source: Fitgirl](https://fitgirl-repacks.site/motorcycle-ride-infinity/))
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5001da1f007c1330#6KJ96dbYrH9MCjVWcYzciHKpBjiiG5XrdenTnkYtTNAY)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?352b592c38c23a3a#FkpH7xFpFRGc5MKbLThchm6CdtVTFR289sYH7RvB92Sq)
+    - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?2fe2705a612372b4#8ExUXvTrFsPyZFz4DbYw8pn2EVG3HxWwisPaZ18YCWfJ)
+    - [1337x](https://1337x.to/torrent/6759457/Motorcycle-Ride-Infinity-v1-1-MULTi31-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:DFF7407314EC82FC1FF5E15F9345F459F213B7AD&dn=Motorcycle+Ride%3A+Infinity+%28v1.1%2C+MULTi31%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1114313/motorcycle-ride-infinity-v-1.1-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:dff7407314ec82fc1ff5e15f9345f459f213b7ad&dn=rutor.info_Motorcycle+Ride%3A+Infinity+%5Bv+1.1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3150248)
   - MOTORSLICE | 2026-05-17 ([Source: Fitgirl](https://fitgirl-repacks.site/motorslice/))
     - [datanodes](https://datanodes.to/5dtqqbv81ig9/MOTORSLICE_--_fitgirl-repacks.site_--_.rar)
     - [fuckingfast](https://fuckingfast.co/xhkibs943qyf#MOTORSLICE_--_fitgirl-repacks.site_--_.rar)
