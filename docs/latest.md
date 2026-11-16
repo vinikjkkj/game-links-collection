@@ -1,5 +1,21 @@
 # Latest Games
 
+- ilomilo plus – v1.1.43.0 | 2026-11-16 ([Source: Fitgirl](https://fitgirl-repacks.site/ilomilo-plus/))
+  - [datanodes](https://datanodes.to/9wghbe9se2ae/ilomilo_plus_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/ikocqcbl9zq6#ilomilo_plus_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/m1krqh76cqme/ilomilo_plus_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6761218/ilomilo-plus-v1-1-43-0-MULTi9-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:8B0E146F8CB537D090B67F04A13593D3E7E01025&dn=ilomilo+plus+%28v1.1.43.0%2C+MULTi9%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150734)
+- Ancient Wars: Sparta HD | 2026-11-15 ([Source: Fitgirl](https://fitgirl-repacks.site/ancient-wars-sparta-hd/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?595978ba0d5a7aed#8aAAetSAXHSfbZ4BLzhjnTjzB2CUJcV6jJi7QbYxMuZq)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?fbea71e821b80c25#2JFH6cugi34gSXaHmzTq2whT2ngHEm7gv9YobDggHiBL)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b483a5192d056232#8GCcyJEhZESwzJML5KWUKuN7dFa7JyPg3xxYVhjSWvD2)
+  - [1337x](https://1337x.to/torrent/6760787/Ancient-Wars-Sparta-HD-MULTi17-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:E639D5F767A34666BE32D184AC3679225B23E8B9&dn=Ancient+Wars%3A+Sparta+HD+%28MULTi17%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1114751/ancient-wars-sparta-hd-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:e639d5f767a34666be32d184ac3679225b23e8b9&dn=rutor.info_Ancient+Wars%3A+Sparta+HD+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150636)
 - Fish & Hike | 2026-11-15 ([Source: Fitgirl](https://fitgirl-repacks.site/fish-and-hike/))
   - [datanodes](https://datanodes.to/2biy797zlnvi/Fish_and_Hike_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/h2778usiexci#Fish_and_Hike_--_fitgirl-repacks.site_--_.rar)
@@ -100,12 +116,3 @@
 - Invokyr Free Download (Build 26485130 + Co-op) | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/invokyr-free-download/))
   - [bzzhr](https://bzzhr.to/9kg3yg7oyjzd)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/8cb3afb17acd7859bacb/Invokyr-SteamRIP.com.rar)
-- Incremental Traffic Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/incremental-traffic-free-download/))
-  - [bzzhr](https://bzzhr.to/h2gvpvsx3tai)
-- Football Manager 27 – v27.0.1 | 2026-11-14 ([Source: Fitgirl](https://fitgirl-repacks.site/football-manager-27/))
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?938910f2eea1eb67#5WR5gkzsegsuYbaKABFVxQoGY7UcPBqQdm87S1UpmPuq)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?5aa208537056cb95#2wdimCvd9RwsfooLFDzH4CbnwwfjyU9HgZAy61WSfs9V)
-  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7cf6da3c01a0d0c0#DkERpyAN3upfyeEmGknJHnE3R6HFHujFeqadZQ3m5aUL)
-  - [1337x](https://1337x.to/torrent/6759669/Football-Manager-27-v27-0-1-MULTi20-FitGirl-Hypervisor-Repack/)
-  - <a href="magnet:?xt=urn:btih:8541BDF31FBE9D2A630B4EF30C45ECF2AA6ECF43&dn=Football+Manager+27+%28v27.0.1%2C+MULTi20%29+%5BFitGirl+Hypervisor+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
-  - [tapochek](https://tapochek.net/viewtopic.php?p=3150323)
