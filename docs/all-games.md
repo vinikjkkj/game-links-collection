@@ -43756,6 +43756,8 @@
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?f648725fd8133618#2UmFNWx5Ynrokr5HGXg42UuJfLstYPbg8a5nDPBg1cJb)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?dfb2bee400f21ff8#cuCR19ACbtpipRwu7bUmrrASdKrU1HDdm3FAh9ZvgaU)
     - [hermietkreeft](https://pastefg.hermietkreeft.site/?6c843de3c4f87bfa#94uxTVW2pkYHTBknafsomQtVrKDj1nVcVq8GhZCWPz6i)
+  - Melvor Idle 2: A RuneScape Adventure Free Download | 2026-11-17 ([Source: SteamRIP](https://steamrip.com/melvor-idle-2-a-runescape-adventure-free-download/))
+    - [megadb](https://megadb.net/ac22c1abeb756968)
   - Melvor Idle Free Download (v1.3) | 2024-09-04 ([Source: SteamRIP](https://steamrip.com/melvor-idle-free-download-1t/))
     - [megadb](https://megadb.net/zg0g90xlollh)
   - Meme Mayhem Free Download (v0.22.47) | 2025-01-16 ([Source: SteamRIP](https://steamrip.com/meme-mayhem-free-download/))
@@ -49500,6 +49502,15 @@
     - **Updates**
       - [Noctuary.Update.v1.2.0-TENOKE (2 parts)](https://filecrypt.cc/Container/16C6A8DF51.html)
       - [Noctuary.Update.v1.2.1-TENOKE.rar](https://filecrypt.cc/Container/C58D2A51C1.html)
+  - Nocturnal 2 – v1.0.0 | 2026-11-17 ([Source: Fitgirl](https://fitgirl-repacks.site/nocturnal-2/))
+    - [datanodes](https://datanodes.to/0e46ociqz0be/Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/oykumcnup0vi#Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/bcto4nrbnw33/Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6761872/Nocturnal-2-v1-0-0-MULTi10-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:6A4E2F0B1F12633FBCE613278FABC22309D8C159&dn=Nocturnal+2+%28v1.0.0%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1114970/nocturnal-2-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:6a4e2f0b1f12633fbce613278fabc22309d8c159&dn=rutor.info_Nocturnal+2+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3150830)
   - Nocturnal Free Download (v1.2.0) | 2024-03-10 ([Source: SteamRIP](https://steamrip.com/nocturnal-free-download-l1/))
     - [megadb](https://megadb.net/1s938tolwzie)
   - Nocturnal: Enhanced Edition – v1.2.0.740 | 2023-10-13 ([Source: Fitgirl](https://fitgirl-repacks.site/nocturnal/))

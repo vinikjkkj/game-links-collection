@@ -1,5 +1,16 @@
 # Latest Games
 
+- Melvor Idle 2: A RuneScape Adventure Free Download | 2026-11-17 ([Source: SteamRIP](https://steamrip.com/melvor-idle-2-a-runescape-adventure-free-download/))
+  - [megadb](https://megadb.net/ac22c1abeb756968)
+- Nocturnal 2 – v1.0.0 | 2026-11-17 ([Source: Fitgirl](https://fitgirl-repacks.site/nocturnal-2/))
+  - [datanodes](https://datanodes.to/0e46ociqz0be/Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/oykumcnup0vi#Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/bcto4nrbnw33/Nocturnal_2_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6761872/Nocturnal-2-v1-0-0-MULTi10-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:6A4E2F0B1F12633FBCE613278FABC22309D8C159&dn=Nocturnal+2+%28v1.0.0%2C+MULTi10%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1114970/nocturnal-2-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:6a4e2f0b1f12633fbce613278fabc22309d8c159&dn=rutor.info_Nocturnal+2+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150830)
 - Frontier: Path of Shadows + 4 DLCs/Bonuses | 2026-11-16 ([Source: Fitgirl](https://fitgirl-repacks.site/frontier-path-of-shadows/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?bed380b9ba063dd8#CoJmyYyEeSaaQUUYNXYnPAU81pYaxXMkpRUbaBJ6cHcG)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?65381601c2761c55#9BUqBrWayUS6WuSvr7S6eSgvULpfF5TJMYoRn57ypYSC)
@@ -117,11 +128,3 @@
 - Cozy Game Restoration Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/cozy-game-restoration-free-download/))
   - [bzzhr](https://bzzhr.to/uf1r3fnyjz57)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/f1d9a98c2594caf15a8c/Cozy.Game.Restoration-SteamRIP.com.rar)
-- Fall of an Empire Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/fall-of-an-empire-free-download/))
-  - [gofile](https://gofile.io/d/irYspwMH)
-  - [bzzhr](https://bzzhr.to/cqsl041ada6p)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/7caea66a43d0f34ba37c/Fall.of.an.Empire-SteamRIP.com.rar)
-- Ukrainian Fight Drone Simulator (UFDS) – FPV drone simulator Free Download (Build 26508517 + Multiplayer) | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/ukrainian-fight-drone-simulator-ufds-fpv-drone-simulator-free-download/))
-  - [gofile](https://gofile.io/d/pfyOT8Ep)
-  - [bzzhr](https://bzzhr.to/f6lhtr43sux7)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/64401cad6f96e53d7006/Ukrainian.Fight.Drone.Simulator-SteamRIP.com.rar)
