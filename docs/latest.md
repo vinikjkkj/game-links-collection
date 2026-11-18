@@ -1,5 +1,30 @@
 # Latest Games
 
+- BrokenLore: DON’T LIE + Bonus OST | 2026-11-18 ([Source: Fitgirl](https://fitgirl-repacks.site/brokenlore-dont-lie/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7b6a316e5b155787#CJu6rMQtGUbs2fsuCUPuunCdYy7y3iE1J7wr8Myk9zbX)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?328f83d5c300ed03#7knVs2gbYTHXAS1MQHqzm6qbmjp3QdFh8XNnia4qc1kM)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?67d7d3f431b871d0#BrY6qJgm5dH1eh5ESqStdv5NJLSKPtx2VfKRdDthacX9)
+  - [1337x](https://1337x.to/torrent/6762766/BrokenLore-DON-T-LIE-Bonus-OST-MULTi15-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:D3B6E460375D28344AAA11BE96638F3DD2241FFB&dn=BrokenLore%3A+DON%26rsquo%3BT+LIE+%28%2B+Bonus+OST%2C+MULTi15%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1115114/brokenlore-dont-lie-dlc-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:d3b6e460375d28344aaa11be96638f3dd2241ffb&dn=rutor.info_BrokenLore%3A+DON%27T+LIE+%5B%2B+DLC%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150999)
+- Saloon Simulator – v1.0-17904 | 2026-11-18 ([Source: Fitgirl](https://fitgirl-repacks.site/saloon-simulator/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c0f9ffba7795a0e1#9R8bvG7dPHr39t5dzYB7qeBSX47VLK5Qtfz8UTcXffey)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?31d01281cd053a4b#H9UTaekpjF8NLQBXcBfm7k95yfYVm2NC1S7o2AoRfLip)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?6ccaa28ebe5d73b9#CTbDB8wztsujdG4bVCFHdg2hjnwZsavg1DVYcEosf1Gq)
+  - [1337x](https://1337x.to/torrent/6762189/Saloon-Simulator-v1-0-17904-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:53E74B16CD890DEA8FD105F167CD94DFB6791879&dn=Saloon+Simulator+%28v1.0-17904%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1114990/saloon-simulator-v-1.0-17904-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:53e74b16cd890dea8fd105f167cd94dfb6791879&dn=rutor.info_Saloon+Simulator+%5Bv+1.0-17904%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150900)
+- Star Fox – v1.2.0 + Switch 2 Emulator + Recomp | 2026-11-17 ([Source: Fitgirl](https://fitgirl-repacks.site/star-fox/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c15cb4d59c20cd0b#5Jm8rp3EcbNHRFrkYHVmzTQavTmuMv44uKnzx9LH4YY7)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?494220e4a46f12b9#3AyzRcKD5S5mhBU8oETb3ZPkt1rFCQPb1yCbCr9NhpmJ)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?500e3743dd73e919#HAW21QzianM5uELg8XAU3VJ5BBeimGPLRbnkMYHXs5ZA)
+  - [1337x](https://1337x.to/torrent/6762156/Star-Fox-v1-2-0-Switch-2-Emulator-Recomp-MULTi11-FitGirl-Switch-2-Repack-Selective-Download-from-9-6-GB/)
+  - <a href="magnet:?xt=urn:btih:EA9CAADF2FF22F78EC83784DC9511F16BD67A6EF&dn=Star+Fox+%28v1.2.0+%2B+Switch+2+Emulator+%2B+Recomp%2C+MULTi11%29+%5BFitGirl+Switch+2+Repack%2C+Selective+Download+-+from+9.6+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3150882)
 - Melvor Idle 2: A RuneScape Adventure Free Download | 2026-11-17 ([Source: SteamRIP](https://steamrip.com/melvor-idle-2-a-runescape-adventure-free-download/))
   - [megadb](https://megadb.net/ac22c1abeb756968)
 - Nocturnal 2 – v1.0.0 | 2026-11-17 ([Source: Fitgirl](https://fitgirl-repacks.site/nocturnal-2/))
@@ -117,14 +142,3 @@
   - [gofile](https://gofile.io/d/6y62Ji3r)
   - [bzzhr](https://bzzhr.to/eg2h8uhmgs7i)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/3006656f07a7aeef7850/Hazard.Levels-SteamRIP.com.rar)
-- Hope in the City Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/hope-in-the-city-free-download/))
-  - [gofile](https://gofile.io/d/ifi1yyxH)
-  - [bzzhr](https://bzzhr.to/ezy7yd9mzepa)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/9f8e37521df09304050f/Hope.in.the.City-SteamRIP.com.rar)
-- Enotria: The Last Song Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/enotria-the-last-song-free-download-2/))
-  - [gofile](https://gofile.io/d/cl50vQJl)
-  - [bzzhr](https://bzzhr.to/gvbfprs6qadk)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/9b591555e1af3c14a631/Enotria.The.Last.Song-SteamRIP.com.rar)
-- Cozy Game Restoration Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/cozy-game-restoration-free-download/))
-  - [bzzhr](https://bzzhr.to/uf1r3fnyjz57)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/f1d9a98c2594caf15a8c/Cozy.Game.Restoration-SteamRIP.com.rar)
