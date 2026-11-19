@@ -11896,6 +11896,15 @@
     - [paste2](https://paste2.org/ZCNxmAmC)
     - [pastebin](https://pastebin.com/raw/NLHg3D93)
     - [pastehere](http://pastehere.xyz/ieDw6CkE/)
+  - Chained Beasts – v1.0.1 | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/chained-beasts/))
+    - [datanodes](https://datanodes.to/1hzeejvblqhv/Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/mi45ii1hp0e4#Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/cz6ohjpijprp/Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6763377/Chained-Beasts-v1-0-1-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:10E38F071F8B2CA5141CE5ED6503CABFD8A98547&dn=Chained+Beasts+%28v1.0.1%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1115233/chained-beasts-v-1.0.1-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:10e38f071f8b2ca5141ce5ed6503cabfd8a98547&dn=rutor.info_Chained+Beasts+%5Bv+1.0.1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3151160)
   - Chained Echoes | 2025-12-11 ([Source: Elamigos](https://elamigos.site/data/Chained_Echoes_MULTi4_-_ElAmigos.html))
     - [filecrypt](https://www.filecrypt.cc/Container/E1522E29E6.html)
     - [keeplinks](https://www.keeplinks.org/p16/63dab2637836b)
@@ -18333,6 +18342,15 @@
       - [Dice.Gambit.Update.v20251008-TENOKE.rar](https://filecrypt.cc/Container/18FD7C4DB5.html)
       - [Dice.Gambit.Update.v20251126-TENOKE.rar](https://filecrypt.cc/Container/AEAE5B5B65.html)
       - [Dice.Gambit.Update.v20260319-TENOKE.rar](https://filecrypt.cc/Container/9D8DF0C585.html)
+  - Dice Hoarder | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/dice-hoarder/))
+    - [datanodes](https://datanodes.to/ueods9c80fv1/Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/x00hkwiktvan#Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/l5huxl3wtrot/Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6763422/Dice-Hoarder-MULTi12-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:F03415FDCEBF9B432779786C686AB757E79FA86B&dn=Dice+Hoarder+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1115242/dice-hoarder-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:f03415fdcebf9b432779786c686ab757e79fa86b&dn=rutor.info_Dice+Hoarder+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3151175)
   - Dice Hoarder Free Download | 2026-11-15 ([Source: SteamRIP](https://steamrip.com/dice-hoarder-free-download/))
     - [bzzhr](https://bzzhr.to/3jdkchzwdjzs)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha48/2af58fa8b1596bbcdb51/Dice.Hoarder-SteamRIP.com.rar)
@@ -63255,6 +63273,15 @@
   - Shipping Store Simulator 2037 Free Download | 2026-10-15 ([Source: SteamRIP](https://steamrip.com/shipping-store-simulator-2037-free-download/))
     - [bzzhr](https://bzzhr.to/zbytmdoxjkws)
     - [itsfileditchfiles](https://itsfileditchfiles.st/balpha31/77d7d2c802d4d5a7399e/Shipping.Store.Simulator.2037-SteamRIP.com.rar)
+  - Shipping Store Simulator 2037 – v1.0.5 | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/shipping-store-simulator-2037/))
+    - [datanodes](https://datanodes.to/3im8rzv11owh/Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/62up5rs34z09#Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/mbac81ddn6kn/Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6762856/Shipping-Store-Simulator-2037-v1-0-5-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:A03517D96853386194CD0D3DF684C5F7693246E3&dn=Shipping+Store+Simulator+2037+%28v1.0.5%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1115131/shipping-store-simulator-2037-v-1.0.5-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:a03517d96853386194cd0d3df684c5f7693246e3&dn=rutor.info_Shipping+Store+Simulator+2037+%5Bv+1.0.5%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3151028)
   - Ships At Sea Free Download | 2025-04-30 ([Source: SteamRIP](https://steamrip.com/ships-at-sea-free-download/))
     - [buzzheavier](https://buzzheavier.com/ivraw1iwjmdo)
     - [gofile](https://gofile.io/d/iZsZCt)

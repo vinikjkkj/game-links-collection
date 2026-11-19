@@ -1,5 +1,32 @@
 # Latest Games
 
+- Dice Hoarder | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/dice-hoarder/))
+  - [datanodes](https://datanodes.to/ueods9c80fv1/Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/x00hkwiktvan#Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/l5huxl3wtrot/Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6763422/Dice-Hoarder-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:F03415FDCEBF9B432779786C686AB757E79FA86B&dn=Dice+Hoarder+%28MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1115242/dice-hoarder-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:f03415fdcebf9b432779786c686ab757e79fa86b&dn=rutor.info_Dice+Hoarder+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151175)
+- Chained Beasts – v1.0.1 | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/chained-beasts/))
+  - [datanodes](https://datanodes.to/1hzeejvblqhv/Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/mi45ii1hp0e4#Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/cz6ohjpijprp/Chained_Beasts_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6763377/Chained-Beasts-v1-0-1-MULTi12-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:10E38F071F8B2CA5141CE5ED6503CABFD8A98547&dn=Chained+Beasts+%28v1.0.1%2C+MULTi12%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1115233/chained-beasts-v-1.0.1-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:10e38f071f8b2ca5141ce5ed6503cabfd8a98547&dn=rutor.info_Chained+Beasts+%5Bv+1.0.1%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151160)
+- Shipping Store Simulator 2037 – v1.0.5 | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/shipping-store-simulator-2037/))
+  - [datanodes](https://datanodes.to/3im8rzv11owh/Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+  - [fuckingfast](https://fuckingfast.co/62up5rs34z09#Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+  - [filekeeper](https://filekeeper.net/mbac81ddn6kn/Shipping_Store_Simulator_2037_--_fitgirl-repacks.site_--_.rar)
+  - [1337x](https://1337x.to/torrent/6762856/Shipping-Store-Simulator-2037-v1-0-5-MULTi11-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:A03517D96853386194CD0D3DF684C5F7693246E3&dn=Shipping+Store+Simulator+2037+%28v1.0.5%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1115131/shipping-store-simulator-2037-v-1.0.5-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:a03517d96853386194cd0d3df684c5f7693246e3&dn=rutor.info_Shipping+Store+Simulator+2037+%5Bv+1.0.5%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151028)
 - BrokenLore: DON’T LIE + Bonus OST | 2026-11-18 ([Source: Fitgirl](https://fitgirl-repacks.site/brokenlore-dont-lie/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?7b6a316e5b155787#CJu6rMQtGUbs2fsuCUPuunCdYy7y3iE1J7wr8Myk9zbX)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?328f83d5c300ed03#7knVs2gbYTHXAS1MQHqzm6qbmjp3QdFh8XNnia4qc1kM)
@@ -132,13 +159,3 @@
 - Frontier Tale Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/frontier-tale-free-download/))
   - [bzzhr](https://bzzhr.to/798s9pk8infk)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/b9168d0959597a8bc9a0/Frontier.Tale-SteamRIP.com.rar)
-- After the Wane Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/after-the-wane-free-download/))
-  - [bzzhr](https://bzzhr.to/w5xscb2oismr)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/099529d66e2277781e28/After.the.Wane-SteamRIP.com.rar)
-- The Strange City Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/the-strange-city-free-download/))
-  - [bzzhr](https://bzzhr.to/3tvyn3vo83zx)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/7f3e5ea0765b85bee194/The.Strange.City.v1.1-SteamRIP.com.rar)
-- Hazard Levels Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/hazard-levels-free-download/))
-  - [gofile](https://gofile.io/d/6y62Ji3r)
-  - [bzzhr](https://bzzhr.to/eg2h8uhmgs7i)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/3006656f07a7aeef7850/Hazard.Levels-SteamRIP.com.rar)
