@@ -1,5 +1,21 @@
 # Latest Games
 
+- Ancient Warfare: The Han Dynasty | 2026-11-20 ([Source: Fitgirl](https://fitgirl-repacks.site/ancient-warfare-the-han-dynasty/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b9626df3ad624d9a#5BfpTXUiJub2HCntAhxdhj2daakeUDbTNbR69oysjbj9)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?743ffd55246d6e6e#DvTedU8ueJtRHi1nxwUbh2jRCaJpYwKxaSjvyaKMfSGj)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?70214b6d3be27307#Da6zrxJZ4hTAMye4SBaabtL5ggXgfTQwsZNhy9hCMwXd)
+  - [1337x](https://1337x.to/torrent/6764025/Ancient-Warfare-The-Han-Dynasty-ENG-CHI-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:BD4BE0D9DA908E358B5885AD78A14DCF2CFF1166&dn=Ancient+Warfare%3A+The+Han+Dynasty+%28ENG%2FCHI%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151312)
+- Revenge of the Mage – v1.0.0_301 | 2026-11-20 ([Source: Fitgirl](https://fitgirl-repacks.site/revenge-of-the-mage/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?de48d71768ab89d6#2dTSuJPk223YuRHtsnDK6YAr91VcfhDmUADNfSbYPJRj)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?0d70e79ff33ba261#EnACWQXpXLeLWo831L7WCFjoyfxt6RvX5NVzX6u1mp4F)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c14f0951e7505d34#Fwp6d6TNzekREVaW1FVpkwFTbtbFyatD5uEvewzChd3i)
+  - [1337x](https://1337x.to/torrent/6763531/Revenge-of-the-Mage-v1-0-0_301-MULTi14-FitGirl-Repack/)
+  - <a href="magnet:?xt=urn:btih:93288630B1D29887838DBA988ED64DE3B7B5EE70&dn=Revenge+of+the+Mage+%28v1.0.0_301%2C+MULTi14%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [rutor](https://rutor.info/torrent/1115260/revenge-of-the-mage-v-1.0.0-301-2026-pc-repack-ot-fitgirl)
+  - <a href="magnet:?xt=urn:btih:93288630b1d29887838dba988ed64de3b7b5ee70&dn=rutor.info_Revenge+of+the+Mage+%5Bv+1.0.0+301%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151189)
 - Dice Hoarder | 2026-11-19 ([Source: Fitgirl](https://fitgirl-repacks.site/dice-hoarder/))
   - [datanodes](https://datanodes.to/ueods9c80fv1/Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
   - [fuckingfast](https://fuckingfast.co/x00hkwiktvan#Dice_Hoarder_--_fitgirl-repacks.site_--_.rar)
@@ -153,9 +169,3 @@
   - [gofile](https://gofile.io/d/orXFlzpv)
   - [bzzhr](https://bzzhr.to/d5iw7m93vvbt)
   - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/91c4046f84ed5ef0e3e7/Revenge.of.the.Mage-SteamRIP.com.rar)
-- Novus Orbis Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/novus-orbis-free-download/))
-  - [bzzhr](https://bzzhr.to/sqivbpw4k9q6)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/6f327ccac0e8de7458a2/Novus.Orbis-SteamRIP.com.rar)
-- Frontier Tale Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/frontier-tale-free-download/))
-  - [bzzhr](https://bzzhr.to/798s9pk8infk)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/b9168d0959597a8bc9a0/Frontier.Tale-SteamRIP.com.rar)
