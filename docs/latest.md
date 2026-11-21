@@ -1,5 +1,15 @@
 # Latest Games
 
+- Psycho-Sleuth: Deluxe Edition – v0.0.233 + Bonus Content | 2026-11-21 ([Source: Fitgirl](https://fitgirl-repacks.site/psycho-sleuth/))
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?a2c71dccd9850c9f#DsHGxXJvFztVm99yskm1A3b5pk3oPLSAzyYrRAj9PHhZ)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?efbc91d3e111bf64#HMxj9xEYyhzyK4Djtyq2JtsxZrZWbZWNNsHWCcJXZTzS)
+  - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?c0a84c543474e496#DcgjKgLACDzgQzq5swWRy9bcbKGpLMcQ1Ehxj1staFPS)
+  - [1337x](https://1337x.to/torrent/6764513/Psycho-Sleuth-Deluxe-Edition-v0-0-233-Bonus-Content-MULTi5-FitGirl-Repack-Selective-Download-from-8-7-GB/)
+  - <a href="magnet:?xt=urn:btih:3951F6E82AF84FD4D74F6E6432D0DB6D33091CEB&dn=Psycho-Sleuth%3A+Deluxe+Edition+%28v0.0.233+%2B+Bonus+Content%2C+MULTi5%29+%5BFitGirl+Repack%2C+Selective+Download+-+from+8.7+GB%5D&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.skynetcloud.site%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+  - [tapochek](https://tapochek.net/viewtopic.php?p=3151473)
+- Safari-TV Free Download (Build 26728877 + Co-op) | 2026-11-21 ([Source: SteamRIP](https://steamrip.com/safari-tv-free-download/))
+  - [bzzhr](https://bzzhr.to/0d7f9qtmuj8j)
+  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha51/7b5b6559e5c483542e5c/Safari-TV-SteamRIP.com.rar)
 - Ancient Warfare: The Han Dynasty | 2026-11-20 ([Source: Fitgirl](https://fitgirl-repacks.site/ancient-warfare-the-han-dynasty/))
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?b9626df3ad624d9a#5BfpTXUiJub2HCntAhxdhj2daakeUDbTNbR69oysjbj9)
   - [fitgirl-repacks](https://paste.fitgirl-repacks.site/?743ffd55246d6e6e#DvTedU8ueJtRHi1nxwUbh2jRCaJpYwKxaSjvyaKMfSGj)
@@ -162,10 +172,3 @@
   - [tapochek](https://tapochek.net/viewtopic.php?p=3150477)
 - The Rusted Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/the-rusted-free-download/))
   - [bzzhr](https://bzzhr.to/mpi74x3u3mlo)
-- Trakonius Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/trakonius-free-download/))
-  - [bzzhr](https://bzzhr.to/z540otkah7vd)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/5fe292cb03a57871937c/Trakonius-SteamRIP.com.rar)
-- Revenge of the Mage Free Download | 2026-11-14 ([Source: SteamRIP](https://steamrip.com/revenge-of-the-mage-free-download/))
-  - [gofile](https://gofile.io/d/orXFlzpv)
-  - [bzzhr](https://bzzhr.to/d5iw7m93vvbt)
-  - [itsfileditchfiles](https://itsfileditchfiles.st/balpha47/91c4046f84ed5ef0e3e7/Revenge.of.the.Mage-SteamRIP.com.rar)
