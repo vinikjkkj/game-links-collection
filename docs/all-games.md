@@ -8489,6 +8489,15 @@
     - [rutor](https://rutor.info/torrent/1071655/slepoe-kasanie_blind-touch-v-1.16.3-2026-pc-repack-ot-fitgirl)
     - <a href="magnet:?xt=urn:btih:ad45212dbfc9e0386d9b2bfa3dbce8d94b2fc5c0&dn=rutor.info_%D0%A1%D0%BB%D0%B5%D0%BF%D0%BE%D0%B5+%D0%BA%D0%B0%D1%81%D0%B0%D0%BD%D0%B8%D0%B5+%2F+Blind+Touch+%5Bv+1.16.3%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
     - [tapochek](https://tapochek.net/viewtopic.php?p=3101514)
+  - Blitzkrieg 3: Deluxe Edition – Build 26763333 + All DLCs | 2026-11-25 ([Source: Fitgirl](https://fitgirl-repacks.site/blitzkrieg-3/))
+    - [datanodes](https://datanodes.to/b5abmu8nmuw5/Blitzkrieg_3_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/x0ws9xlvsjyy#Blitzkrieg_3_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/8k9sjs9resdh/Blitzkrieg_3_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6766326/Blitzkrieg-3-Deluxe-Edition-Build-26763333-All-DLCs-MULTi11-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:57C5B9C097933EDA588EE18A1F9F063AC8139D02&dn=Blitzkrieg+3%3A+Deluxe+Edition+%28Build+26763333+%2B+All+DLCs%2C+MULTi11%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1116067/blitzkrieg-3-deluxe-edition-build-26763333-dlcs-2017-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:57c5b9c097933eda588ee18a1f9f063ac8139d02&dn=rutor.info_Blitzkrieg+3%3A+Deluxe+Edition+%5BBuild+26763333+%2B+DLC%27s%5D+%282017%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3152076)
   - Blizzard Arcade Collection | 2021-02-25 ([Source: Fitgirl](https://fitgirl-repacks.site/blizzard-arcade-collection/))
     - [1337x](https://1337x.to/torrent/4785294/Blizzard-Arcade-Collection-MULTi13-FitGirl-Repack-Selective-Download-from-1-3-GB/)
     - <a href="magnet:?xt=urn:btih:0BD45423E10C439411474E6FB0E03E67185FB476">Torrent</a>
@@ -56405,6 +56414,15 @@
     - [keeplinks](https://www.keeplinks.org/p16/6afb8ee9b311a)
   - Queen’s Domain Free Download | 2026-11-07 ([Source: SteamRIP](https://steamrip.com/queens-domain-free-download/))
     - [bzzhr](https://bzzhr.to/fxklf5ndp8d7)
+  - Queen’s Domain – v1.01.00 | 2026-11-25 ([Source: Fitgirl](https://fitgirl-repacks.site/queens-domain/))
+    - [datanodes](https://datanodes.to/7ixjvv03pufy/Queens_Domain_--_fitgirl-repacks.site_--_.rar)
+    - [fuckingfast](https://fuckingfast.co/gmmc559aimzt#Queens_Domain_--_fitgirl-repacks.site_--_.rar)
+    - [filekeeper](https://filekeeper.net/uy70quaz6wq8/Queens_Domain_--_fitgirl-repacks.site_--_.rar)
+    - [1337x](https://1337x.to/torrent/6766933/Queen-s-Domain-v1-01-00-MULTi8-FitGirl-Repack/)
+    - <a href="magnet:?xt=urn:btih:CBFF4D13B48337D36C5C280DACC8145A78590A59&dn=Queen%26%23039%3Bs+Domain+%28v1.01.00%2C+MULTi8%29+%5BFitGirl+Repack%5D&tr=udp%3A%2F%2Fopentor.net%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce&tr=udp%3A%2F%2Ftracker.qu.ax%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.fnix.net%3A6969%2Fannounce&tr=udp%3A%2F%2Fevan.im%3A6969%2Fannounce&tr=udp%3A%2F%2Fmartin-gebhardt.eu%3A25%2Fannounce&tr=https%3A%2F%2Fshahidrazi.online%3A443%2Fannounce&tr=http%3A%2F%2Fwegkxfcivgx.ydns.eu%3A80%2Fannounce&tr=http%3A%2F%2Flucke.fenesisu.moe%3A6969%2Fannounce&tr=udp%3A%2F%2Fextracker.dahrkael.net%3A6969%2Fannounce&tr=https%3A%2F%2Ftracker.alaskantf.com%3A443%2Fannounce&tr=https%3A%2F%2Ftracker.qingwa.pro%3A443%2Fannounce&tr=udp%3A%2F%2Ftracker.playground.ru%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&tr=http%3A%2F%2Ftracker.openbittorrent.com%3A80%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fcoppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.zer0day.to%3A1337%2Fannounce">Torrent</a>
+    - [rutor](https://rutor.info/torrent/1116195/queens-domain-v-1.01.00-2026-pc-repack-ot-fitgirl)
+    - <a href="magnet:?xt=urn:btih:cbff4d13b48337d36c5c280dacc8145a78590a59&dn=rutor.info_Queen%27s+Domain+%5Bv+1.01.00%5D+%282026%29+PC+%7C+RePack+%D0%BE%D1%82+FitGirl&tr=udp://opentor.net:6969&tr=http://retracker.local/announce">Torrent</a>
+    - [tapochek](https://tapochek.net/viewtopic.php?p=3152243)
   - Quern - Undying Thoughts | 2018-02-27 ([Source: Elamigos](https://elamigos.site/data/Quern__Undying_Thoughts__ElAmigos_-_D19sJJ0P.html))
     - [filecrypt](https://www.filecrypt.cc/Container/FA1560ED29.html)
     - [keeplinks](https://www.keeplinks.org/p16/5ddd94b6438d5)
